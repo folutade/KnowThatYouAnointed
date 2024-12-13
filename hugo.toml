@@ -1,0 +1,38 @@
+baseURL = 'https://example.org/'
+languageCode = 'en-us'
+title = 'Know That You Anointed'
+theme = 'hugo-PaperMod'
+description = 'Does any of this work?'
+
+[params]
+env = 'production' # to enable google analytics, opengraph, twitter-cards and schema.
+description = 'Theme PaperMod - https://github.com/adityatelange/hugo-PaperMod'
+author = 'Femi'
+
+# defaultTheme = 'auto'
+# disableThemeToggle = true
+ShowShareButtons = true
+ShowReadingTime = true
+disableSpecial1stPost = true
+displayFullLangName = true
+ShowPostNavLinks = true
+ShowBreadCrumbs = true
+ShowCodeCopyButtons = true
+ShowRssButtonInSectionTermList= true
+ShowAllPagesInArchive = true
+ShowPageNums = true
+# ShowToc = true
+# comments = false
+
+
+homeInfoParams.title = "A blog on the intersection between \n Christian spirituality and hip hop"
+
+homeInfoParams.content = '''
+### by Femi "Athanasios" Olutade
+
+* [About me](www.example.com)
+* About blog
+<b>
+<p>This is a sample description.</p>
+anything
+'''
