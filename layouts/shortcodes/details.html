@@ -1,0 +1,11 @@
+{{ $nest_level := .Get "nest_level" | default "0" | int }}
+{{ $margin_left := mul $nest_level 20 }}
+
+<details style="margin-left: {{ $margin_left}}px;">
+  <summary style="font-weight: bold;{{ if eq (.Get "is_lyric") "true" }}font-style: italic; font-size: 24px;{{ end }}">{{ (.Get "title") | markdownify }}</summary>
+    {{ if eq (.Get "is_markdown") "true" }}
+      {{ .Inner | markdownify }}
+    {{ else }}
+      {{ .Inner }}
+    {{ end }}
+</details>
