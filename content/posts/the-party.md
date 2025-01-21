@@ -6,7 +6,7 @@ title = '"Watch the Party Die" or "Die for the Party"'
 
 ## "Watch the Party Die" by Kendrick Lamar
 
-### Verse 1
+### [Verse 1]
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="I think it's time to watch the party die" >}}
 
@@ -892,16 +892,10 @@ title = '"Watch the Party Die" or "Die for the Party"'
 * In the context of "Watch the Party Die", Kendrick seems to be saying that rappers, influencers and members of the entertainment industry who "glorify scamming" will soon get "chipped" by the people who are carrying out Kendrick's execution orders.  
 
 {{< /details >}}
+
 {{< /details >}}
 
-{{< lyrics >}}
-Influencers talk down 'cause I'm not with the basic shit<br>
-But they don't hate me, they hate the man that I represent<br>
-The type of man that never dickride 'cause I want a favor
-{{< /lyrics >}}
-<!-- {{< lyrics >}}But they don't hate me, they hate the man that I represent{{< /lyrics >}}
-{{< lyrics >}}The type of man that never dickride 'cause I want a favor{{< /lyrics >}} -->
-{{< details is_markdown="false" nest_level="0" is_lyric="true" title="The man that resides in patience" >}}
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="Influencers talk down 'cause I'm not with the basic shit" >}}
 
 {{< details is_markdown="true" nest_level="1" is_lyric="false" title="Influencers">}}
 
@@ -933,6 +927,10 @@ The type of man that never dickride 'cause I want a favor
 
 {{< /details >}}
 
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="But they don't hate me, they hate the man that I represent" >}}
+
 {{< details is_markdown="true" nest_level="1" is_lyric="false" title="Hate">}}
 
 #### "But they don't hate me, they hate the man that I represent" > Hate
@@ -940,6 +938,10 @@ The type of man that never dickride 'cause I want a favor
 * Kendrick claims that he constantly receives hate from "basic" influencers who cannot understand or appreciate Kendrick's thoughtful, complex and creative artistry. However, Kendrick doesn't take this hate personally. From Kendrick's perspective, "basic" influencers hate everything that Kendrick represents in contrast to the mainstream entertainment industry.  
 
 {{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="The type of man that never dickride 'cause I want a favor" >}}
 
 {{< details is_markdown="true" nest_level="1" is_lyric="false" title="Dickride">}}
 
@@ -954,6 +956,16 @@ The type of man that never dickride 'cause I want a favor
   * ***My goal was to get this far in Hollywood and still have a virgin asshole and never had sucked a penis**. That was my only goal.  
   ...  
   **I've had to turn down $50 million four times** - four times - just **to protect my integrity and that virgin hole** I was telling you about, right. Cause **P Diddy be wanting to party and you got to tell him, "No."** You've got to tell him, "No." I did.*  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="The man that resides in patience" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Patience">}}
+
+#### "The man that resides in patience" > Patience
 
 * While "dickriding" can be a quick way to achieve some level of success, Kendrick seems to see himself as someone who has the patitence needed to reap the rewards hard-earned success.  
 
@@ -1151,7 +1163,7 @@ How many bitches harder than a lot of you niggas?
 
 {{< /details >}}
 
-### Chorus
+### [Chorus]
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="God, give me life, dear God, please give me peace" >}}
 
@@ -1839,7 +1851,7 @@ Get 'em gone, we gon' watch the party die
 
 {{< /details >}}
 
-### Verse 2
+### [Verse 2]
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="I think it's time to watch the party die" >}}
 
@@ -3178,7 +3190,37 @@ Get 'em gone, we gon' watch the party die
 
 {{< lyrics >}}Say hello to your future fate, the culture bred with carnivores{{< /lyrics >}}
 
-{{< lyrics >}}You let 'em snack, they eat your face{{< /lyrics >}}
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="You let 'em snack, they eat your face" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Culture vultures">}}
+
+#### "Say hello to your future fate, the culture bred with carnivores" > Culture vultures
+
+* With the line, “the culture bred with carnivores”, Kendrick seems to be alluding to the famously influential lines from Jay-Z's 2001 song “Izzo” in which Jay-Z describe corporate leaders in the music industry as “vultures” who scavenge off Black culture
+
+  * **I do this for my culture**, to let 'em know  
+  What a nigga look like when a nigga in a roadster  
+  **Show 'em how to move in a room full of vultures  
+  Industry shady**, it need to be taken over  
+  **Label owners hate me**, I'm raisin' the status quo up  
+  I'm overcharging niggas for what they did to the Cold Crush  
+  **Pay us like you owe us for all the years that you hoed us**  
+  We can talk, but money talks, so talk more bucks  
+
+* More recently in Migos's 2017 track, “T-Shirt” from their album “Culture”, Migos member, Quavo, referenced those lines from “Izzo” while discussing how "vultures" will "bite", which is slang for stealing.
+
+  * Do it for the culture (Culture)  
+  They gon' bite like vultures (Vultures)  
+
+* The carnivores that Kendrick mention here thus seem to be culture vultures who will eat artists for a snack. Kendrick specifically mentions that the carnivores will "eat your face", which conveys the idea that cultures vultures seek to erase an artist's identity along with any associate or credit that the artist would have to their work.
+ 
+* In the phrase “bred with carnivores”, the word "bred" primarily refers to the reproduction of vulture from one generation to the next. However, "bred" is also a double entendre for the food item “bread” which connects to the idea of vulture eating. This line then turns into a triple entendre when we realize that “bread” is also slang for “money” which would indicate that the "corporate guys" from the entertainment industry are eating up all the money that rightfully belongs to the artist.  
+ 
+* By saying "Say hello to your future fate", Kendrick seems to be asserting that getting eaten and erased by culture vultures is guaranteed to be the fate of any artist who remains trapped in the grip of the entertainment industry for any substatial amount of time.
+
+{{< /details >}}
+
+{{< /details >}}
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="the signatures is bein' forged" >}}
 
@@ -3187,6 +3229,8 @@ Get 'em gone, we gon' watch the party die
 #### "the signatures is bein' forged" > Forged signatures
 
 * Kendrick seems to be warning other hip hop artists about the hard disputes and metaphorical divorce that will happen to them in the future if they sign a contract with an exploitative entertainment company.  
+ 
+* The word "forged" refers to a fake signature that is used to establihs a fraudulent legal agreement but is also double entendre referring to the process of shaping metal into a weapon, tool or object. This connects back to previous line about “heavy metals on my sword” that was used to "get these devils out the way".  
  
 * The idea that the signatures are being “forged” indicates that the "corporate guys" in the entertainment industry are actually committing acts of fraud to illegally profit from "rappers that report the lies" and use the leverage of paid lawyers and the legal system against Black artists.  
  
@@ -3212,17 +3256,1228 @@ Get 'em gone, we gon' watch the party die
   And now you all grown up to **sign this contract**,  
   if that's possible*  
 
-* The word “forged” is also double entendre referring to the process of shaping metal into a weapon, tool or object. This connects back to previous line about “heavy metals on my sword”.  
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="They wonder why I'm not enthused to drop" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="subsection">}}
+
+#### "They wonder why I'm not enthused to drop" > Drop
+
+* The word "drop" refers to Kendrick releasing or “dropping” a new album, which is something that had been heavily anticipated during and after the battle with Drake.  
+ 
+* After hearing about sexual predators, unfaithful corporate partners, fraudulent devils and culture vultures in the entertainment industry it is no wonder that Kendrick is unenthusiastic about dropping a new album.  
+ 
+* A few months after the release of "Watch the Party Die", Kendrick would release his next full length album, *GNX*. Throughout *GNX* Kendrick discusse the challenges of navigating through the evil, satanic control of the entertainment industry, particular on the track "reincarnated".  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="The more visible you get, the more your spiritual is tried" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="More visible, more tried">}}
+
+#### "The more visible you get, the more your spiritual is tried" > More visible, more tried
+
+* After focusing on the justification for committing acts of physical violence against his enemies, it is notable that this is the first time on either verse where Kendrick has really focused on how he is being tested and tried spiritually.  
+ 
+* Kendrick seems to be expressing the idea that he and other true artists face increasingly difficult struggles and trials as they become increasingly famous and visible to the public.  
+ 
+* This line expresses a similar idea and ethos to the Notorious B.I.G., Ma$e and Diddy’s famous song “Mo’ Money, Mo’ Problems”  
+
+  * *I don't know what they want from me  
+  It's like **the more money we come across  
+  The more problems we see***  
+
+* The challenge of being tried spiritually seems to be one of the main reasons that Kendrick is "not enthused to drop" a new album, since droping a new album will only increase his visibility and his trials.
+ 
+* The idea of increased spiritually trials coming after increased visibility is also illustrated in Gospel accounts which describe how Jesus was tried by the ["devil" / "satan" / "false accusers" / "diabolical one"] immediately after God the Father opened the skies, spoke audibly to declare that Jesus was his "beloved son" and  sent the Holy Spirit in the visible form of a dove to show that Jesus is the anointed king (aka the Christ) over God's people.  
+
+  * ***After Jesus was baptized**, he came up immediately from the water; and behold, the **skies were opened**, and he **saw the Spirit of God descending as a dove and settling on Him**, and behold, a voice from the skies said, “This is My beloved Son, with whom I am well pleased.” **Then Jesus was led up by the Spirit into the wilderness to be tested by the devil**.*  
+  -Matthew 3:16-4:1
 
 
 {{< /details >}}
 
 {{< /details >}}
 
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="It's cynical to say I know these artists petrified" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Petrified">}}
+
+#### "It's cynical to say I know these artists petrified" > Petrified
+
+* For the last few lines Kendrick has been shown himself to be very cynical about the entertainment industry, which gobbles up artists like vultures. Artists who recognize the dangers of the entertainment industry are understandably afraid and even “petrified”.  
+ 
+* While the word "petrified" can be used as a synonym for "afraid", the most concreate meaning of “petrified” refers to any kind of organic plant or animal material that is turned into stone. Organic material is petrified when water brings small minerals into the formerly living plant or animal and slowly replaces all of the organic flesh with rock-hard material.  
+ 
+* Becoming “petrified” actually serves as a great metaphor for hip hop as a living, flexible, organic culture being infiltrated by slick corporate guys and entertainment companies who kill hip hop artists (or more specifically kill hip hop artists consciousness as Kendrick mentioned in “Worldwide Steppers”) then seek to replace the flexible, organic culture of hip hop with a rock hard, inflexible, inorganic focus on making profit. This process eventually turns Black artists into hard-hearted individuals who are deadened to the world and can no longer grow.  
+ 
+* It is notable that the within the Old Testament, the Prophet Ezekiel explained that God had allowed the Israelites to be defeated, dispursed and enslaved because of they had hearts of stone which did not desire God or the justice that comes from God. However, Ezekiel also prophesied about a day in the future when God would free them from slavery, bring them back to their own land and transform their old hearts of stone into new hearts of flesh which would truly desire God and be able to act with justice.  
+ 
+  * *For **I will** take you from among the nations and **gather you** out of all the countries, and will **bring you into your own land**. I will sprinkle clean water on you, and you will be clean. I will cleanse you from all your filthiness, and **from all your idols**. I will also **give you a new heart**, and I will put a new spirit within you. I will **take away the heart of stone** out of your bodies, and I will **give you a heart of flesh**. I will put my Spirit within you, and **cause you to walk in my prescriptions**. You will **obey my justice and do just acts**. You will reside in the land that I gave to your fathers. **You will be my people, and I will be your God**.*  
+  -Ezekiel 36:24-28
+
+* From a biblical pespective, becoming "petrified" is thus equivalent to being enslaved or imprisoned by an oppressor due to idolatrous desire for material possessions.
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="The end result, in jail by Jezebel or drugged up full of lies" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="End result">}}
+
+#### "The end result, in jail by Jezebel or drugged up full of lies" > End result
+
+* Kendrick suggests that dealing with the evils of the entertainment industry can only lead to two possible end results for artists: Either the artist will be locked up "in jail by Jezebel" or "drugged up full of lies".  
+ 
+* With either of these results, the artist will lose the freedom to create truthful works of art.  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Jezebel">}}
+
+#### "The end result, in jail by Jezebel or drugged up full of lies" > Jezebel
+
+* As mentioned in the analysis of the line ["Burn the whole village, we start over, it’s really that time"](#burn-the-whole-village-we-start-over-its-really-that-time--reqesting-fire-from-heaven-in-the-old-testament), Jezebel was a wicked woman who became queen of the Northern Kingdom of Israel after she married a wicked king named Ahab.After becoming queen, Jezebel replaced the worship of Yahweh, the God of Israel, with the worship of the fertility god name Ba’al. Queen Jezebel then either killed or imprisoned most of the true prophets of God, while a hundred of God's prophets escaped to hide in caves.  
+     
+  * The prophet Elijah was the only prophet who was protected and empowered to openly confront Queen Jezebel and King Ahab. Elijah challenged the prophets of the fertility Ba’al to a competition to in which the prophets of Yahweh, the God of Israel, and Ba’al, the fertility god, would each ask the deity whom they worshiped to send down fire from the skies to burn up a sacrifice on an altar.  
+     
+  * After Yahweh, the God of Israel, proved to be the only deity capable of sending down fire from the skies, Elijah compelled the Israelites to round up the prophets of Ba’al and kill them.  
+     
+  * The death of Ba'al's prophets enraged Queen Jezebel. Shen then swore that she would kill Elijah, which caused Elijah to run for his life.  
+
+* Kendrick has repeatedly depicted himself as a prophet on “Mortal Man”, throughout DAMN. and at severl moments on other tracks. Here in "Watch the Party Die" Kendrick the seems see himself as the modern equivalent of the prophet Elijah who is at risk of having his artistic output locked up by the wicked leaders of the entertainment industry.  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Drugged up">}}
+
+#### "The end result, in jail by Jezebel or drugged up full of lies" > Drugged up
+
+* The term "drugged up" is used to describe a person who is noticeably being under the influence of drugs, whether prescription drugs or recreational drugs.  
+ 
+* In many cases, someone who is "drugged up" may not be fully aware of their surroundings and thus is in a vulernable state in which someone could take advantage of them.  
+ 
+* The idea of being drugged up connects back to the earlier reference to the drug MDMA in the line "Let’s kill the followers that follow up on poppin’ mollies".  
+ 
+* In the current line, Kendrick seems to imply that artists who are have succumbed to their desires from pleasure and the exploitation of the entertainment industry will be drugged up with "lies".  
+ 
+* The idea of artists being under the influence of lies also connects back to earlier lines where Kendrick ordered the execution of those who told lies or failed to provide truth to their young audience.
+
+  * *If you parade in gluttony **without givin' truth to the youth**  
+  The graveyard is company, just tell us what casket to choose  
+  ...  
+  I think it’s time to watch the party die  
+  Street niggas and the corporate guys  
+  the **rappers that report the lies***  
+
+* In the current line, Kendrick seems to suggest that the minds of "rappers that report the lies" eventually become altered and distorted as they become intoxicated by the lies that they have consumed and are not regurgitating to the masses.  
+ 
+* Being "drugged up" may also lead a person to lose consciousness.  
+ 
+* Fittingly, since the 1990s the word “conscious” has been used to describe hip hop artists such as Common, Mos Def, Talib Kweli, and Lupe Fiasco who do not gloryify violence, drugs, sexual misbehavior, gluttony, jewelry, poor financial decisions, or any other form of ignorance that might be common in commercialized, mainstream hip hop. Instead, these artists focused on positive messages that would uplift the Black community. "Conscious" hip hop artists are thus the exact opposite of the "rappers that report the lies" and become "drugged up full of lies"  
+ 
+* Throughout *Mr. Morale & the Big Stepper* Kendrick also discussed the concept of "conciousness" as being free from ego, aware, present in "now", and connected to the universal or "collective consciousness" as described in the New Age teachings of Eckhart Tolle.  
+
+  * *The **media**'s the new religion, you **killed the consciousness***
+  -“Worldwide Steppers”  
+     
+  *(You really wanna know?) Do you want peace?  
+  (How I get so low?) Then watch us in the street  
+  (Only one way to go) One protest for you  
+  (Higher) Three-sixty-five for me (You really wanna know?)  
+  Vladimir making nightmares (How I get so low?)  
+  But **that's how we all think** (Only one way to go)  
+  **The collective conscious** (Higher)  
+  Calamities on repeat, huh*  
+  -“Savior”  
+     
+  *Face your fears, always knew that I would make it here  
+  Where the energy is magnified and persevered  
+  **Consciousness is synchronized and crystal-clear  
+  Euphoria is glorified and made His*  
+  -“The Heart Part 5”  
+
+* In some cases the term, "drugged up" or just "drugged" may also be used to describe women (or sometimes men) who have unknowingly consumed a drug that was given to them by a sexual predator who intends to sexually assault or abuse the "drugged" person once they lose awareness or consciousness.  
+
+* The idea of sexual assault could imply that rappers and artists are being "drugged up full of lies" because they are being "fucked over" by the predatory leaders of the entertainment industry. Kendrick previously asserted that artists are getting duped into unfaithful relationships, "fucked over", and killed by the entertainment industry on the track "N95" from *Mr. Morale & the Big Stepper*.  
+
+  * ***The industry wants  
+  Niggas and bitches to sleep in a box**  
+  While **they makin' a mockery followin' us**  
+  This ain't Monopoly  
+  Watchin' for love  
+  **This ain't monogamy  
+  Y'all gettin' fucked***  
+
+* The idea of sexual assault could also connect back to Kendrick allegagions of Drake and his crew being sexual predators who traffic girls to sex parties at Drake's mansion.   
+
+{{< /details >}}
+
+{{< /details >}}
+
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="Critical, I know my physical is tested all the time" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Tested">}}
+
+#### "Critical, I know my physical is tested all the time" > Tested
+
+* In addition to being spiritually tried, Kendrick is know that he must endure being physically tested.  
+
+{{< /details >}}
+
+{{< /details >}}
+
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="I'm pitiful, sunken place soon as I'm question in' my pride" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="The Sunken Place">}}
+
+#### "I'm pitiful, sunken place soon as I'm question in' my pride" > The "Sunken Place"
+
+* Here Kendrick talks about being pitiful and in the “Sunken Place”, which is a reference to the movie **Get Out**.  
+    
+  * In *Get Out* a Black male protagonist named Chris goes to visit his white girlfriend's wealthy family at a secluded estate. Although the family is very friendly—actually too friendly—he begins to notice strange behavior, particularly from the Black woman who serves as housekeeper and the Black man who serves as a groundskeeper.  
+     
+  * One evening, the Black protagonist has a private conversation with his white girlfriend’s mother. The mother starts asking very probing questions about his personal trauma while using the sound of a spoon stirring around a teacup to hypnotize the Black protagonist.  
+     
+  * As he talks about his traumatic life experiences the Black protagonist feels pitiful and soon becomes paralyzed and cannot move even though he is still awake. However, then the mother says “Now sink into the floor. Sink!”  
+     
+  * At that point the Black protagonist’s consciousness becomes totally disconnected or dissociated from his body and sent down to what the mother calls “the sunken place”. In the “sunken place” he faintly see what’s going on around him but is unable to move his body or do anything about it.  
+     
+  * Later on the White mother keeps the Black protagonist in the hypnotized state long enough to strap him to a restraining chair in the basement. The Black protagonist then learns that the family uses the daughter to attract black people and bring them to her family’s estate where they are hypnotized with the consciousness sent to the sunken place. The family then takes over the Black person’s body and transfers the consciousness of older, “degenerate” White person into the Black person’s stolen body stolen body.  
+     
+  * The protagonists learns that Black woman who is serving as the housekeeper and the Black man who is serving as the groundskeeper are Black people whose bodies were previously stolen so that their consciousness could be replaced by the consciousness of the girlfriend’s grandmother and grandfather respectively.  
+     
+  * The Black protagonist refuses to be a victim of this plot. He manages to free himself from the restraining chair before his body is stolen and kill several members of the family before escaping from the estate with the help of his Black friend.  
+
+* Kendrick seems to be referencing the plot of *Get Out* as a metaphor for what the White-owned entertainment industry is doing to Black artists and Black culture.  
+ 
+* The White owned entertainment industry is sending out corporate White folks to attract Black artists to come join the the White entertainment industry.  
+ 
+* Once the Black artist is in the building, the White industry folks hypnotize and paralyze Black artists by getting them to keep talking about their traumatic life experiences until they feel pitiful.  
+   
+  * This is similar to the experiences that Kendrick alluded to on “Mother I Sober” when he rapped:  
+
+    * “Traded in my tears for a Range Rover”  
+
+* The White industry folk then forces the Black artist into a state of unconsciousness (aka the "Sunken Place") where they become disconnected and dissociated from what’s going on around them.  
+ 
+* After forcing the Black artist into a state of unconsciousness, the White corporate industry folk can then steal the Black artist’s body of work (e.g. the master recording of a music artist) and give it to a degenerate White person to own as his or her own body of work while the Black artist is still trapped in the “Sunken Place”.  
+   
+  * It is notable that the word “corporate” comes from the Latin word “corporātiō” which literally means “the assumption or taking on of a body”  
+     
+  * This idea of stealing a Black artist's body (of work) also mirrors the metaphor of petrification where White corporate industry folk kill the Black artist’s consciousness, penetrate into their body of work, and slowly replace the flexible, organic flesh with rock hard, inflexible, inorganic minerals until the body is just a hard relic of a past life.  
+
+* Kendrick, like the protagonists of Get Out is one of the few Black artists who has been able to regain consciousness, free himself from the restraints of his original contract, and now seems poised to kill the White industry folk so that he can escape before they try to send his consciousness back to the "Sunken Place."  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Pride">}}
+
+#### "I'm pitiful, sunken place soon as I'm question in' my pride" > Pride
+
+* It is notable that Kendrick finds himself in the "Sunken Place" whenever he “questions his pride”. The might convey the idea that the entertainment industry wants Kendrick to remain under the influence of his own pride, so that he will make bad decisions and be easier to control.  
+ 
+* Kendrick has discussed his internal struggle between pride and humility throughout much of his work.
+
+  * *The days I tried to cover up and conceal  
+  **My pride, it only made it harder for me to deal**  
+  When living in a world that come with plan B*  
+  -“Real”  
+     
+  *Love's gonna get you killed  
+  But **pride’s gonna be the death of you and you and me**  
+  ...  
+  **Sick venom in men and women overcome with pride**  
+  A perfect world is never perfect, only filled with lies  
+  Promises are broken and more resentment come alive  
+  Race barriers make inferior of you and I  
+  See, in a perfect world, I'll choose faith over riches  
+  I'll choose work over bitches, I'll make schools out of prison  
+  I'll take all the religions and put 'em all in one service  
+  Just to tell 'em we ain't shit, but He's been perfect, world*  
+  -“PRIDE.”  
+     
+  *Bitch, **be humble** (Hold up, bitch)  
+  Sit down (Hold up, lil'— hold up, lil' bitch)  
+  **Be humble** (Hold up, bitch)  
+  Sit down (Hold up, sit down, lil’— sit down, lil’ bitch)  
+  **Be humble** (Hold up, hold up, hold up, hold up, lil' bitch)  
+  Bitch, sit down (Hold up, lil’ bitch)  
+  **Be humble** (Hold up, bitch)*  
+  -“HUMBLE.”  
+     
+  *I'm chargin' baskets and falling backwards, tryna keep balance  
+  Oh, this the part where mental stability meets talent  
+  Oh, this the part, **he breaks my humility just for practice**  
+  Tactics we learned together, sore losers forever, daddy issues*  
+  -“Father Time”  
+     
+  ***Wipe my ego, dodge my pride**  
+  (And I'm tripping and falling)  
+  Look myself in the mirror  
+  Amityville, ain't seen nothin' scarier*  
+  -“Count Me Out”  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="I'm seein' ghosts, blackin' out, relapsin' one thought at a time" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Seeing ghosts">}}
+
+#### "I'm seein' ghosts, blackin' out, relapsin' one thought at a time" > Seeing ghosts
+
+* Kendricks spiritual trials and physical tests seem to push him to the point where he is "seeing ghosts."  
+ 
+* On “Mother I Sober”, the pivotal track from *Mr. Morale & the Big Steppers*, Kendrick mentioned seeing the ghost of his maternal grandmother as he struggled to break a generation curse through therapy.
+
+  * ***My mother's mother followed me for years in her afterlife  
+  Starin' at me on back of some buses**, I wake up at night  
+  Loved her dearly, traded in my tears for a Range Rover*  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Blacking out">}}
+
+#### "I'm seein' ghosts, blackin' out, relapsin' one thought at a time" > Blacking out
+
+* The term “blacking out” typically refers to the experience of going into a state of unconsciousness. The idea of unconscioussness connects back to the idea of artists being "drugged up full of lies" as discussed in a previous line.  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Relapsing">}}
+
+#### "I'm seein' ghosts, blackin' out, relapsin' one thought at a time" > Relapsing
+
+* A "relapse" is a setback in deteriation in someone's health after previous improvement. The term is most often used to describe the experience in which someone who had previously broken free from an addiction to a drug or stimulating activity returns to their addiction.  
+ 
+* Within the context of "Watch the Party Die" a "relapsin' one thought at a time" might imply that the spiritual and physical struggles with the entertainment industry are causing Kendrick to fall back into destructive ways of thought after previously being "drugged up full of lies."  
+ 
+* It is notable that throughout *Mr. Morale & the Big Steppers*, Kendrick reveals his struggle with sex addition that was exacerbated by being a famous touring artist in the entertainment industry.  
+
+  * ***I met her on the third night of Chicago  
+  North America tour**, my eyes closed  
+  Fee-fi-fo-fum, **she was a model**  
+  Dedicated to the songs I wrote and the Bible  
+  **Eyes light green**, penetratin' the moonlight  
+  Hair done in a bun, energy in the room like  
+  Big Bang for theory, God, hopin' you hear me  
+  Phone off the ringer, tell the world I'm busy  
+  Fair enough, green eyes said her mother didn't care enough  
+  Sympathize when her daddy in the chain gang  
+  Her first brother got killed, he was 21  
+  I was nine when they put Lamont in the grave  
+  Heartbroken when Estelle didn't say goodbye  
+  Chad left his body after we FaceTimed  
+  **Green eyes said you'd be okay, first tour, sex the pain away  
+  I grieve different***  
+  -"United in Grief"  
+     
+  *Ask Whitney about my lust addiction  
+  Text messagin' bitches got my thumbs hurt  
+  ...  
+  Sciatica nerve pinch, I don't know how to feel  
+  **I don't know how to feel  
+  Like the first time I fucked a white bitch  
+  The first time I fucked a white bitch  
+  I was sixteen at the Palisades**  
+  Fumblin' my grades, I traveled with the team  
+  The apache life, Centennial was like  
+  When Ms. Baker screamed at Doughboy  
+  Mixed that with Purple Rain  
+  They interchanged the seams  
+  Happy just to be out the hood  
+  With all the wealthy kids  
+  Credit cards and family plans  
+  She drove her daddy's Benz  
+  I found out that he was a sheriff  
+  That was a win-win  
+  Because he had locked up Uncle Perry  
+  She paid her daddy's sins  
+  **Next time I fucked a white bitch  
+  Was out in Copenhagen  
+  good kid, m.A.A.d city tour**  
+  I flourished on them stages  
+  **Whitney asked did I have a problem  
+  I said, "I might be racist"  
+  Ancestors watchin' me fuck was like retaliation***  
+  -"Worldwide Steppers"  
+     
+  ***I was never high, I was never drunk, never out my mind**  
+  I need control, they handed me some smoke, but still I declined  
+  I did it sober sittin' with myself, I went through all emotions  
+  **No dependents, except for one**, let me bring you closer  
+  **Intoxicated, there's a lustful nature** that I failed to mention  
+  **Insecurities that I project, sleepin' with other women  
+  Whitney's hurt**, the purest soul I know, I found her in the kitchen  
+  Askin' God, "Where did I lose myself? And can it be forgiven?"  
+  Broke me down, **she looked me in my eyes, "Is there an addiction?"**  
+  I said "No," but this time I lied, **I knew that I can't fix it**  
+  Pure soul, even in her pain, know she cared for me  
+  Gave me a number, said **she recommended some therapy**  
+  ...
+  I made it home, seven years of tour, chasin' manhood  
+  But Whitney's gone, by time you hear this song, she did all she could  
+  **All those women gave me superpowers, what I thought I lacked**  
+  I pray our children don't inherit me and feelings I attract*  
+  -"Mother I Sober"  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="One thought at a time">}}
+
+#### "I'm seein' ghosts, blackin' out, relapsin' one thought at a time" > One thought at a time
+
+* Kendrick seems to realize that his susceptibility to addition is fueled by his own pattern of thoughts. This echoes St. Paul’s second letter to the Corinthians in which he told Chrsitians that they are not fighting a physical battle against other humans but a spiritual battle against arrogant thoughts and arguments that lead to prideful exaltation and prevent humans from knowing God in a loving relationship.  
+
+  * *For though we walk in the [flesh / body], **we do not wage battle according to the [flesh / bodily desires]**, for the weapons of our warfare are not of the [flesh / bodily desires], but are divinely powerful for the destruction of fortresses. **We are destroying arguments and all arrogance that exalts itself against the knowledge of God**, and we are **taking every thought captive to make those thoughts obedient to Christ**.*  
+  -2 Corinthians 10:3-5  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="I spare no feelings that ain't mine" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Spare no feeling">}}
+
+#### "I spare no feelings that ain't mine" > Spare no feeling
+
+* The phrase “spare no feelings” describes someone who is acting without any concern of how his or her actions could hurt someone else’s feelings.  
+ 
+* Kendrick’s relapse seems to have put him into a mental state where he only cares about his own feelings and no longer cares about the feelings of others. Such a state of mind is the exact opposite of empathy and thus undermines the earlier line when he said “I want to be empathetic, my heart like Dee-1”  
+ 
+* Kendrick previously expressed his paranoid, troubled and unempathetic state of mind when he was overwhelmed by his feelings on the track “FEEL.” from *DAMN.*.  
+
+  * *I feel like a chip on my shoulders  
+  I feel like I'm losin' my focus  
+  I feel like I'm losin' my patience  
+  I feel like my thoughts in the basement  
+  Feel like, I feel like you're miseducated  
+  Feel like I don't wanna be bothered  
+  **I feel like you may be the problem**  
+  I feel like it ain't no tomorrow, fuck the world  
+  The world is endin', I'm done pretendin'  
+  And **fuck you if you get offended  
+  I feel like friends been overrated  
+  I feel like the family been fakin'  
+  I feel like the feelings are changin'**  
+  Feel like my thought of compromise is jaded  
+  Feel like you wanna scrutinize how I made it  
+  **Feel like I ain't feelin' you all  
+  Feel like removin' myself, no feelings involved  
+  I feel for you, I've been in the field for you  
+  It's real for you, right? Shit, I feel like—  
+  Ain't nobody prayin' for me**  
+  ...  
+  **I feel niggas been out of pocket**  
+  I feel niggas tappin' they pockets  
+  I feel like debatin' on who the greatest can stop it  
+  **I am legend, I feel like all of y'all is peasants  
+  I feel like all of y'all is desperate**  
+  I feel like all it take is a second to feel like  
+  Mike Jordan whenever holdin' a real mic  
+  **I ain't feelin' your presence  
+  Feel like I'ma learn you a lesson**  
+  Feel like only me and the music though  
+  **I feel like your feelin' ain't mutual  
+  I feel like the enemy you should know**  
+  Feel like the feelin' of no hope  
+  The feelin' of bad dope  
+  ...  
+  **I feel like it's just me**  
+  Look, I feel like I can't breathe  
+  Look, I feel like I can't sleep  
+  Look, I feel heartless, often off this  
+  Feelin' of fallin', of fallin' apart with  
+  Darkest hours, lost it  
+  ..  
+  I feel like this gotta be the feelin' where 'Pac was  
+  The feelin' of an apocalypse happenin'  
+  But nothin' is awkward, the feelin' won't prosper  
+  **The feelin' is toxic, I feel like I'm boxin' demons  
+  Monsters, false prophets schemin'  
+  Sponsors, industry promises  
+  Niggas, bitches, honkies, crackers, Compton  
+  Church, religion, token blacks in bondage  
+  Lawsuit visits, subpoena served in concert  
+  Fuck your feelings, I mean this for imposters**  
+  I can feel it, the phoenix sure to watch us  
+  I can feel it, the dream is more than process  
+  I can put a regime that forms a Loch Ness  
+  I can feel it, the scream that haunts all logic  
+  **I feel like sayin' somethin', I feel like takin' somethin'  
+  I feel like skatin' off, I feel like waitin' for 'em  
+  Maybe it's too late for 'em  
+  I feel like the whole world want me to pray for 'em  
+  But who the fuck prayin' for me?***  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="I'm in my feelings when I slide, I mean" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="In my feelings">}}
+
+#### "I'm in my feelings when I slide, I mean" > In my feelings
+
+* To be “in one’s feelings” refers to a mental state in which someone is so emotionally dysregulated, overwhelmed or affected that they can no longer think rationally, strategically, objectively or empathetically.  
+ 
+* It is notable that “In My Feelings” is also the title of Drake's record-breaking number one single from his 2018 album, *Scorpion*. On the track, Drake sings and raps about many of his typical themes including his feelings and sexual desire for numerous women.  
+
+  * Trap, TrapMoneyBenny  
+  **This shit got me in my feelings***  
+  Gotta be real with it, yeah  
+     
+  ***Kiki, do you love me?** Are you riding?  
+  Say you'll never ever leave from beside me  
+  **'Cause I want ya, and I need ya**  
+  And I'm down for you always  
+  **KB, do you love me?** Are you riding?  
+  Say you'll never ever leave from beside me  
+  **'Cause I want ya, and I need ya**  
+  And I'm down for you always*  
+
+* "In My Feelings" also exemplifies how Drake has used social media, influencers and corporate marketing tactics to significantly increase his commercial success. On the same day that the album Scorpion was released, a social media comedian named Shiggy posted a video of him dancing to this chorus. This video soon went viral and was then turned into a the social media #InMyFeelingsChallenge and #KikiChallenge which later added riskier elements like dancing outside of moving cars. These viral trends helped to elevate the track to number one on the Billboard Hot 100 chart giving Drake the record for most number one hits of rapper in the history of the Billboard Hot 100 chart.  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Slide">}}
+
+#### "I'm in my feelings when I slide, I mean" > Slide
+
+* Within the context Kendrick’s lyrics “slide” is usually slang for the act of killing someone. 
+
+  * *I said, tell me who you loyal to  
+  Is it anybody that you would lie for?  
+  **Anybody you would slide for?**  
+  Anybody you would die for?*  
+  -"LOYALTY."  
+     
+  *Eight billion people on Earth, **silent murderers**  
+  ...  
+  I caught a couple of bodies myself, **slid my community**  
+  My last Christmas toy drive in Compton handed out eulogies  
+  Not because the rags in the park had red gradient  
+  But **because the high blood pressure flooded the caterin'***  
+  -"Worldwide Steppers"  
+
+* By saing "I'm in my feelings when I slide", Kendrick seems to be suggesting that whenever he tries to kill (aka slide) people, he is only doing so because he is emotionally dysregulated and unable to think rationally, strategically, objectively or empathetically.  
+ 
+* This line thus gives a whole new perspective and context to "Watch the Party Die". The whole time that he has been advocating to kill the killers and commit acts of unspeakable violence may really just be evidence that Kendrick is emotionally dysregulated and unable to consider the ramifications or consequences of his words and actions. He seems to have been in a totally "unconscious"  state throughout this track.  
+ 
+* By the same logic, one could also conclude that throughout the battle tracks where Kendrick seemingly tried to kill Drake's career, Kendrick was "in his feelings" and unable to be empathetic towards Drake.  
+ 
+* A few months after the release of "Watch the Party Die" when Kendrick released the track "reincarnated" as the centerpiece of the album *GNX* , Kendrick seemed to confirm that his actions during the battle with Drake were largely a result of Kendrick being "in his feelings". On "reincarnated" Kendrick rapped from the perspective of God the Father who told Kendrick that he was a reincarnated version of Lucifer (aka the "devil" / "satan" / "false accusers" / "diabolical one") who "loved war" and and was kicked out of heaven because his feelings of anxiety led him to do evil. In response, Kendrick acknowledged that all he ever really wanted was to feel "love and approval".
+
+  * *"**Son you do well but your heart is closed**  
+  I can tell residue that linger from your past creates itself"  
+  Father I'm not perfect I got urges, but I hold them down  
+  "But your pride has to die, "  
+  Okay father show me how  
+  "Tell me every deed that you done and what you do it for"  
+  I kept one hundred institutions paid, "Okay, tell me more"  
+  I put one hundred hoods on one stage, "Okay, tell me more"  
+  **I'm tryna push peace in LA, "But you love war"**  
+  No, I don't, "Oh, yes, you do, " okay then tell me the truth  
+  "Every individual is only a version of you  
+  **How can they forgive when there's no forgiveness in your heart?**"  
+  I could tell You where I'm going, "I could tell you who you are  
+  You fell out of heaven 'cause **you was anxious**  
+  Didn't like authority, only searched to be heinous  
+  Isaiah fourteen was the only thing that was prevalent  
+  My greatest music director was you  
+  It was colors, it was pinks, it was reds, it was blues  
+  It was harmony and motion  
+  **I sent you down to earth 'cause you was broken  
+  Rehabilitation not psychosis**  
+  But now we here now, centuries you manipulated man with music  
+  Embodied you as superstars to see how you moving  
+  You came a long way from garnishing evil-ish views"  
+  And **all I ever wanted from You was love and approval**  
+  I learned a lot, **no more putting these people in fear**  
+  The more that word is diminished, the more it's not real  
+  The more light that I can capture, the more I can feel  
+  I'm using words for inspiration as an ideal  
+  "So can you promise that you won't take your gifts for granted?"  
+  I promise that I'll use my gifts to bring understanding  
+  "For every man, woman and child, how much can you vow?"  
+  I vow my life just to live one in harmony now  
+  **"You crushed a lot of people keeping their thoughts in captivity"  
+  And I'm ashamed that I ever created that enemy***  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Toosie Slide">}}
+
+#### "I'm in my feelings when I slide, I mean" > Toosie Slide
+
+* In addition to using the word "slide" to refer to killing, on the battle track, "6:16 in LA", Kendrick used the word "slide" in reference to "Toosie Slide", Drake's number one hit and accompanying viral dance trend from 2020.  
+
+  * *Fake bully, I hate bullies, you must be a terrible person  
+  Everyone inside your team is whispering that you deserve it  
+  **Can't Toosie Slide up outta this one**, it's just gon' resurface  
+  Every dog gotta have its day, now live in your purpose*  
+
+* It is notable that Drake used influencers and viral social media trends to significantly increase the commercial success of "Toosie Slide" in a more enhanced version of his strategy for "In My Feelings" four years earlier.  
+ 
+* “Toosie Slide” was released as a single in April, 2020, during the height of the COVID-19 lockdowns and named after a then 23 year old named Toosie.  
+ 
+* Toosie is a Black social media dancer and influencer from Atlanta who had a big break into the music industry when he linked up with fellow Atlanta-native and rapper Future eventually joining Future on the Summer Sixteen Tour with Future, a tour which also features Drake.  
+ 
+* When Drake needed another social media dance trend to popularize a new song, he direct messaged Toosie on social media and asked Toosie to make up a dance based on the hook of an unfinished song. That request turned into a modern “Cha Cha Slide”-style dance and viral social media video which featured the song’s hook.  
+   
+  * The fact that Drake used his connection with Atlanta native rapper, Future, and Future’s Atlanta native dancer, Toosie, also highlights the criticism that Kendrick made on “Not Like Us”. Throughout the third verse of "Not Like Us" Kendrick accused Drake of colonizing Black culture particularly by using Atlanta-based artists to make commercialized hits that could make Drake rich.  
+
+    * *Once upon a time, all of us was in chains  
+    Homie still doubled down callin' us some slaves  
+    **Atlanta was the Mecca**, buildin' railroads and trains  
+    Bear with me for a second, let me put y'all on game  
+    **The settlers was usin' townfolk to make 'em richer  
+    Fast-forward, 2024, you got the same agenda  
+    You run to Atlanta when you need a check balance**  
+    Let me break it down for you, this the real nigga challenge  
+    **You called Future when you didn't see the club** (Ayy, what?)  
+    **Lil Baby helped you get your lingo up** (What?)  
+    **21 gave you false street cred**  
+    **Thug made you feel like you a slime in your head** (Ayy, what?)  
+    **Quavo said you can be from Northside** (What?)  
+    **2 Chainz say you good, but he lied  
+    You run to Atlanta when you need a few dollars  
+    No, you not a colleague, you a fuckin' colonizer***  
+
+* After Toosie’s video had already gone viral Drake released the official music video for the full song which was now titled “Toosie Slide”. The video showed Drake wearing an all black shirt, pants, shoes, jacket, gloves and a black ski mask and doing Toosi’s dance while going through a tour of his mansion during the COVID lockdown.  
+ 
+* On the surface, “Toosie Slide” seems like just a dance song with melodies.  
+
+  * ***Baby, don't you wanna dance with me?** No?  
+  I could dance like Michael Jackson  
+  I could give you satisfaction  
+  And you know we out here every day with it  
+  I'ma show you how to get it  
+  ...  
+  It go **right foot up, left foot, slide**  
+  **Left foot up, right foot, slide**  
+  Basically, I'm sayin', **either way, we 'bout to slide**, ayy  
+  **Can't let this one slide**, ayy (Who's bad?)*  
+
+* However, if one pays close attention to the lyrics one can hear that Drake is actually trying to “act tough” and portay himself as a "street nigga" as he uses the word “slide” to simultaneously refer to the dance and to the act of vengefully killing his enemies.  
+
+  * **Got so many opps**, I be mistakin' opps for other opps  
+  Got so many people that I love out of troubled spots  
+  Other than the family I got, it's either you or me  
+  **That's just how I think, it's either you or me**  
+  This life got too deep for you, baby  
+  **Two or three of us about to creep where they stayin’**  
+  ...  
+  Black leather glove, no sequins  
+  Buckles on the jacket, it's Alyx shit  
+  **Nike crossbody, got a piece in it  
+  Got a dance, but it's really on some street shit**  
+  I'ma show you how to get it*  
+
+* It is notable that on the battle track "euphoria" Kendrick says that he would like Drake to keep making songs with catchy melodies that make everyone dance instead of trying to "act tough". Kendrick even implied that if Drake focused on making dance songs, Kendrick would have no reason to threaten Drake with diss songs.    
+
+  * **I like Drake with the melodies, I don't like Drake when he act tough**  
+  ...  
+  Still love when you see success, everything with me is blessed  
+  **Keep makin' me dance, wavin' my hand, and it won't be no threat**  
+
+* At the end of the battle track "Not Like Us", Kendrick also seems to mock Drake’s attempt to make viral dance hits like “Toosie Slide” by chanting the following dance instructions:
+
+  * *Let me hear you say, "OV-ho" (OV-ho)  
+  Say, "OV-ho" (OV-ho)  
+  **Then step this way, step that way  
+  Then step this way, step that way***  
+
+* Also on the video for “Not Like Us”, there is scene where Kendrick is standing on a dark street. Just behinda Kendrick, a menacing man approaches wearing an all black shirt, pants, shoes, jacket, gloves and a black ski mask just like Drake did in the “Toosie Slide” video. However, before the man has a chance to put a hand on Kendrick the man is suddenly thrown backwards almost as if there was some kind of supernatural force protecting Kendrick.  
+ 
+* All of these references to "Toosie Slide" along with the slang meaning of "slide" seem to suggest that Drake's actions over a number of years are the exact things that Kendrick has judged to be punishable by execution throughout "Watch the Party Die".  
+
+{{< /details >}}
+
+{{< /details >}}
+
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="A nigga wonder what Lecrae would do" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Lecrae">}}
+
+#### "A nigga wonder what Lecrae would do" > Lecrae
+
+* Kendrick transitions away from discussion on his spiritual, physical and emotional trials withing the entertainment industry and once again wonders out loud what Lecrae would do as a Black man and a hip hop artist who has faced many similar trials and challenges.  
+ 
+* It is notable that instead of saying “***I*** wonder what Lecrae would do", he now says “***a nigga*** wonder what Lecrae would do", almost as if it is a question that any Black person should be wondering.  
+ 
+* For context, Lecrae has had to deal with his fair share of public controversy and conflict with White Christians who began to take offense at Lecrae when after Lecdrated started speaking about racial justice issues that were affecting the Black community.  
+ 
+* Because White (Evangelical) Christians represent the largest consumer demographic for Christian hip hop, speaking out about racial justice put Lecrae at odds with the White -wned entertainment industry who wanted to co-opt his music and act like they owned him. Lecraes details these dynamics on several tracks on Lecrae’s 2017 album *All Things Work Together for Good*.  
+
+  * *Learned a lot over these last few years  
+  **Industry people ain't friends, just peers**  
+  ...  
+  Still killin' over colors, now it's black and blue  
+  **We dyin' every day, B, we just don't make the news  
+  When you speak out for your race, just watch  
+  They gon' twist and say you hate these cops**  
+  I'ma take these shots  
+  **How can he love Jesus, Kanye, and K-Dot?  
+  Martin, Malcolm**, and Schaeffer, Mitsubishi, and Maybach?  
+  **Contradictory, nah, it's complimentary**  
+  Understanding me ain't for the simple and elementary, oh*  
+  -“Always Knew”  
+
+  ***People wonder, "Is he woke or just a new slave?"**  
+  Old religion, he just covered it with new chains  
+  **Choppin' out the church, he ain't real, he fake  
+  He divisive, he don't rep the King, he just want the fame**  
+  Aw man, now **they actin' like I'm suddenly political  
+  Told me shut my mouth and get my checks from Evangelicals**  
+  Boy, my momma raised me, on Angela and Eldridge  
+  **Chuck Berry made it, but the credit went to Elvis  
+  Know you never knew that, know you think I'm too black  
+  I just think I'm too real, I grew up on 2Pac**  
+  You grew up thinkin' that the Panthers was some terrorists  
+  I grew up hearin' how they fed my momma eggs and grits  
+  **"'Crae, they say you should follow in the steps of King"  
+  I say, "You've forgotten how they shot him in the streets"**  
+  I ain't really changed, it's the same old rebel  
+  Still a radical, I'm passionate, it's just another level (leggo!)  
+  **AT told me I should fight back  
+  They don't like that (they don't)  
+  Just know if you rock the boat you better have a life raft** (what?)  
+  ...  
+  **Now these people swear they own me, sendin' out threats  
+  Told me keep my mouth shut**, told me be a Stepin Fetchit  
+  **I will not oblige to your colonized way of faith**  
+  My Messiah died for the world, not just USA  
+  **They say, "Jesus was Conservative"  
+  Tell 'em, "That's a lie"  
+  No, He not a Liberal either if you think I'll choose a side  
+  They say, "'Crae, you so divisive, shouldn't be a black church"  
+  I say, "Do the math, segregation started that first!"  
+  Hey, you want unity? Then read a eulogy  
+  Kill the power that exists up under you and over me**  
+  ...  
+  **I was waitin' for the right time to tell y'all how I feel**  
+  And, yeah, I know that it hurts, but look, it's gon' heal  
+  **I waited 'til I was on prime time before I let y'all know  
+  And you prolly won't wanna hear my music no mo'  
+  But it's all good**, man, I love y'all  
+  **Hope you know that I'm black black**  
+  Trade in my Smart Car for a Cadillac, can you handle that?  
+  And **I love God  
+  I love Jesus, the one out of Nazareth  
+  Not the European with the ultra perm and them soft eyes and them thin lips  
+  And I'm still hood**  
+  Been in the 'burbs for quite some time  
+  But I still might hit the gas station for the Lemonheads and the pork rinds*  
+  -“Facts”  
+
+  *Twenty-four years old, **my momma** brought me to the globe  
+  Tried to tell me it was cold and taught me how to keep the coat  
+  Now, now, now she **told me to go to school and get my education  
+  But remember there's a bias to them books that they be makin'**  
+  Gave me, Soul on Ice and **taught me  
+  'Bout the Middle Passage, told me  
+  God ain't white**  
+  ...  
+  Huh, once upon a time, **God opened up my mind  
+  And He showed me I don't have to be a product people buy**  
+  With this God-given wisdom, I can climb out the holes  
+  **Stay up out the system 'cause the system never let you go  
+  Speak the Truth without no fear  
+  It's gon' ruin in my career  
+  I've been a mascot for too long**  
+  I ain't come here for no cheers  
+  First of all, let me be clear one time  
+  Let me be real one time  
+  **If you want a religious puppet you gon' have to hang this guy**  
+  ...
+  **Crooked cops done pulled me over, treated me like I ain't made  
+  In the image of God** and that's so odd**  
+  -“Come and Get Me”
+
+  * *Last year I was feeling hopeless  
+  I just wanted it to end  
+  People stealing money from me, man  
+  I swear I thought that we was friends  
+  And I was so depressed, I was such a mess  
+  I couldn't shake it off  
+  Another murder on the television  
+  Man, somebody go turn it off  
+  **I spoke my mind, I got attacked for it  
+  Thought these people had my back boy  
+  Then they tellin' me I asked for it  
+  I guess I'm just another black boy  
+  And then they killed Tamir Rice  
+  And they just go on with they life  
+  They tellin' me shut up talking 'bout it  
+  Like, I should just talk about Christ**  
+  But the truth is I started to doubt God  
+  **I started to question my purpose  
+  I started to act out  
+  I ain't wanna sign another autograph or give a fake smile**  
+  Doctors told me that my man died  
+  I almost had a breakdown  
+  ...  
+  And recently I found a peace to be  
+  Everything that I was meant to be  
+  This my identity, this what He give to me  
+  This what I'm made to be  
+  My daddy still on that crack  
+  And he might never come back  
+  But I still love the man, I don't judge the man  
+  I could be on that track  
+  **I'm glad that Jesus ain't American  
+  And that's the reason why I care again**  
+  People started praying for me  
+  And homies tellin' me I was being arrogant  
+  I quit poppin' them pills  
+  And **even though we get killed  
+  I know that God got a greater plan  
+  For the death and blood that we spill***  
+  -“Can’t Stop Me Now (Destination)”  
+
+* Given all of the hostility and backlash that Lecrae has faced from White audiences and the White-owned entertainment industry, it makes sense that “a nigga" would want to know what Lecrae would do if he was in the same position as Kendrick.  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="Terrace Martin said I'm mentally with layers, true" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Terrance Martin">}}
+
+#### "Terrace Martin said I'm mentally with layers, true" > Terrance Martin
+
+* Terrace Martin is a hip hop producer who has worked with Kendrick to produce numerous tracks including "Ab-Soul's Outro", "m.A.A.d city", "Real", "For Free? (Interlude)", "King Kunta", "These Walls", "For Sale?”, "Complexion (A Zulu Love)", "Complexion (A Zulu Love)", “untitled 05|09.21.2014”, and "Loyalty".  
+
+* Given how much he has witnessed Kendrick creative process up close over multiple years and projects, Terrance Martin would know more than most people that Kendrick’s mind is always thinking on multiple layers while trying to give truth to the youth.  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="I flood the market with my best regards, I paid your dues" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Flood the market">}}
+
+#### "I flood the market with my best regards, I paid your dues" > Flood the market
+
+* “Flooding the market” refers to the act of releasing a large quantity of a particular product into the a particular market in a short period of time.  
+ 
+* For Kendrick, flooding the market could refer to the release of the current track and a subsequent album which would flood the music market with sales and streams. The idea of "streaming" music also connects to the theme of water introduced by the word "flood".  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="I paid your dues">}}
+
+#### "I flood the market with my best regards, I paid your dues" > I paid your dues
+
+* The idea of a market where people pay for goods and services also connects to the idea of “paying dues”. "Paying dues" a phrase that refers working hard with a great deal of patience, endurance and commitment to the little things in order to earn respect and an opportunity to take on a much larger or more visible role.  
+ 
+* While rapping from Nispey’s perspective on “The Heart Part 5”, Kendrick uses the phrase “paid dues” to describe the hard work that Nipsey Hussle put into the rap game  by releasing 13 mixtapes in 12 years from 2005 to 2017 before releasing his only studio album in 2018.  
+
+  * *Reflectin' on my life and what I done  
+  **Paid dues**, made rules, change outta love  
+  Them same views made schools change curriculums*  
+
+* By saying “I paid your dues”, Kendrick would seem to be talking to someone who did not work hard to earn respect. This could be a reference to Drake, whom Kendrick has repeatedly criticized for using ghostwriters to write his rap lyrics instead of putting in the work to write his own lyrics.  
+
+* Similarly , on “euphoria” and “meet the grahams”, Kendrick criticized Drake for receiving Ozempic weight loss injection, having abdominal surgery to improve his appearance without needing to pay his dues by working out.  
+
+  * *Yeah, my first one like my last one, it's a classic, you don't have one  
+  Let your core audience **stomach that, then tell 'em where you get your abs from***  
+  -“euphoria”  
+     
+  *Even if it don't benefit your goals, **do some push-ups, get some discipline  
+  Don't cut them corners like your daddy did, fuck what Ozempic did  
+  Don't pay to play with them Brazilians, get a gym membership***  
+  -“meet the grahams”
+
+* By saying “paid your dues”, Kendrick could also be saying that Drake never did the hard, therapeutic work of self-examination to understand how he needs to grow and mature. This lack of self-examination left Kendrick to do the examination work for Drake, which resulted in the astute criticisms that Kendrick made throughout all the battle tracks.  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="And so it's up, if you ain't one of ours, it's bad news" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="It's up">}}
+
+#### "And so it's up, if you ain't one of ours, it's bad news" > Ain't one of ours
+
+* By saying “it’s up”, Kendrick could be indicating that the “time is up”, which would connect back to the first line of each verse which said “It’s time to watch the party die”.  
+ 
+* Kendrick asserts that the death of "the party" will be bad news to those who "ain't one of ours".  
+ 
+* Using the phrase "ain't one of ours" to refer to people outside of the community or outside of the circle of trust mirrors the core mesage of the battle track "Not Like Us" where Kendrick mentions Drake and the members of Drake's crew by name prior to the chorus where Kenrick repeatedly said "They not like us."  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="My nigga Jay Estrada said I gotta burn it down to build it up" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Jay Estrada fitness">}}
+
+#### "My nigga Jay Estrada said I gotta burn it down to build it up" > Jay Estrada fitness
+
+* Kendrick’s hometown friend, Jay (or Jason) Estrada is Compton-native athletic fitness trainer who worked as a strength trainer for the 2016 U.S.A. Olympic basketball teams. Additionally, Jay Estrada has also trained other NBA players including Compton-native DeMar Derozan, who made a guest appearance in the “Not Like Us” video after Kendrick name dropped him in the second verse of “Not Like Us”.  
+ 
+* By working out with Jay Estrada, Kendrick is again showing himself to be someone who pays his own dues in contrast to Drake who allegedly paid for for the shortcut of Ozempic and abdominal surgery based on Kendrick's words to Drake's son on "meet the grahams".  
+
+  * *Even if it don't benefit your goals, **do some push-ups, get some discipline  
+  Don't cut them corners like your daddy did, fuck what Ozempic did**  
+  Don't pay to play with them Brazilians, **get a gym membership***  
+
+*  It is notable, that Kendrick’s advice to Drake’s son to “do some push-ups” is a direct response to “Push Ups”, Drake’s initial diss track where Drake mocked Kendrick for a viral social media video which shoed Kendrick doing push-ups in a park.
+ 
+* Drake used the image of Kendrick doing push-ups as a metaphor for Kendrick getting coerced into a disadvantageous financial situation by Top Dawg, the Black owner of Kendrick’s former label Top Dawg Entertainment (TDE). Drake asserted that every time Top Dawg told Kendrick to “drop” (i.e. drop to the ground as a metaphor for dropping an album), Kendrick had to give Top Dawg “fifty” (i.e. fifty push ups as a metaphor for 50% of the royalties from Kedrick’s music releases).  
+
+  * ***Extortion baby, whole career, you been shook up  
+  'Cause Top told you, "Drop and give me fifty," like some push-ups**, huh  
+  ...  
+  **Pull your contract 'cause we gotta see the split  
+  The way you doin' splits, bitch, your pants might rip**  
+  You better do that motherfuckin' show inside the bity  
+  Maroon 5 need a verse, you better make it witty  
+  Then we need a verse for the Swifties  
+  **Top say drop, you better drop and give 'em fifty**  
+  ...  
+  Ayy, **better drop and give me fifty, ayy  
+  Drop and give me fifty, drop and give me fifty**, ayy*  
+
+* From Kendrick’s perspective, by choosing to mock Kendrick for doing push up exercise and working hard for Top Dawg, Drake is exposing himself as someone who would rather cheat and sell himself to the White owned entertainment industry instead of working hard to pay his dues.
+ 
+* In Katt William's viral Club Shay Shay interview that Kendrick alluded to on “meet the grahams”, Katt Wiliams made the exact same point against comics and entertainers who sold out to the White owned entertainment industry used ghostwriters and did not pay their dues or otherwise gave up on working hard. Katt Williams compared these people to athletes or body builders who use performance enhancing drugs to avoid putting in the hard work of exercising but still want people to impressed with their bodies.  
+
+  * *I'm a standup comedian. This is my nineteenth one-hundred city tour. **I'm not going to have a conversation with these lazy bums that'll take a shortcut at any point. Yes, it's easier for you to juice than to get in the gym, but you don't get to bring that body in here talking crazy talk about how good you look.***  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Burn it down to build it up">}}
+
+#### "My nigga Jay Estrada said I gotta burn it down to build it up" > Burn it down to build it up 
+
+* “You gotta burn it down to build it up” would seem to be a statement that Jay Estrada would make in the context of strength and fitness training.  
+ 
+* In order to build stronger muscles, an athlete first has to break down the existing muscle by lifting, pressing or pulling weights or some other kind of resistance. These kinds of exercises create tiny microtears in muscle fibers that are accompanied by a burning sensation in the muscles. This burning sensation is what is being referred to by the exercise term “feel the burn”.  
+ 
+* The idea of “burn it down to build it up” could be applied to much of the violent language that Kendrick has used when acting like a totalitarian dictator who is trying to purge society and “burn the whole village” so “we can start over” with the hope of building a “new earth”.  
+ 
+* At the same time, if we see Kendrick’s fierce criticism and exposure of Drake as a way to “burn it down to build it up”, the natural conclusion is that Kendrick actually wants Drake to be built up into a better person.  
+ 
+* This act of “tough love” is consistent with Kendrick’s words on “meet the grahams” where he explained his motives for engaging in a rap battle with Drake.  
+
+  * ***Dear Aubrey  
+  I know you probably thinkin' I wanted to crash your party**  
+  But truthfully, I don't have a hatin' bone in my body  
+  ...  
+  Thirty-seven, but you showin' up as a seven-year-old  
+  **You got gamblin' problems, drinkin' problems, pill-poppin' and spendin' problems  
+  Bad with money, whorehouse  
+  Solicitin' women problems, therapy's a lovely start  
+  But I suggest some ayahuasca, strip the ego from the bottom**  
+  **I try to empathize with you 'cause I know that you ain't been through nothin'**  
+  Crave entitlement, but wanna be liked so bad that it's puzzlin'  
+  No dominance, let's recap moments when you didn't fit in  
+  No secret handshakes with your friend  
+  No culture cachet to binge, just disrespectin' your mother  
+  Identity's on the fence, don't know which family will love ya  
+  The skin that you livin' in is compromised in personas  
+  Can't channel your masculine even when standin' next to a woman  
+  You a body shamer, you gon' hide them baby mamas, ain't ya?  
+  You embarrassed of 'em, that's not right, that ain't how mama raised us  
+  Take that mask off, I wanna see what's under them achievements  
+  Why believe you? You never gave us nothin' to believe in  
+  'Cause you lied about religious views, you lied about your surgery  
+  You lied about your accent and your past tense, all is perjury  
+  You lied about your ghostwriters, you lied about your crew members  
+  They all pussy, you lied on 'em, I know they all got you in 'em  
+  You lied about your son, you lied about your daughter, huh  
+  You lied about them other kids that's out there hopin' that you come  
+  You lied about the only artist that can offer you some help  
+  **Fuck a rap battle, this a long life battle with yourself***  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="Lockin' in to what I trust, lookin' outside" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Trust">}}
+
+#### "Lockin' in to what I trust, lookin' outside" > Trust
+
+* The phrase “locked in” is most often used to describe someone who is focused on their goal, which connects to the themes of paying dues and working out in the previous lines. Here Kendrick says he is focused on (i.e. locked in to) “what he trusts”.  
+ 
+* It is notable that Kendrick’s rap battle with Drake started when Kendrick was featured on the song “Like That” on Future and Metro Boomin’s album titled, *We Don’t Trust You*. That album title seems to have been a statement about Drake, who the two Atlanta-native artists had previously worked with but no longer trusted.  
+ 
+* Throughout the battle, Kendrick repeatedly accused Drake of being an actor, manipulator and liar who cannot be trusted.
+
+  * ***The famous actor** we once knew is lookin' paranoid and now spiralin'  
+  You're movin' just like a degenerate, every antic is feelin' distasteful  
+  I calculate **you're not as calculated**, I can even predict your angle  
+  **Fabricating stories on the family front** 'cause you heard Mr. Morale  
+  **A pathetic master manipulator, I can smell the tales on you now  
+  You're not a rap artist, you a scam artist** with the hopes of being accepted  
+  **Tommy Hilfiger stood out, but FUBU never had been your collection**  
+  I make music that electrify 'em, you make music that pacify 'em  
+  I can double down on that line, but spare you this time, that's random acts of kindness  
+  **Know you a master manipulator and habitual liar too  
+  But don't tell no lie about me and I won't tell truths 'bout you***  
+  -"euphoria"  
+     
+  ***I think somebody lyin'  
+  Smell somebody lyin'**  
+  I don't see no fire  
+  ...  
+  Yeah, **somebody's lyin'**, I could see the vibes on Ak'*  
+  -"6:16 in LA"  
+     
+  ***Take that mask off, I wanna see what's under them achievements  
+  Why believe you? You never gave us nothin' to believe in  
+  'Cause you lied about religious views, you lied about your surgery  
+  You lied about your accent and your past tense, all is perjury  
+  You lied about your ghostwriters, you lied about your crew members  
+  They all pussy, you lied on 'em, I know they all got you in 'em  
+  You lied about your son, you lied about your daughter, huh  
+  You lied about them other kids that's out there hopin' that you come  
+  You lied about the only artist that can offer you some help***  
+  -"meet the grahams"  
+     
+  ***Devil is a lie, he a 69 God**, ayy  
+  ...  
+  The settlers was usin' townfolk to make 'em richer  
+  Fast-forward, 2024, you got the same agenda  
+  You run to Atlanta when you need a check balance  
+  Let me break it down for you, this the real nigga challenge  
+  You called Future when you didn't see the club (Ayy, what?)  
+  Lil Baby helped you get your lingo up (What?)  
+  **21 gave you false street cred**  
+  Thug made you feel like you a slime in your head (Ayy, what?)  
+  Quavo said you can be from Northside (What?)  
+  **2 Chainz say you good, but he lied**  
+  You run to Atlanta when you need a few dollars  
+  No, **you not a colleague, you a fuckin' colonizer**  
+  The family matter and **the truth of the matter  
+  It was God's plan to show y'all the liar***  
+  -"Not Like Us"  
+
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Outside">}}
+
+#### "Lockin' in to what I trust, lookin' outside" > Outside
+
+* Since Kendrick does trust Drake he looks “outside” to find what he does trust. Here “outside” seems to refer to the world around Kendrick, or maybe more specifically the city around him—the city of Compton.  
+ 
+* The association with the city of Compton being “outside” seems to be highlighted on “Not Like Us” where in quick succession Kendrick mentions Drake—the liar and false god, who need to be locked inside (a jail cell)—in contrast to the city that is free to be outside.  
+
+  * ***Devil is a lie, he a 69 God**, ayy  
+  **Freaky-ass niggas need to stay they ass inside**, ayy  
+  Roll they ass up like a fresh pack of 'za, ayy  
+  **City is back up, it's a must, we outside**, ayy*  
+
+* The music video of "Not Like Us" further emphisizes the contrast between the city of Compton being free outside with numerous shots of large crowds filling the plaza of the Compton City Hall and Civic Center while Drake's OVO owl is locked up inside a birdcage. Notably, the owl in the birdcage is shown in the second to last shot right before the video cuts back a final shot of the large crowd dancing at the Compton City Hall and Civic Center under a sculture dedicated to Martin Luther King, Jr..  
+
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="The kids live tomorrow 'cause today, the party just died" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Kids">}}
+
+#### "The kids live tomorrow 'cause today, the party just died" > Kids
+
+* Kendrick ends that song by declaring that at some point between the beginning and end of this song, Kendrick has watched the party die, likely as a result of Kendrick's execution orders.  
+ 
+* In contrast to the party—which will not go on tomorrow—,Kendrick highlights the kids who are now able to live tomorrow.  
+ 
+* The mention of kids is likely a reference to Kendrick’s allegation that Drake and his crew were trafficking underaged girls to for Drake and his crew to have sex with at parities. At the same time, uncompromising artists such as Katt Williams has sought to expose that powerful men engaging in predatory sexual behavior is a widespread, endemic problem throughout the entertainment industry.  
+ 
+* The future for kids has been a central focus for Kendrick since he became a father as can be seen throughout *Mr. Morale and the Big Stepper*’s theme of breaking generational curses - particularly curses that related to sexual abuse.  
+
+  * ***Playin' "Baby Shark" with my daughter  
+  Watchin' for sharks outside at the same time  
+  Life as a protective father, I'd kill for her  
+  My son Enoch is the part two**  
+  When I expire, **my children'll make higher valleys**  
+  In this present moment, I saw that through*  
+  -"Worldwide Steppers"  
+     
+  ***Enoch, your father's just detoxed**, my callin' is right on time  
+  ...  
+  **Uzi, your father's in deep meditation  
+  My spirit's awakened, my brain is asleep***  
+  -“Mr. Morale”  
+     
+  *Family ties, **they accused my cousin, "Did he touch you, Kendrick?"**  
+  Never lied, but **no one believed me when I said "He didn't**"  
+  ...  
+  **"Did he touch you?" I said "No" again, still they didn't believe me**  
+  ...  
+  **I asked my momma why she didn't believe me when I told her "No"  
+  I never knew she was violated in Chicago**, I'm sympathetic  
+  Told me that she feared it happened to me, for my protection  
+  Though it never happened, she wouldn't agree  
+  **Now I'm affected, twenty years later trauma has resurfaced**  
+  Amplified as I write this song, I shiver 'cause I'm nervous  
+  ...  
+  **I pray our children don't inherit me and feelings I attract  
+  A conversation not bein' addressed in Black families  
+  The devastation, hauntin' generations and humanity  
+  They raped our mothers, then they raped our sisters  
+  Then they made us watch, then made us rape each other  
+  Psychotic torture between our lives, we ain't recovered  
+  Still livin' as victims** in the public eyes who pledge allegiance  
+  **Every other brother has been compromised  
+  I know the secrets, every other rapper sexually abused  
+  I see 'em daily buryin' they pain in chains and tattoos**  
+  So listen close before you start to pass judgment on how he move  
+  Learn how he cope, whenever his uncle had to walk him from school  
+  His anger grows deep in misogyny  
+  **This is post-traumatic Black families and a sodomy, today is still active**  
+  So I set free myself from all the guilt that I thought I made  
+  So I set free my mother all the hurt that she titled shame  
+  So I set free my cousin, chaotic for my mother's pain  
+  I hope Hykeem made you proud 'cause you ain't die in vain  
+  So I set free the power of Whitney, may she heal us all  
+  So I set free our children, may good karma keep them with God  
+  So I set free the hearts filled with hatred, keep our bodies sacred  
+  As I set free all you abusers, this is transformation  
+  ...
+  [Whitney Alford]  
+  **You did it, I'm proud of you  
+  You broke a generational curse  
+  Say "Thank you, dad"  
+  Thank you, daddy, thank you, mommy, thank you, brother***  
+  -“Mother I Sober”  
+
+
+{{< /details >}}
+
+{{< /details >}}
 
 ## "Die for the Party" by Lecrae
 
-### Verse
+### [Verse]
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="I was wrestlin' like, should I write a verse?" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Should I write a verse?">}}
+
+#### "I was wrestlin' like, should I write a verse?" > Should I write a verse?
+
+* Lecrae's track “Die for the Party” features the exact same beat as Kendrick Lamar's “Watch the Party Die”. As Lecrae mentions here, “Die for the Party” is meant to serve as an additional verse for “Watch the Party Die”.  
+ 
+* Lecrae decided to release this verse on his own rather than Kendrick inviting him to do so as part of a remix or extended version. That being said, on two separate lines within the second verse of “Watch the Party Die”, Kendrick did say that he wondered “what Lecrae would do”.
+
+  * Sometimes I wonder what Lecrae would do  
+  Fuck these niggas up or show 'em just what prayer do?  
+  ...  
+  A nigga wonder what Lecrae would do  
+
+* Lecrae thus seems to have reasonably concluded that those two lines from “Watch the Party Die” were an open invitation for him to write and release his verse on "Die for the Party".  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="The culture got enough clout-chasin' vultures out here tryna prove they worth" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Culture vultures">}}
+
+#### "The culture got enough clout-chasin' vultures out here tryna prove they worth" > Culture vultures
+
+* Lecrae here makes a reference to the Jay-Z’s classic and often quoted lines from the 2001 track “Izzo (H.O.V.A.)” where Kendricks challenges the status quo of the music industry.    
+
+  * ***I do this for my culture, to let 'em know  
+  What a nigga look like when a nigga in a roadster  
+  Show 'em how to move in a room full of vultures  
+  Industry shady**, it need to be taken over  
+  **Label owners hate me**, I'm raisin' the status quo up  
+  I'm overcharging niggas for what they did to the Cold Crush  
+  Pay us like you owe us for &&all the years that you hoed us**  
+  We can talk, but money talks, so talk more bucks*  
+
+* Recall that on the second verse of “Watch the Party Die” Kendrick also makes a subtle reference to these exact lines from "Izzo (H.O.V.A.)".  
+
+  * *Say hello to your future fate, **the culture bred with carnivores  
+  You let 'em snack, they eat your face**, the signatures is bein' forged*  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Clout chasing">}}
+
+#### "The culture got enough clout-chasin' vultures out here tryna prove they worth" > Clout chasing
+
+* In slang, the phrase “clout-chasing” is used to describe a person who seeks attention, fame, or influence, often by engaging in behavior that attracts public interest or aligns that themself with popular trends or influential figures.  
+
+* In many cases, rappers are accused of “clout-chasing” when they directly name more famous hip hop artists in order to associate themselves with more famous artist without actually being invited to collaborate with the such famous artist.  
+
+* "Clout chasers" can be seen as a form of “culture vulture” since "clout chasers" are metaphorically scavenging off of someone else who has been “killing it” rather than using their own skills, discipline or hard work to eat what they kill. Thus, "clout chasing" is also a way for someone to avoid "paying dues" or working hard, as Kendrick mentioned in the first verse.  
+
+* It is notable that on the battle track "THE HEART PART 6", Drake accused Kendrick of "clout chasing" as Drake denied Kendrick's allegations that Drake was involved in pedophilia and sex trafficing.  
+
+  * *Album droppin' soon, no wonder **you turn to a clout chaser 'stead of doin' hard labor***  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Prove their worth">}}
+
+#### "The culture got enough clout-chasin' vultures out here tryna prove they worth" > Prove their worth
+
+* Lecrae suggests that “culture vulture” rappers turn to "clout-chasing" in order to “prove their worth”. This psychological need to prove one’s own worth through success as a rapper is a vice with which Lecrae has personally struggled even as he is learning to find his identity in who God made him to be.  
+ 
+* During Lecrae’s own [The Deep End](https://youtu.be/y2ZC1FEk87Q?si=-DgVA8e6vesTqSTw&t=1195) podcast episode where he discussed the battle between Kendrick and Drake, Lecrae concluded that the main problem with the battle was that both rappers were trying to tear down their rival in order to obtain a false sense of value and worth.  
+
+  * **It becomes a problem when your identity is on the line a war trying to tear down someone's identity** it's not me trying to best you to show you you're fake and I'm real it's not me trying to best you to show you that I'm superior to you and that is the ultimate problem with finding our worth in what we do. **What we tend to do is find the quality of our work as the quality of our worth and I think that's a lot of what we're seeing between these guys which I think is so unhealthy because at the end of the day you're in order to be great you've got to have someone less than you—that you got to have someone to step on in order for you to have value and worth**. If we're talking about the quality of our work—if your identity is shaped by what you do and being the best at it, then you got to step on someone else to prove that you are worthy of whatever it is you say you are.  
+     
+  So, at the end of the day, **I think the real battle is between whenever you make anything like your ability or your body or your looks a part of your identity, they’ll ultimately begin to crush you. Those things are going to crush you because they've got to always measure up. When they don't measure up, now your identity and your value are worthless.**  
+     
+  So I wouldn’t be surprised if internally Drake is feeling a sense of worthlessness … I wouldn’t be surprised if he has to go look at the things he's done to remind himself of his worth.  
+     
+  I remember when I was in high school, and **in high school, my value was being the dope rapper**. … And here comes Steve from Brooklyn. He's kicking metaphors and similes and bars and references. I was just destroyed. And because of that, **my value was now in question. My identity, my worth, was in question**.  
+     
+  So what did I do? I had two choices: I could either run away from him so that I could maintain some semblance of value, or I could associate with him so I could regain some sense of value.  
+
+  Now, the good news is, I became a better rapper. The bad news is that **all it did was reignite a false sense of self-worth and identity**, to where, fast forward, I’m writing a song about identity because **I’m still wrestling with that reality**.   
+     
+  And **God already told me I mattered. He told me in scripture. I mean, the creator of creation Himself knows me by name, and I’m still fighting. I’m still fighting for a false sense of identity.**  
+
+{{< /details >}}
+
+{{< /details >}}
+
+{{< lyrics >}}They need attention{{< /lyrics >}}
+
+{{< lyrics >}}They can't imagine me not tryna make myself look bigger{{< /lyrics >}}
+
+{{< details is_markdown="false" nest_level="0" is_lyric="true" title="off of this Kendrick mention" >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="subsection">}}
+
+#### "line" > subsection
+
+{{< /details >}}
+
+{{< /details >}}
 
 #### Foo
 
@@ -3247,6 +4502,7 @@ Space
 
  -->
 
+<!-- {{< lyrics >}}foo{{< /lyrics >}} -->
 
 
 <!-- {{< lyrics >}}
