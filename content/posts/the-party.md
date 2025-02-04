@@ -4,24 +4,47 @@ draft = true
 title = '"Watch the Party Die" or "Die for the Party"'
 +++
 
-On September 11, 2015, Kendrick Lamar released and Instagram post that featured a photo of a pair of Air Force One shoes and an untitled song. This song began with the words "I think it's time to watch the party die" which would lead to it being referred to by the name "Watch the Party Die." 
+On September 11, 2015, Kendrick Lamar released and Instagram post that featured a photo of a pair of Air Force One shoes and an untitled song. This song began with the words "I think it's time to watch the party die" which would lead to it being referred to by the name "Watch the Party Die."  
 
-The release of "Watch the Party Die" came four months after Kendrick released "Not Like Us", the diss track that would eventually win five Grammy Awards including Record of the Year and Song of the Year and lead to Kendrick being almost unanimously declared the winner of the the rap battle with Drake. The release also came two months before the release of Kendrick's album *GNX*, where Kendrick's animosity against Drake seems to expand to anyone who does not give him the respect that he believes he deserves.  
+The release of "Watch the Party Die" came four months after Kendrick released "Not Like Us", the diss track which eventually went on win five Grammy Awards including Record of the Year and Song of the Year. "Not Like Us" led to Kendrick being almost unanimously declared the winner of the the rap battle with Drake by relentlessly attacking Drake's reputation and popularizing an accusation that Drake is pedophile.  
+
+  * ***Say, Drake, I hear you like 'em young**  
+  You better not ever go to cell block one  
+  To any bitch that talk to him and they in love  
+  Just make sure you hide your lil' sister from him  
+  ...  
+  **Certified Lover Boy? Certified pedophiles**  
+  ...  
+  Why you trollin' like a bitch? Ain't you tired?  
+  Tryna strike a chord and it's probably A minor*  
+  -"Not Like Us"  
+
+The release of "Watch the Party Die" also came two months before the release of Kendrick's album *GNX*, where Kendrick's animosity against Drake seems to expand to anyone who does not give him the respect and loyalty that he believes he deserves.  
 
   * *It used to be fuck that nigga, but now it's plural  
   Fuck everybody, that's on my body  
   My blick first, then God got me  
   ...  
   They like, "Dot big trippin'," I just want what I deserve  
-  What bridge they done burnt? All of them, it's over with*  
+  What bridge they done burnt? All of them, it's over with  
+  I'm doin' what COVID did, they'll never get over it  
+  ...
+  Okay, nigga, let's settle it, these niggas been fake loyal  
+  Since y'all pandering to choose a side, let me do it for you  
+  Okay, fuck your hip-hop, **I watched the party just die**  
+  ...
+  Ayy, fuck anybody empathetic to the other side, I vow  
+  A bitch nigga love bitch niggas, they exist with 'em in style  
+  Exterminate 'em right now*  
   -"wacced out murals"  
 
-Thematically, "Watch the Party Die" asks a deeply philosphical question: what should we as a society do to humans who perpetrate evil?
+"Watch the Party Die" thus serves as a bridge between Kendrick's battle with Drake and the Kendrick's album *GNX*. Thematically, "Watch the Party Die" seems to offer an important perspective on the battle and the album as the track seems to implicitly ask a deeply philosphical question: **What should we as a society do to humans who perpetrate evil or enable others to perpetrate evil?**  
+
+If we are to take the battle, "Watch the Party Die" and *GNX* at face value, the answer to this question would seem to be that we should "exterminate them right now". However, on the final verse of "Watch the Party Die", Kendrick's deeply held Christian beliefs briefly come to the surface as he wonders what Christian hip hop artist Lecrae would want us to do to humans who perpetrate evil or enable other to perpetrate evil.
 
 In the second verse of "Watch the Party Die", Kendrick wonders out loud what Christian hip hop artist, Lecrae, would do if he were in Kendrick's shoes. In response to this question, Lecrae went on to release a track called "Die for the Party" in which Lecrae also wrestles with questions about how we should respond to human evil.
 
 ## "Watch the Party Die" by Kendrick Lamar
-
 
 ### [Verse 1]
 
