@@ -1,10 +1,10 @@
 +++
 date = '2024-12-12T18:31:31-08:00'
-draft = true
+draft = false
 title = '"Watch the Party Die" or "Die for the Party"'
 +++
 
-On September 11, 2015, Kendrick Lamar released and Instagram post that featured a photo of a pair of Air Force One shoes and an untitled song. This song began with the words "I think it's time to watch the party die" which would lead to it being referred to by the name "Watch the Party Die."  
+On September 11, 2015, Kendrick Lamar released and Instagram post that featured a tightly cropped photo of a pair of Air Force 1 shoes and an untitled song. This song began with the words "I think it's time to watch the party die" which would lead to it being referred to by the name **"Watch the Party Die"**.  
 
 The release of "Watch the Party Die" came four months after Kendrick released "Not Like Us", the diss track which eventually went on win five Grammy Awards including Record of the Year and Song of the Year. "Not Like Us" led to Kendrick being almost unanimously declared the winner of the the rap battle with Drake by relentlessly attacking Drake's reputation and popularizing an accusation that Drake is pedophile.  
 
@@ -16,33 +16,35 @@ The release of "Watch the Party Die" came four months after Kendrick released "N
   **Certified Lover Boy? Certified pedophiles**  
   ...  
   Why you trollin' like a bitch? Ain't you tired?  
-  Tryna strike a chord and it's probably A minor*  
+  Tryna strike a chord and it's probably **A minor***  
   -"Not Like Us"  
 
-The release of "Watch the Party Die" also came two months before the release of Kendrick's album *GNX*, where Kendrick's animosity against Drake seems to expand to anyone who does not give him the respect and loyalty that he believes he deserves.  
+The release of "Watch the Party Die" also came two months before the release of Kendrick's album *GNX*, where Kendrick's animosity against Drake seems to expand to anyone who aligns themsevles with Drake by not giving Kendrick the respect and loyalty that Kendrick believes he deserves.  
 
-  * *It used to be fuck that nigga, but now it's plural  
-  Fuck everybody, that's on my body  
+  * *It **used to be fuck that nigga**, but **now it's plural  
+  Fuck everybody**, that's on my body  
   My blick first, then God got me  
   ...  
-  They like, "Dot big trippin'," I just want what I deserve  
+  They like, "Dot big trippin'," **I just want what I deserve**  
   What bridge they done burnt? All of them, it's over with  
   I'm doin' what COVID did, they'll never get over it  
-  ...
-  Okay, nigga, let's settle it, these niggas been fake loyal  
-  Since y'all pandering to choose a side, let me do it for you  
+  ...  
+  Okay, nigga, let's settle it, these **niggas been fake loyal**  
+  Since y'all pandering to **choose a side**, let me do it for you  
   Okay, fuck your hip-hop, **I watched the party just die**  
-  ...
-  Ayy, fuck anybody empathetic to the other side, I vow  
+  ...  
+  Ayy, **fuck anybody empathetic to the other side**, I vow  
   A bitch nigga love bitch niggas, they exist with 'em in style  
-  Exterminate 'em right now*  
+  **Exterminate 'em right now***  
   -"wacced out murals"  
 
 "Watch the Party Die" thus serves as a bridge between Kendrick's battle with Drake and the Kendrick's album *GNX*. Thematically, "Watch the Party Die" seems to offer an important perspective on the battle and the album as the track seems to implicitly ask a deeply philosphical question: **What should we as a society do to humans who perpetrate evil or enable others to perpetrate evil?**  
 
-If we are to take the battle, "Watch the Party Die" and *GNX* at face value, the answer to this question would seem to be that we should "exterminate them right now". However, on the final verse of "Watch the Party Die", Kendrick's deeply held Christian beliefs briefly come to the surface as he wonders what Christian hip hop artist Lecrae would want us to do to humans who perpetrate evil or enable other to perpetrate evil.
+If we are to take the battle, "Watch the Party Die" and *GNX* at face value, the answer to this question would seem to be that we should "exterminate them right now". However, on the final verse of "Watch the Party Die", **Kendrick's deeply held Christian beliefs briefly come to the surface as he wonders what Christian hip hop artist Lecrae would want us to do** to humans who perpetrate evil or enable other to perpetrate evil.  
 
-In the second verse of "Watch the Party Die", Kendrick wonders out loud what Christian hip hop artist, Lecrae, would do if he were in Kendrick's shoes. In response to this question, Lecrae went on to release a track called "Die for the Party" in which Lecrae also wrestles with questions about how we should respond to human evil.
+On September 20, nine days after Kendrick released “Watch the Party Die”, Lecrae released a track named “Die for the Party” which uses the exact same beat as “Watch the Party Die” and serves as Lecrae’s response to Kendrick wondering what Lecrae would do. Notably, the artwork for "Die for the Party" features a tightly cropped photo of a pair of white Air Force 1 shoes in contrast to the pair of black Air Force 1 shoes on the "Watch the Party Die" Instagram post. The contrast between the white and black Air Force 1s emphaisizes the idea that **"Watch the Party Die" and "Die For the Party" represent two opposing perspectives on how we should respond to human evil**.  
+
+With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drake of being a pedophile, college campuses were shut down due to protests against Israel's alleged genocide in Gaza, the elected U.S. president was routinely compared to Hitler, and much of the internet celebrated the murder of a healthcare CEO, it seems well worth the time to go through a deep, **line-by-line analysis of Kendrick Lamar's "Watch the Party Die" and Lecrae's "Die for the Party"**, which is what this post aims to do.
 
 ## "Watch the Party Die" by Kendrick Lamar
 
@@ -2485,6 +2487,8 @@ Get 'em gone, we gon' watch the party die
 {{< /details >}}
 
 {{< /details >}}
+
+### [Verse 3]
 
 {{< lyrics >}}Sometimes I wonder what Lecrae would do{{< /lyrics >}}
 
