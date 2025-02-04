@@ -4,9 +4,9 @@ draft = false
 title = '"Watch the Party Die" or "Die for the Party"'
 +++
 
-On September 11, 2015, Kendrick Lamar released and Instagram post that featured a tightly cropped photo of a pair of Air Force 1 shoes and an untitled song. This song began with the words "I think it's time to watch the party die" which would lead to it being referred to by the name **"Watch the Party Die"**.  
+On September 11, 2025, Kendrick Lamar released and Instagram post that featured a tightly cropped photo of a pair of Air Force 1 shoes and an untitled song. This song began with the words "I think it's time to watch the party die" which would lead to it being referred to by the name **"Watch the Party Die"**.  
 
-The release of "Watch the Party Die" came four months after Kendrick released "Not Like Us", the diss track which eventually went on win five Grammy Awards including Record of the Year and Song of the Year. "Not Like Us" led to Kendrick being almost unanimously declared the winner of the the rap battle with Drake by relentlessly attacking Drake's reputation and popularizing an accusation that Drake is pedophile.  
+**The release of "Watch the Party Die" came four months after Kendrick released "Not Like Us"**, the diss track which eventually went on win five Grammy Awards including Record of the Year and Song of the Year. "Not Like Us" led to Kendrick being almost unanimously declared the winner of the the rap battle with Drake by relentlessly attacking Drake's reputation and popularizing an accusation that Drake is pedophile.  
 
   * ***Say, Drake, I hear you like 'em young**  
   You better not ever go to cell block one  
@@ -19,7 +19,7 @@ The release of "Watch the Party Die" came four months after Kendrick released "N
   Tryna strike a chord and it's probably **A minor***  
   -"Not Like Us"  
 
-The release of "Watch the Party Die" also came two months before the release of Kendrick's album *GNX*, where Kendrick's animosity against Drake seems to expand to anyone who aligns themsevles with Drake by not giving Kendrick the respect and loyalty that Kendrick believes he deserves.  
+**The release of "Watch the Party Die" also came two months before the release of Kendrick's album *GNX***, where Kendrick's animosity against Drake seems to expand to anyone who aligns themsevles with Drake by not giving Kendrick the respect and loyalty that Kendrick believes he deserves.  
 
   * *It **used to be fuck that nigga**, but **now it's plural  
   Fuck everybody**, that's on my body  
