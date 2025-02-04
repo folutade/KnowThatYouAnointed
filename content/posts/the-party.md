@@ -4,10 +4,21 @@ draft = true
 title = '"Watch the Party Die" or "Die for the Party"'
 +++
 
-On September 11, 2015, Kendrick Lamar posted an untitled song exclusively his Instagram account. The post come four months after Kendrick released "Not Like Us", the diss track that would eventually win five Grammy Awards including Record of the Year and Song of the Year and lead to Kendrick being almost unanimously declared the winner of the the rap battle with Drake.  
+On September 11, 2015, Kendrick Lamar released and Instagram post that featured a photo of a pair of Air Force One shoes and an untitled song. This song began with the words "I think it's time to watch the party die" which would lead to it being referred to by the name "Watch the Party Die." 
 
-In the second verse of "Watch the Party Die", Kendrick wonders out loud what Christian hip hop artist, Lecrae, would do if he were in Kendrick's shoes. 
+The release of "Watch the Party Die" came four months after Kendrick released "Not Like Us", the diss track that would eventually win five Grammy Awards including Record of the Year and Song of the Year and lead to Kendrick being almost unanimously declared the winner of the the rap battle with Drake. The release also came two months before the release of Kendrick's album *GNX*, where Kendrick's animosity against Drake seems to expand to anyone who does not give him the respect that he believes he deserves.  
 
+  * *It used to be fuck that nigga, but now it's plural  
+  Fuck everybody, that's on my body  
+  My blick first, then God got me  
+  ...  
+  They like, "Dot big trippin'," I just want what I deserve  
+  What bridge they done burnt? All of them, it's over with*  
+  -"wacced out murals"  
+
+Thematically, "Watch the Party Die" asks a deeply philosphical question: what should we as a society do to humans who perpetrate evil?
+
+In the second verse of "Watch the Party Die", Kendrick wonders out loud what Christian hip hop artist, Lecrae, would do if he were in Kendrick's shoes. In response to this question, Lecrae went on to release a track called "Die for the Party" in which Lecrae also wrestles with questions about how we should respond to human evil.
 
 ## "Watch the Party Die" by Kendrick Lamar
 
@@ -606,7 +617,7 @@ In the second verse of "Watch the Party Die", Kendrick wonders out loud what Chr
   I answer to Metatron and Gabriel*  
   -"family ties"
 
-* In the second verse of “Watch the Party Die”, Kendrick also seems to compare himself and the wicked leaders of the entertainment industry to the biblical prophet Elijah and the wicked Queen Jezebel who tried to imprison and kill all the true prophets of God who spoke truth while giving prominent positions to false prophets who told lies.  
+* In the third verse of “Watch the Party Die”, Kendrick also seems to compare himself and the wicked leaders of the entertainment industry to the biblical prophet Elijah and the wicked Queen Jezebel who tried to imprison and kill all the true prophets of God who spoke truth while giving prominent positions to false prophets who told lies.  
 
   * *It's cynical to say I know these **artists** petrified  
   The end result, in **jail by Jezebel** or **drugged up full of lies***  
@@ -4394,7 +4405,7 @@ Get 'em gone, we gon' watch the party die
 
 * Lecrae's track “Die for the Party” features the exact same beat as Kendrick Lamar's “Watch the Party Die”. As Lecrae mentions here, “Die for the Party” is meant to serve as an additional verse for “Watch the Party Die”.  
  
-* Lecrae decided to release this verse on his own rather than Kendrick inviting him to do so as part of a remix or extended version. That being said, on two separate lines within the second verse of “Watch the Party Die”, Kendrick did say that he wondered “what Lecrae would do”.
+* Lecrae decided to release this verse on his own rather than Kendrick inviting him to do so as part of a remix or extended version. That being said, on two separate lines within the third verse of “Watch the Party Die”, Kendrick did say that he wondered “what Lecrae would do”.
 
   * Sometimes I wonder what Lecrae would do  
   Fuck these niggas up or show 'em just what prayer do?  
@@ -4424,7 +4435,7 @@ Get 'em gone, we gon' watch the party die
   Pay us like you owe us for &&all the years that you hoed us**  
   We can talk, but money talks, so talk more bucks*  
 
-* Recall that on the second verse of “Watch the Party Die” Kendrick also makes a subtle reference to these exact lines from "Izzo (H.O.V.A.)".  
+* Recall that on the third verse of “Watch the Party Die” Kendrick also makes a subtle reference to these exact lines from "Izzo (H.O.V.A.)".  
 
   * *Say hello to your future fate, **the culture bred with carnivores  
   You let 'em snack, they eat your face**, the signatures is bein' forged*  
@@ -4503,7 +4514,7 @@ Get 'em gone, we gon' watch the party die
 
 * Lecras seems to be empathizing with Kendrick as Lecrae recognizes how difficult it must be for Kendrick to be at the top of the rap game.  
  
-* Recall that on the second verse of “Watch the Party Die”, Kendrick said “The more visible you get, the more your spiritual is tried”.  
+* Recall that on the third verse of “Watch the Party Die”, Kendrick said “The more visible you get, the more your spiritual is tried”.  
  
 * While Kendrick did wonder what Lecrae would do if Lecrae was in Kendrick's position, Lecrae recognizes that his own trials, while certainly challenging, really don’t compare to what Kendrick must face as arguably the most visible hip hop artist in the world. Hence, Lecrae seems to humbly recognize that he really cannot know for sure what he would actually do since he can't even imagine being in such a position.  
 
@@ -4706,7 +4717,7 @@ Get 'em gone, we gon' watch the party die
 
 #### "to pay the devil's wages, woo, huh" > Devil's wages
 
-* Lecrae describes the large amounts of money as the “devil’s wages”. The use of the word "devil" connects to the second verse of “Watch the Party Die” where Kendrick rapped.  
+* Lecrae describes the large amounts of money as the “devil’s wages”. The use of the word "devil" connects to the third verse of “Watch the Party Die” where Kendrick rapped.  
 
   * *It's time to **get these devils out the way**, heavy metals on my sword  
   We settle hard disputes today, the ghetto Hollywood divorce*  
@@ -5049,7 +5060,7 @@ Get 'em gone, we gon' watch the party die
   Last album had it boomin' somethin' vicious, ya know?**  
   And ya know I need ya back in my life*  
 
-* The idea of corporate guys from the entertainment industry using hip hop music like an addictive substance is also something that Kendrick alluded to on the second verse of “Watch the Party Die” when Kendrick rapped 
+* The idea of corporate guys from the entertainment industry using hip hop music like an addictive substance is also something that Kendrick alluded to on the third verse of “Watch the Party Die” when Kendrick rapped 
 
   * *It's cynical to say I know these **artists** petrified  
   The end result, in jail by Jezebel or **drugged up full of lies***  
@@ -5657,7 +5668,7 @@ Get 'em gone, we gon' watch the party die
 
 #### "I'm that—" > Censored
 
-* We never actually hear what Lecrae intended to say after “I’m that—”. It seems like Lecrae is censoring his own lyrics similar to how Kendrick censored his own lyrics on the second verse of “Watch the Party Die” when Kendrick menitoned Lecrae by name as he rapped:  
+* We never actually hear what Lecrae intended to say after “I’m that—”. It seems like Lecrae is censoring his own lyrics similar to how Kendrick censored his own lyrics on the third verse of “Watch the Party Die” when Kendrick menitoned Lecrae by name as he rapped:  
 
   * ***Sometimes I wonder what Lecrae would do**  
   Fuck these niggas up or show 'em just what prayer do?  
