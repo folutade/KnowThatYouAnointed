@@ -1,8 +1,11 @@
 +++
-date = '2024-12-12T18:31:31-08:00'
+date = '2054-02-05T18:31:31-08:00'
 draft = false
 title = '"Watch the Party Die" or "Die for the Party"'
 +++
+
+![alt ](https://upload.wikimedia.org/wikipedia/en/b/b4/Watch_the_Party_Die_by_Kendrick_Lamar.jpg)
+![alt text](/assets/images/Die_for_the_Party_artwork.jpeg "Title")
 
 On September 11, 2025, Kendrick Lamar released and Instagram post that featured a tightly cropped photo of a pair of Air Force 1 shoes and an untitled song. This song began with the words "I think it's time to watch the party die" which would lead to it being referred to by the name **"Watch the Party Die"**.  
 
