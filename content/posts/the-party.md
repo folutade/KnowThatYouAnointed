@@ -1,11 +1,13 @@
 +++
-date = '2025-01-05T00:00:00-00:00'
-draft = false
+date = '2025-02-05T00:00:00-00:00'
+draft = true
 title = '"Watch the Party Die" or "Die for the Party"'
 +++
 
 ![artwork](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/watch_the_party_die_for_the_party.jpg)  
 
+* [Jump to "Watch the Party Die" analysis](#watch-the-party-die-by-kendrick-lamar)  
+* [Jump to "Die for the Party" analysis](#die-for-the-party-by-lecrae)  
 
 On September 11, 2025, **Kendrick Lamar shared an [Instagram post](https://www.instagram.com/reel/C_y8-rrS5La/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)** that features a tightly cropped photo of a **pair of black Air Force 1 shoes** and an untitled new song with three verses and a hook. The first and second verse begin with the words "I think it's time to watch the party die" which would lead to it being referred to by the name **"Watch the Party Die"**.  
 

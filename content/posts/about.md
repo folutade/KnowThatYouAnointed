@@ -1,6 +1,6 @@
 +++
-date = '2024-12-12T18:31:01-08:00'
-draft = false
+date = '2025-02-04T00:00:00-00:00'
+draft = true
 title = 'About'
 +++
 
@@ -37,15 +37,41 @@ I am ethnically West African. "Femi" is short for "Oluwafemi" which means "The L
 
 My parents were born, raised and schooled in [Nigeria](https://www.britannica.com/place/Nigeria). They immigrated to the U.S. a few months before I was born. I grew up in the States with a mix of African, African-American and mainstream American cultural influences.
 
-I became deeply interested in hip hop when I was 14 years old after I saw the [music video](https://www.youtube.com/watch?v=mVObfpaR2_I) for 2Pac's posthumously released track ["Thugz Mansion" (Acoustic) ft. Nas](https://www.youtube.com/watch?v=mVObfpaR2_I).
+I became deeply interested in hip hop when I was 14 years old after I saw the [music video](https://www.youtube.com/watch?v=mVObfpaR2_I) for 2Pac's posthumously released track ["Thugz Mansion" (Acoustic) ft. Nas](https://open.spotify.com/track/3srOaTBnt4SCup2BhVHOp6?si=7bcf65cfe2844702).
 
 ### Spiritual background
 
-My parents were raised in the Anglican Church.
+My parents were raised as Christian in the Anglican Church in Nigeria. During their time in university, they were deeply influenced by the [Charismatic](https://www.christianity.org.uk/article/charismatic-christians) expression of Christianity, which is the spiritual tradition in which they raised my siblings and myself.  
+
+In my late 20's after I became a parent and wondered how to best raise my own children, my research led me to explore the [Eastern Orthodox](https://a.co/d/7uZMe6S) tradition, which I found to be the Christian tradition that had best preserved and passed down the beliefs and practices of those followed and learned directly from Jesus two thousand years ago. Soon after, my wife and I then decided to join the Eastern Orthodox Church and raise our children in that tradition.  
+
+I also took on the Orthodox baptismal name, Athanasios, which means “immortal” and commemorates [St. Athanasios the Great of Alexandria, Egypt](https://www.oca.org/saints/lives/2007/05/02/101269-saint-athanasius-the-great-patriarch-of-alexandria), the 4th Century saint who first listed the books of the New Testament and was instrumental in writing the earliest summary of the Christian beliefs known as the [Nicene Creed](https://en.wikipedia.org/wiki/Nicene_Creed).  
 
 ## About blog
 
-### Purpose
+The blog's name—“Know That You Anointed”—was first inspired by a line from the first verse of [“XXX.”](https://open.spotify.com/track/4iYRa2btalAzPZoSYfROqF?si=f5d32766f8004f76), one of the pivotal tracks from Kendrick Lamar’s album, *DAMN.* which I analyzed in this [Dissect episode](https://open.spotify.com/episode/2X1X0jZMy7t50JEMzG4iFU?si=bf0c5128c8cc4bf9) and [Medium blog post](https://medium.com/@folutade/reflections-on-dissections-s5e14-xxx-pt-1-94715c45ea06). In the first verse of "XXX.", Kendrick receives a phone call from a hometown friend after the friend’s son had been killed by gang members. The friend explains that he is reaching out to Kendrick for guidance and prayer because he knows that Kendrick is anointed with wisdom and power of God’s Spirit.  
 
-### Name
+  * *Yesterday, I got a call, like, from my dog, like 101  
+  Said they killed his only son because of insufficient funds  
+  He was sobbin', he was mobbin', way belligerent and drunk  
+  Talkin' out his head, philosophin' on what the Lord had done  
+  He said, "K-Dot, can you pray for me? It been a fucked up day for me  
+  **I know that you anointed**, show me how to overcome"  
+  He was lookin' for some closure, **hopin' I could bring him closer  
+  To the spiritual**, my spirit do know better*  
 
+The name “Know That You Anointed” was further inspired by “ANOINTING”, the opening track on Tobe Nwigwe’s album “HOOD HYMNS”. That opening track sets the stage for the entire album as Gospel singer Yael Hilton sings a prayer for the anointing of the Holy Spirit to give her the wisdom and power to love God and love other humans as commanded by Jesus.  
+
+  * ***Anointing**, fall on me  
+  Let the power **of the Holy Ghost fall on me**  
+  Let the **power to live the life that's pleasing to You** fall on me  
+  Let the **power to treat everybody right in this life** fall on me  
+  Let the anointing of the Holy Ghost fall on me  
+  Anointing, fall on me  
+
+This personal prayer is then expanded to include all listeners as Tobe’s daughter, Ivory Nwigwe, closes the track by saying.  
+
+  * ***You have an anointing  
+  And you all know***  
+
+As expressed by “XXX.” and “ANOINTING”, **this blog hopes to be a place to seek the spiritual wisdom and power that can enable all of us to love God and love all humans who have been made in the image of God despite the challenging and traumatic circumstances that we invariably face in this life**.  
