@@ -51,7 +51,7 @@ On September 14, three days after Kendrick's Instagram post, **Lecrae shared an 
 
 The contrast between the black Air Force 1 shoes in Kendrick's post and the white Air Force 1 shoes in Lecrae's post emphasizes the idea that **"Watch the Party Die" and "Die For the Party" represent two opposing perspectives on how we should respond to human evil**.  
 
-With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drake of being a pedophile, Diddy was arrested and charged with sex trafficking, college campuses were shut down due to protests against Israel's alleged genocide in Gaza, the elected U.S. president was routinely compared to Hitler, and much of the internet celebrated the murder of a healthcare CEO, it seems well worth the time to go through a deep, **line-by-line analysis of Kendrick Lamar's "Watch the Party Die" and Lecrae's "Die for the Party"**, which is what this blog post aims to do.
+With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drake of being a pedophile, Diddy was arrested and charged with sex trafficking, college campuses were shut down due to protests against Israel's alleged genocide in Gaza, the elected U.S. president was routinely compared to Hitler, and much of the internet celebrated the murder of a health insurance CEO, it seems well worth the time to go through a deep, **line-by-line analysis of Kendrick Lamar's "Watch the Party Die" and Lecrae's "Die for the Party"**, which is what this blog post aims to do.
 
 ## "Watch the Party Die" by Kendrick Lamar
 
