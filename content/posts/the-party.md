@@ -1,6 +1,6 @@
 +++
 date = '2025-02-05T00:00:00-00:00'
-draft = true
+draft = false
 title = '"Watch the Party Die" or "Die for the Party"'
 +++
 
