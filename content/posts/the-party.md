@@ -63,7 +63,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "I think it's time to watch the party die" > Pedophile parties
 
-* “Watch the Party Die” was the first track that Kendrick released after Kendrick’s battle with Aubrey Graham who is better known by his middle name Drake. It is thus notable that on the fourth verse of the battle track “meet the grahams” Kendrick refers to Drake’s party seemingly as a larger metaphor for Drake’s current way of life.  
+* “Watch the Party Die” was the first track that Kendrick released after Kendrick’s battle with Aubrey Graham, who is better known by his middle name, Drake. It is thus notable that on the fourth verse of the battle track “meet the grahams,” Kendrick refers to Drake’s party seemingly as a larger metaphor for Drake’s current way of life.  
  
   * *Dear **Aubrey**  
   I know you probably thinkin' I wanted to **crash your party***  
@@ -91,41 +91,41 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   They lookin' at you too if you standin' by him, keep the family away  
   I'm **lookin' to shoot through any pervert that lives, keep the family safe***  
 
-* In these lyrics from "meet the grahams", Kendrick asserts that sexual predators like Drake or Harvey Weinstein should die, much like the party in "Watch the Party Die".
+* In these lyrics from "meet the grahams," Kendrick asserts that sexual predators like Drake or Harvey Weinstein should die, much like the party in "Watch the Party Die."  
  
-* Kendrick also recounts a message from Black comedian, Katt Williams that encouraged listeners to seek out “the truth”. Here, Kendrick is alluding to Katt Williams’ viral interview which was released by Club Shay Shay podcast on January 3, 2024, just a few days into the new year. Throughout that interview, Katt Williams assumed the role of a truth-teller and repeatedly exposed the economic and moral corruption of the entertainment industry. In particular, Katt Williams revealed a deeply entrenched pattern of sexual misconduct, abuse, and coercion by which powerful men in the entertainment industry routinely take advantage of less powerful people in the entertainment industry. Katt Williams specifically named Harvey Weinstein, R. Kelly, and Diddy as men engaged in these predatory practices.  
+* Kendrick also recounts a message from Black comedian Katt Williams that encouraged listeners to seek out “the truth.” Here, Kendrick is alluding to Katt Williams’ viral interview, which was released by the *Club Shay Shay* podcast on January 3, 2024, just a few days into the new year. Throughout that interview, Katt Williams assumed the role of a truth-teller and repeatedly exposed the economic and moral corruption of the entertainment industry. In particular, Katt Williams revealed a deeply entrenched pattern of sexual misconduct, abuse, and coercion by which powerful men in the entertainment industry routinely take advantage of less powerful people in the entertainment industry. Katt Williams specifically named Harvey Weinstein, R. Kelly, and Diddy as men engaged in these predatory practices.  
  
-* Years before the interview, R. Kelly and Harvey Weinstein had already been convicted of several severe sexual offences and been given lengthy prison sentences. It was thus notable that Katt Williams included Diddy along with these two men since at the time Diddy was facing numerous civil lawsuits that accused him of sexual assaut but had yet to be charged with any criminal offense. Nonetheless, in the [interview (15:40 - 16:32)](https://youtu.be/8oRRZiRQxTs?si=iKsx-nqFoDQbiOnu&t=940) Katt Williams predicted that 2024 would be a year when the truth about men who behaved like Harvey Weinstein and R. Kelly would come to light.  
+* Years before the interview, R. Kelly and Harvey Weinstein had already been convicted of several severe sexual offenses and given lengthy prison sentences. It was thus notable that Katt Williams included Diddy along with these two men since, at the time, Diddy was facing numerous civil lawsuits that accused him of sexual assault but had yet to be charged with any criminal offense. Nonetheless, in the [interview (15:40 - 16:32)](https://youtu.be/8oRRZiRQxTs?si=iKsx-nqFoDQbiOnu&t=940), Katt Williams predicted that 2024 would be a year when the truth about men who behaved like Harvey Weinstein and R. Kelly would come to light.  
 
   * ***I came in this business saying I was going to expose**. When I talked about Michael Jackson, when I talked about R. Kelly they canceled me for these things because “why would you talk about another black dude?” Race is not where the line is drawn. **It's God's side and the other side** and we don't care nothing about the other side - period. Period. **All of these big dick deviants is all catching hell in 2024**. It's up for all of them. **It don't matter if you Diddy or whoever you is**. TD Jakes - any of them the every…**All lies will be exposed**. That's all and anyone who takes that the wrong way - know why they take it the wrong way. **The truth is the light**.  
   ...  
   All people that love the truth got to be happy if **the truth coming out and lies is getting exposed. That's just what time it is - 2024**, folks.*  
  
-* In the [interview (1:40:33 - 1:44:00)](https://youtu.be/8oRRZiRQxTs?si=Tag2nxKG36JIAT1H&t=6033), Katt Williams also specifically highlighted how he had been invited to Diddy's parties and even though attending these parties might lead to financially lucrative opportunities he consistently refused to attend the parties because he was convinced that he would be exploited and coerced into performing sexual acts for Diddy or other powerful men at one of Diddy's "Freak Off" sex parties.  
+* In the [interview (1:40:33 - 1:44:00)](https://youtu.be/8oRRZiRQxTs?si=Tag2nxKG36JIAT1H&t=6033), Katt Williams also specifically highlighted how he had been invited to Diddy's parties, and even though attending these parties might lead to financially lucrative opportunities, he consistently refused to attend because he was convinced that he would be exploited and coerced into performing sexual acts for Diddy or other powerful men at one of Diddy's "Freak Off" sex parties.  
 
   * ***My goal was to get this far in Hollywood and still have a virgin asshole and never had sucked the penis**. That was my only goal.  
   ...  
   **I've had to turn down $50 million four times** - four times - just **to protect my integrity and that virgin hole** I was telling you about, right. Cause **P Diddy be wanting to party and you got to tell him, "No."** You've got to tell him, "No." I did.*  
  
-* Hence by saying “I think **it’s time** to watch the party die” in September of 2024, Kendrick seems to be agreeing with - or maybe fulfilling - Katt Williams’ prediction that “All of these big dick deviants is all catching hell in 2024” and “It’s up for all of them”.  
+* Hence, by saying “I think *it’s time* to watch the party die” in September of 2024, Kendrick seems to be agreeing with—or maybe fulfilling—Katt Williams’ prediction that “All of these big dick deviants is all catching hell in 2024” and “It’s up for all of them.”  
  
-* Again, the idea that it is almost "time" for the criminal offences of Drake and his crew will soon be exposed is exactly what Kendrick first said on "meet the grahams" when he predicted a police raid on Drake's mansion, which is nicknamed "The Embassy".
+* Again, the idea that it is almost "time" for the criminal offenses of Drake and his crew to be exposed is exactly what Kendrick first said on "meet the grahams" when he predicted a police raid on Drake's mansion, which is nicknamed "The Embassy."  
 
   * ***Katt Williams said, "Get you the truth,"** so I'ma get mines  
   **The Embassy 'bout to get raided too, it's only a matter of time***  
 
-* A few months after releasing “Watch the Party Die”, Kendrick would go on to release the album *GNX* featuring the opening track “wacced out murals” where Kendrick again mentions Katt Williams and warns those on the “other side” that truth is about to be exposed.
+* A few months after releasing “Watch the Party Die,” Kendrick would go on to release the album *GNX*, featuring the opening track “wacced out murals,” where Kendrick again mentions Katt Williams and warns those on the “other side” that the truth is about to be exposed.  
 
   * *Ayy, **fuck anybody empathetic to the other side**, I vow  
   A bitch nigga love bitch niggas, they exist with 'em in style  
   Exterminate 'em right now  
-  **Make Katt Williams and them proud, the truth 'bout to get loud***
+  **Make Katt Williams and them proud, the truth 'bout to get loud***  
 
-* It should also be noted that Kendrick was not the first person to specifically accuse Drake of unreported sexual misconduct and pedophilia. Numerous people within the entertainment industry and on social media had made similar, though less widely publicized allegations.  
+* It should also be noted that Kendrick was not the first person to specifically accuse Drake of unreported sexual misconduct and pedophilia. Numerous people within the entertainment industry and on social media had made similar, though less widely publicized, allegations.  
  
-* For instance, social media users became suspicious after the video release of a 2018 red carpet interview where a then 14 year old actress named Millie Bobby Brown told a reporter that she had a very emotionally affectionate relationship with a then 31 year old Drake. Her account of the relationship included revelations that they text frequently including Drake sending a message that said “I miss you so much” to which she replied “I miss you more”. She also mentioned that Drake helps her with advice about boys and talked about how excited she was about her plans to see him during a trip he had planned to Atlanta.  
+* For instance, social media users became suspicious after the video release of a 2018 red carpet interview where a then 14-year-old actress named Millie Bobby Brown told a reporter that she had a very emotionally affectionate relationship with a then 31-year-old Drake. Her account of the relationship included revelations that they text frequently, including Drake sending a message that said, “I miss you so much,” to which she replied, “I miss you more.” She also mentioned that Drake helps her with advice about boys and talked about how excited she was about her plans to see him during a trip he had planned to Atlanta.  
  
-* A year later, in 2019, roughly 5 years before the battle with Kendrick, on a podcast episode that was discussing R. Kelly, a White comedian named Shane Gillis directly alleged that Drake “likes 'em young” and predicted that Drake was going to get exposed and arrested in the next 5 years.
+* A year later, in 2019, roughly five years before the battle with Kendrick, on a podcast episode that was discussing R. Kelly, a White comedian named Shane Gillis directly alleged that Drake “likes 'em young” and predicted that Drake was going to get exposed and arrested in the next five years.  
 
   * *“Dude R. Kelly got away”  
      
@@ -135,7 +135,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
      
   "Drizzy **Drake likes 'em young**. He does. It's somewhat known already but this is one of those things where I want to you know you got to say something. Like remember Louie that whole thing, yeah, and like, we knew about that yeah and we were just like, 'I don't know.' Drake, Drizzy **Drake is into the young ones**. **He's going to get got in the next 5 years**, unfortunately. Love me some Drizzy Drake."*  
  
-* Kendrick seems to have directly referenced this Shane Gillis podcast episode and the quote “Drake likes ’em young” during the first verse of the battle track “Not Like Us”. In that verse, Kendrick also refers to “the party” where a member of Drake’s OVO record label crew named PARTYNEXTDOOR allegedly goes to snort cocaine.  
+* Kendrick seems to have directly referenced this Shane Gillis podcast episode and the quote “Drake likes ’em young” during the first verse of the battle track “Not Like Us.” In that verse, Kendrick also refers to “the party,” where a member of Drake’s OVO record label crew named PARTYNEXTDOOR allegedly goes to snort cocaine.  
 
   * *Say, **Drake, I hear you like 'em young**  
   You better not ever go to cell block one  
@@ -159,7 +159,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "I think it's time to watch the party die" > Perverting God's plan
 
-* The pedophelia allegations on “Not Like Us” culminate with Kendrick repeatedly calling Drake a “69 god” in reference to the act of simultaneous oral sex due to the fact that a 6 looks like a 9 that has been rotated 180 degrees
+* The pedophilia allegations on “Not Like Us” culminate with Kendrick repeatedly calling Drake a “69 god” in reference to the act of simultaneous oral sex, due to the fact that a 6 looks like a 9 that has been rotated 180 degrees.  
 
   * ***Devil is a lie, he a 69 God**, ayy  
   ...  
@@ -172,21 +172,19 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   Hey, hey, hey, hey, **run for your life**  
   Hey, hey, hey, hey, **run for your life***  
  
-* The association with simultaneous oral sex is due to the fact that the number 6 looks like a number 9 that has been rotated 180 degrees  
- 
-* Aside from the number 69 being an obvious reference to simultaneous oral sex, it is notable that in the New Testament the "devil" (meaning "diabolical one", "false accuser" or "liar" ) - also known as the "satan" (meaning "adversary") - is often depicted as a figure who unlike God cannot actually create anything. Instead the "devil" / "satan" will take things that have been created by the one true God and uses lies to twist or turn them upside down.  
+* Aside from the number 69 being an obvious reference to simultaneous oral sex, it is notable that in the New Testament, the "devil" (meaning "diabolical one," "false accuser," or "liar")—also known as the "satan" (meaning "adversary")—is often depicted as a figure who, unlike God, cannot actually create anything. Instead, the "devil" / "satan" will take things that have been created by the one true God and use lies to twist or turn them upside down.  
 
-* In his viral Club Shay Shay interview (20:51 - 21:35), Katt Williams also made the point that the "devil" / "satan" cannot create anything but can only use lies to twist the things that God has created.
+* In his viral *Club Shay Shay* interview (20:51 - 21:35), Katt Williams also made the point that the "devil" / "satan" cannot create anything but can only use lies to twist the things that God has created.  
 
   * *These people are not powerful. **Satan can't create anything** that includes blessings for his people. That's why you know what the number one job of somebody that sold their soul in Hollywood is? Is to act like it didn't happen. They all do the same job.*  
  
-* In English the verb “pervert” is often used to refer to the way that the "devil" / "satan" or someone who behaves like the "devil" / "satan" uses lies to twist the truth and turn a good thing towards an evil purpose. The word "pervert" is derived from the Latin word “perverto” which means “to turn thoroughly”. Someone who habitually "perverts" good things can themselves be refered to with the noun "pervert". Notably, Kendrick refered to Drake as a "pervert" on "meet the graham".
+* In English, the verb “pervert” is often used to refer to the way that the "devil" / "satan" or someone who behaves like the "devil" / "satan" uses lies to twist the truth and turn a good thing toward an evil purpose. The word "pervert" is derived from the Latin word “perverto,” which means “to turn thoroughly.” Someone who habitually "perverts" good things can themselves be referred to with the noun "pervert." Notably, Kendrick referred to Drake as a "pervert" on "meet the grahams."  
 
   * *I'm lookin' to shoot through any **pervert** that lives, keep the family safe* 
  
-* Hence, the inversion between the numbers 6 and 9 can be seen as a symbol for the “satanic” way that Drake - the self-proclaimed “6 god” - has allegedly perverted “God’s Plan”, in reference to Drake's hit single.  
+* Hence, the inversion between the numbers 6 and 9 can be seen as a symbol for the “satanic” way that Drake—the self-proclaimed “6 god”—has allegedly perverted “God’s Plan,” in reference to Drake's hit single.  
  
-* Ultimately, the goal of the "devil" / "satan" is to twist and pervert the truth enough to convince humans to empower themselves to enjoy illicit pleasure and “become like God”. This pattern of lying is first depicted when the "devil" / "satan" takes on the form of snake which deceives the prototypical man and woman to eat the fruit from a forbidden tree so that they can become like God.
+* Ultimately, the goal of the "devil" / "satan" is to twist and pervert the truth enough to convince humans to empower themselves to enjoy illicit pleasure and “become like God.” This pattern of lying is first depicted when the "devil" / "satan" takes on the form of a snake, which deceives the prototypical man and woman into eating the fruit from a forbidden tree so that they can become like God.  
 
   * *Now **the snake was more shrewd** than any animal of the field which the LORD God had made. And he **said to the woman, “Has God really said, ‘You shall not eat from any tree of the garden’?**”  
      
@@ -196,7 +194,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
      
   When the **woman saw that the tree** was good for food, and that it **was a delight to the eyes**, and that the tree **was desirable** to make one wise, **she took some of its fruit and ate**; and she also **gave some to her husband with her, and he ate**.*  
  
-* In the case of Kendrick's allegations against Drake, the forbidden fruit would seem to reprsent illicit sexual behavior with underage girls.
+* In the case of Kendrick's allegations against Drake, the forbidden fruit would seem to represent illicit sexual behavior with underage girls.  
 
 {{< /details >}}
 
@@ -204,7 +202,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "I think it's time to watch the party die" > Sex god
 
-* Since the forbidden fruit and the number 69 can refer to a sexual acts, Kendrick seems to depicting Drake as a “sex god”. In ancient times, sex gods such as Ishtar, Ashtar, Ba’al, Aphrodite, Venus, Eros, Cupid, Dionysus, Bacchus and Liber were worshiped throughout the world including the Roman Empire and the Ancient Near East where most of the events of the Bible take place.  
+* Since the forbidden fruit and the number 69 can refer to sexual acts, Kendrick seems to be depicting Drake as a “sex god.” In ancient times, sex gods such as Ishtar, Ashtar, Ba’al, Aphrodite, Venus, Eros, Cupid, Dionysus, Bacchus, and Liber were worshiped throughout the world, including the Roman Empire and the Ancient Near East, where most of the events of the Bible take place.  
  
 * In many cases, those who worshiped sex gods would go to temple buildings where well-to-do men would come to have ritualized sex with male and female temple prostitutes who were essentially slaves that were owned by the temple.  
  
@@ -218,7 +216,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "I think it's time to watch the party die" > Drake denies the allegations
 
-* After the release of "meet the grahams" and "Not Like Us", Drake released “The Heart Part 6” where Drake publicly denied the pedophelia allegations and tried to shift the focus to Kendrick's own family trauma through a misreading of Kendrick's track "mother i sober" from **Mr. Morale and the Big Steppers**. The release of “The Heart Part 6” effectively ended the battle between Kendrick and Drake.
+* After the release of "meet the grahams" and "Not Like Us," Drake released “The Heart Part 6,” where Drake publicly denied the pedophilia allegations and tried to shift the focus to Kendrick's own family trauma through a misreading of Kendrick's track "mother i sober" from **Mr. Morale and the Big Steppers**. The release of “The Heart Part 6” effectively ended the battle between Kendrick and Drake.  
 
   * ***Speakin' of anything with a child, let's get to that now**  
   **This Epstein angle was the shit I expected**  
@@ -261,16 +259,16 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "This shit done got too wicked to apologize" > Wickedness or weakness
 
-* Kendrick seems to be asserting that "the party" has become become so wicked that even if the people who are hosting or attending "the party" have a change of heart and decide to apologize, society should not accept their apology.  
+* Kendrick seems to be asserting that "the party" has become so wicked that even if the people who are hosting or attending "the party" have a change of heart and decide to apologize, society should not accept their apology.  
  
-* Kendrick's accusations of wickedness could be directed at the pedophile parties which Kendrick alleges that Drake has been hosting. The accusations could also be directed at Diddy's "Freak Off" sex parties which came to light earlier in the year when Diddy was charged with sex trafficing, recketeering transportation to engage in prostitution. Still, Kendrick could be making his accusations more broadly at countless exploitative entertainment parties hosted by powerful men in the entertainment industry as exposed by Katt Williams.  
+* Kendrick's accusations of wickedness could be directed at the pedophile parties which Kendrick alleges that Drake has been hosting. The accusations could also be directed at Diddy's "Freak Off" sex parties, which came to light earlier in the year when Diddy was charged with **sex trafficking, racketeering,** and **transportation to engage in prostitution**. Still, Kendrick could be making his accusations more broadly at countless exploitative entertainment parties hosted by powerful men in the entertainment industry, as exposed by Katt Williams.  
  
-* It is notable that that the concept of “wickedness” was a major theme of Kendrick’s album *DAMN.*. The album's opening track, "BLOOD." begins with the with an ominous voice which that says:
+* It is notable that the concept of “wickedness” was a major theme of Kendrick’s album *DAMN.*. The album's opening track, "BLOOD.," begins with an ominous voice that says:  
 
   * *Is it **wickedness** or is it **weakness**?  
   You decide. Are we going to **live** or **die**?”*  
  
-* Throughout *DAMN.* Kendrick seems to present a dichotomous choice between the "wickedness" that is routinely perpetrated by poweful, violent men in this world and the "weakness" that was exhibited by Jesus who refused to use violence against his enemies and then laid down his life to be crucified in the place of violent men. 
+* Throughout *DAMN.*, Kendrick seems to present a dichotomous choice between the "wickedness" that is routinely perpetrated by powerful, violent men in this world and the "weakness" that was exhibited by Jesus, who refused to use violence against his enemies and then laid down his life to be crucified in the place of violent men.  
 
   * *Love's gonna get you killed  
   But pride's gonna be the death of you, and you and me*  
@@ -310,7 +308,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   Damn*  
   -"FEAR."
 
-* Give that throughout *DAMN.* Kendrick expressed a strong conviction that turning away from way of wickeness would require him to turn towards Jesus's way of weakess, it is ironic that throughout "Watch the Party Die" Kendrick seems to be condemning wickedness in others while simultanelous building himself up as someone who is strong enough to use violence against the wicked.
+* Given that throughout *DAMN.*, Kendrick expressed a strong conviction that turning away from the way of **wickedness** would require him to turn towards Jesus's way of **weakness**, it is ironic that throughout "Watch the Party Die," Kendrick seems to be condemning wickedness in others while simultaneously building himself up as someone who is strong enough to use violence against the wicked.  
 
 {{< / details >}}
 
@@ -318,27 +316,27 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "This shit done got too wicked to apologize" > Wicked sexual behavior in the Bible
 
-* Given that Drake is Jewish and Kendrick has identified himself as Christian on most of his albums and prays to God during the chorus of "Watch the Party Die", it seems appropriate to point out that the Jewish Bible / Christian Old Testament does have some very intense stories about humans (most often men) who perpetrate some remarkably intense, unjust, abusive and perverted sexual behavior. These stories and the consequences of the perverted sexual behavior can offer some perspective on whether Kendrick is being logically consistent with his assertion that the men at "the party" are "too wicked to apologize."  
+* Given that Drake is Jewish and Kendrick has identified himself as Christian on most of his albums and prays to God during the chorus of "Watch the Party Die," it seems appropriate to point out that the Jewish Bible / Christian Old Testament does have some very intense stories about humans (most often men) who perpetrate some remarkably intense, unjust, abusive, and perverted sexual behavior. These stories and the consequences of the perverted sexual behavior can offer some perspective on whether Kendrick is being logically consistent with his assertion that the men at "the party" are "too wicked to apologize."  
  
-* In a story recounted in Genesis 19, two non-Israelite cities named Sodom and Gomorrah are home to men whar are so perverted that they try to gang rape new visitors to the city, including two men who are actually angels who have come to assess the city’s wickedness. At some point, one character who refuses to participate in the gang rapes nonetheless offers two of his own daughters to be gang raped instead to prevent the angels form getting gang raped. The perverted men never get a chance to rape anyone and the city soon gets destroyed by a fire and sulfur raining down from the skies to burn up the city in an event that is akin to a volcanic explosion or a meteor strike.  
+* In a story recounted in **Genesis 19**, two non-Israelite cities named Sodom and Gomorrah are home to men who are so perverted that they try to gang rape new visitors to the city, including two men who are actually angels who have come to assess the city’s wickedness. At some point, one character who refuses to participate in the gang rapes nonetheless offers two of his own daughters to be gang raped instead to prevent the angels from getting gang raped. The perverted men never get a chance to rape anyone, and the city soon gets destroyed by fire and sulfur raining down from the skies to burn up the city in an event that is akin to a volcanic explosion or a meteor strike.  
  
-* In a story recounted in Judges 19-21, the men in an Israelite city have become so perverted that they try to gang rape a fellow Israelite who is visiting the city. To avoid getting gang raped, the visitor leaves one of his wives outside the house where he is staying and locks the door behind her. The men of the city then proceed to gang rape her to death and leave her body lying in front of the door to the house where the visitor is staying. The gang rape of the visitor's wife leads to a civil war where thousand of men are killed. We war only resolves when the surviving men from the perverted city are allowed feast capture teenage girls from festal celebrationand force them into marriage.  
+* In a story recounted in **Judges 19-21**, the men in an Israelite city have become so perverted that they try to gang rape a fellow Israelite who is visiting the city. To avoid getting gang raped, the visitor leaves one of his wives outside the house where he is staying and locks the door behind her. The men of the city then proceed to gang rape her to death and leave her body lying in front of the door to the house where the visitor is staying. The gang rape of the visitor's wife leads to a civil war where thousands of men are killed. The war only resolves when the surviving men from the perverted city are allowed to capture teenage girls from a festival celebration and force them into marriage.  
  
-* In a story recounted in 2 Samuel 11, David, the king of Israel, goes up to the roof of his palace one night, looks down at one of the neighboring houses and sees a beautiful woman naked while she is bathing. King David immediately is overwhelmed by a strong desire to have sex with her. King David learns that the woman's name is Bathsheba and that she is married to a man named Uriah who is one of his most loyal soldiers and is away at the battlefront with King David's army. Despite knowing that Bathsheba is married to Uriah and despite the fact that King David already has several wives, King David orders his servants to bring Bathsheba to his palace where he forces her to have sex with him. When King David finds out that Bathsheba has be pregnant he tries to hide the child. When he can’t successfully hide the child he orchestrates for her husband, Uriah, to be killed during a battle. King David is then free to marry Bathsheba and add her to his collection of wives.  
+* In a story recounted in **2 Samuel 11**, David, the king of Israel, goes up to the roof of his palace one night, looks down at one of the neighboring houses, and sees a beautiful woman naked while she is bathing. King David is immediately overwhelmed by a strong desire to have sex with her. King David learns that the woman's name is Bathsheba and that she is married to a man named Uriah, who is one of his most loyal soldiers and is away at the battlefront with King David's army. Despite knowing that Bathsheba is married to Uriah, and despite the fact that King David already has several wives, King David orders his servants to bring Bathsheba to his palace, where he forces her to have sex with him. When King David finds out that Bathsheba is pregnant, he tries to hide the child. When he can’t successfully hide the child, he orchestrates for her husband, Uriah, to be killed during a battle. King David is then free to marry Bathsheba and add her to his collection of wives.  
  
-  * Lecrae refernces this story of King David's sexual misconduct with Bathseba and murder of Uriah on "Die for the Party" when he raps:  
+  * Lecrae references this story of King David's sexual misconduct with Bathsheba and the murder of Uriah on "Die for the Party" when he raps:  
 
     * *But when I take a look in the mirror  
     The **blood of Uriah's on my hands 'cause I'm that killer**  
     Who **had Bathsheba in his quarters***  
  
-* God soon sends a prophet to confront King David and tell him that he has committed a great act of wickedness. David immediately repents and apologizes to God. He even writes a famous song called Psalm 51 in which King Devil acknowleges his acts of wickedness along with his need for repentance and forgiveness from God. Because of David’s repentance, God’s prophet told David that he would not die as a penalty for his wickedness  
+* God soon sends a prophet to confront King David and tell him that he has committed a great act of wickedness. David immediately repents and apologizes to God. He even writes a famous song called Psalm 51, in which King David acknowledges his acts of wickedness along with his need for repentance and forgiveness from God. Because of David’s repentance, God’s prophet told David that he would not die as a penalty for his wickedness.  
  
-* That being said, despite King David's repentance, the son that was born from King David's adulterous relationship got sick and died in infancy. Moreover later in David’s life, his oldest son exhibited similar tendencies of sexual misbehavior when this son raped one of his half-sisters. In response, King David's second son - who was the full brother of the daughter that was raped - exeuted a plot to murder the oldest son. King David's second son then rebelled against King David, started a civil war, made himself king, then went up on top of the palace roof where all the inhabitants of the city could see him and proceeded to raped all of King David’s lower status wives. The rebellious son did eventually lose the civil war and was killed, which allowed David to be restored as king but also led David into a state of depression.  
+* That being said, despite King David's repentance, the son that was born from King David's adulterous relationship got sick and died in infancy. Moreover, later in David’s life, his oldest son exhibited similar tendencies of sexual misbehavior when this son raped one of his half-sisters. In response, King David's second son—who was the full brother of the daughter that was raped—executed a plot to murder the oldest son. King David's second son then rebelled against King David, started a civil war, made himself king, then went up on top of the palace roof where all the inhabitants of the city could see him and proceeded to rape all of King David’s lower-status wives. The rebellious son did eventually lose the civil war and was killed, which allowed David to be restored as king but also led David into a state of depression.  
  
-* One of the major lessons of King David's story is that even though God forgave King David, his wickedness still resulted in real world consequences for David, his family and the whole society around King David.  
+* One of the major lessons of King David's story is that even though God forgave King David, his wickedness still resulted in real-world consequences for David, his family, and the whole society around King David.  
  
-* Kendrick has clearly read the story of King David. Most notably, two days before the release of Kendrick's album *good kid, m.A.A.d city*, Kendrick released the track "The Heart Pt. 3 (Will You Let It Die?)" where Kendrick revealed how the pressure of his rising status as the artistic reincarnation of 2Pac made him want to open the Bible, re-read the Book of David and reflect on how the lessons from that story could be applied to his own life.
+* Kendrick has clearly read the story of King David. Most notably, two days before the release of Kendrick's album *good kid, m.A.A.d city*, Kendrick released the track "The Heart Pt. 3 (Will You Let It Die?)" where Kendrick revealed how the pressure of his rising status as the artistic reincarnation of 2Pac made him want to open the Bible, re-read the Book of David, and reflect on how the lessons from that story could be applied to his own life.  
 
   * ***With a Bible and rifle**: I play the game as I "blam-blaow!"  
   Holler back at me, nigga  
@@ -348,9 +346,9 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   And pray to God that you make it** or live your life in The Matrix  
   'Cause falling off is a sickness—I heard that it's quite contagious*  
  
-* Given that Kendrick knows the story of King David wicked behavior and subsequent aplology, it is ironic that Kendrick seems to be denying the possibility that people like Drake, Diddy or or any of the men who have participated in "the party" can ever truly apology or be forgiven by God or by society. From a Christian perspective, Kendrick seems to be selectively reading the Bible in a way that justifies his hatred against others who he himself judges to be beyond the possibility of redemption and forgiveness.  
+* Given that Kendrick knows the story of King David's wicked behavior and subsequent apology, it is ironic that Kendrick seems to be denying the possibility that people like Drake, Diddy, or any of the men who have participated in "the party" can ever truly apologize or be forgiven by God or by society. From a Christian perspective, Kendrick seems to be selectively reading the Bible in a way that justifies his hatred against others whom he himself judges to be beyond the possibility of redemption and forgiveness.  
  
-* From a Christian perspective, Kendrick seems to be selectively reading the Bible in a way that would him to justify the use of violence eliminate his enemies or those whom he considers to be an enemy of society, which is exactly what he does throughout the rest of "Watch the Party Die".  
+* From a Christian perspective, Kendrick seems to be selectively reading the Bible in a way that would allow him to justify the use of violence to eliminate his enemies or those whom he considers to be an enemy of society, which is exactly what he does throughout the rest of "Watch the Party Die."  
 
 {{< / details >}}
 
@@ -363,20 +361,20 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "It's different, get him wacced and disqualified" > Wacced out partygoers
 
-* By saying "It's different", Kendrick seems to be suggesting that the wickedness of the hosts and attendees of "the party" is on a totally different level than other negative behavior or even criminal offences that could be considered forgivable. From Kendrick's perspective, this different level of wickedness seems be justice getting these partygoers "wacced" and "disqualified".  
+* By saying "It's different," Kendrick seems to be suggesting that the wickedness of the hosts and attendees of "the party" is on a totally different level than other negative behavior or even criminal offenses that could be considered forgivable. From Kendrick's perspective, this different level of wickedness seems to justify getting these partygoers "wacced" and "disqualified."  
  
-* "Wacced" is slang for destroyed, defaced or disrespected.  
+* "Wacced" is slang for destroyed, defaced, or disrespected.  
  
-* The use of the word "wacced" would go on to become more notable a few months after the release of "Watch the Party Die" when Kendrick released the album *GNX* which opens with the track "wacced out murals". On "wacced out murals", Kendrick expresses anger after an unknown graffiti vandalizer "wacced out" a mural on the side of a Compton restaurant that a visual artist had created to honor Kendrick. The vandlism included Kendrick's face covered with the letter "OVO" in reference to Drake's OVO crew and record label which is a acronym for "October's Very Own".  
+* The use of the word "wacced" would go on to become more notable a few months after the release of "Watch the Party Die" when Kendrick released the album *GNX*, which opens with the track "wacced out murals." On "wacced out murals," Kendrick expresses anger after an unknown graffiti vandalizer "wacced out" a mural on the side of a Compton restaurant that a visual artist had created to honor Kendrick. The vandalism included Kendrick's face covered with the letters "OVO," in reference to Drake's OVO crew and record label, which is an acronym for "October's Very Own."  
 
   * ***Yesterday, somebody wacced out my mural**  
   That energy'll make you niggas move to Europe  
   But it's regular for me, yeah, that's for sure  
   The **love and hate is definite** without a cure*  
  
-* A [video](https://www.youtube.com/watch?v=SqflSI6KIoE) of the vandalizer spraying graffiti on Kendrick's mural was first posted to social media on September 8, 2024, just 3 days before the release of "Watch the Party Die." One could reasonably suppose that the release of "Watch the Party Die" on September 11 was partially a response to Kendrick's mural getting vandalized.  
+* A [video](https://www.youtube.com/watch?v=SqflSI6KIoE) of the vandalizer spraying graffiti on Kendrick's mural was first posted to social media on September 8, 2024, just three days before the release of "Watch the Party Die." One could reasonably suppose that the release of "Watch the Party Die" on September 11 was partially a response to Kendrick's mural getting vandalized.  
  
-* One can also reasonably argue that “wacced out murals” is essentially a simplified spiritual successor to “Watch the Party Die”. "wacced out murals" seems crafted to allow listeners to "feel" the vitriol of "Watch the Party Die" without having to closely analyize the lyrics and discover the double entendres. This connection can be seen in the verses of “wacced out murals” where Kendrick threatens to “eliminate” anyone who is on “the other side” (i.e. not on God’s side). The third verse in particular also contains a direct reference to “Watch the Party Die” and to Katt Williams calling for the truth to be exposed.  
+* One can also reasonably argue that “wacced out murals” is essentially a simplified spiritual successor to “Watch the Party Die.” "wacced out murals" seems crafted to allow listeners to "feel" the vitriol of "Watch the Party Die" without having to closely **analyze** the lyrics and discover the double entendres. This connection can be seen in the verses of “wacced out murals,” where Kendrick threatens to “eliminate” anyone who is on “the other side” (i.e., not on God’s side). The third verse, in particular, also contains a direct reference to “Watch the Party Die” and to Katt Williams calling for the truth to be exposed.  
 
   * *It used to be fuck that nigga, but now it's plural  
   **Fuck everybody**, that's on my body  
@@ -398,9 +396,9 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   I know propaganda work for them, and **fuck whoever that's close to them**  
   The niggas that coon, the niggas that bein' groomed, **slide on both of them***
  
-* Someone is typically "disqualified" from an activity or competition when they are exposed for lying, cheating or behaving in a way that is illegal or unethical. In the context of “Watch the Party Die”, Kendrick could be saying that rappers like Drake should be disqualified from the “rap game” or more specifically from the competition of being considered the greatest rapper.  
+* Someone is typically "disqualified" from an activity or competition when they are exposed for lying, cheating, or behaving in a way that is illegal or unethical. Within the context of “Watch the Party Die,” Kendrick could be saying that rappers like Drake should be disqualified from the “rap game” or, more specifically, from the competition of being considered the greatest rapper.  
  
-* At the same time, based on the violent language throughout “Watch the Party Die”, Kendrick might also be claiming that the hosts and attendees of “the party” should be disqualified from the most basic activity of living life.  
+* At the same time, based on the violent language throughout “Watch the Party Die,” Kendrick might also be claiming that the hosts and attendees of “the party” should be disqualified from the most basic activity of living life.  
 
 {{< / details >}}
 
@@ -412,15 +410,15 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "We even kill the killers 'cause they like taking innocent lives" > Killing the killers
 
-* Kendrick seems to indicate that he and the peopole associated with him have already decided to kill anyone who is guilty of killing someone innocent.  
+* Kendrick seems to indicate that he and the people associated with him have already decided to kill anyone who is guilty of killing someone innocent.  
  
-*  The first three lines of "Watch the Party Die" have expressed significant amounts of animosity and vitriol. However, this fourth line is the first instance where Kendrick explicitly advocates for death sentences and targeted executions as an act of vigilante justice where an individual or group without any legal authority decide to take the law into their own hands in order to punish offenders or address perceived injustices. Within the context of this track, Kendrick is establishing himself as the judge and jury while enlisting his supporters to join him as executioners.  
+* The first three lines of "Watch the Party Die" have expressed significant amounts of animosity and vitriol. However, this fourth line is the first instance where Kendrick explicitly advocates for death sentences and targeted executions as an act of vigilante justice, where an individual or group without any legal authority decides to take the law into their own hands in order to punish offenders or address perceived injustices. Within the context of this track, Kendrick is establishing himself as the judge and jury while enlisting his supporters to join him as executioners.  
  
-* The idea of it being justified and even necessary to “kill the killers” brings up a longstanding political, sociological and philosophical debate about the best way to respond to potential wrongdoing, establish justice and maintain an orderly society. Within the large debate it should be noted that more than 50 countries including the United States of America currently  execute individuals who have been convincted of a crime that the justice system considers particularly egregious or distabilizing to social order.  
+* The idea of it being justified and even necessary to “kill the killers” brings up a longstanding political, sociological, and philosophical debate about the best way to respond to potential wrongdoing, establish justice, and maintain an orderly society. Within this large debate, it should be noted that more than 50 countries, including the United States of America, currently execute individuals who have been convicted of a crime that the justice system considers particularly egregious or destabilizing to social order.  
  
-* In America, crimes that are eligible for the death penalty tend to be ones that invole intentionally or unintentionally killing someone innocent whether through murder, terrorism, kidnapping, sexual assault, or drug trafficking. In contrast, European countries in the European Union have abolished the death penalty as punishment for crimes. However, historically most civilizations in human history have had some form of death penalty, often for crimes that did not involve killing anyone - including theft, adultery, sexual misbehavior, disrespecting a member of a higher class, and speaking against the state government or the state religion.  
+* In America, crimes that are eligible for the death penalty tend to be ones that involve intentionally or unintentionally killing someone innocent, whether through murder, terrorism, kidnapping, sexual assault, or drug trafficking. In contrast, European countries in the European Union have abolished the death penalty as a punishment for crimes. However, historically, most civilizations in human history have had some form of the death penalty, often for crimes that did not involve killing anyone—including theft, adultery, sexual misbehavior, disrespecting a member of a higher class, and speaking against the state government or the state religion.  
  
-* While America and many other modern nations still justify the use of death sentences after a fair trial, all modern nation states - at least officially - oppose the use of individuals or groups taking the law into their own hands through vigilante justice. However, on an individual basis, many people do seem ready to accept, support and even celebrate a vigilante execution that is executed against someone whom they truly despise, even if that person has not broken any laws.  
+* While America and many other modern nations still justify the use of death sentences after a fair trial, all modern nation-states—at least officially—oppose the use of individuals or groups taking the law into their own hands through vigilante justice. However, on an individual basis, many people do seem ready to accept, support, and even celebrate a vigilante execution that is carried out against someone whom they truly despise, even if that person has not broken any laws.  
 
 {{< / details >}}
 
@@ -428,13 +426,13 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "We even kill the killers 'cause they like taking innocent lives" > Current events
 
-* A few months after the release of "Watch the Party Die" this inclination for Americans to accept, support and even celebrate vigilante executions came to the surface after a 26-year old named Luigi Mangione gunned down the CEO of UnitedHealthcare medical health insurance company. According to publish excerpts from Luigi Mangione's writings, he claims to have targed the UnitedHealthcare CEO due to his belief that UnitedHealthcare and other health insurance companies "have simply gotten too powerful, and they continue to abuse our country for immense profit".  
+* A few months after the release of "Watch the Party Die," this inclination for Americans to accept, support, and even celebrate vigilante executions came to the surface after a 26-year-old named Luigi Mangione gunned down the CEO of UnitedHealthcare, a health insurance company. According to published excerpts from Luigi Mangione's writings, he claims to have targeted the UnitedHealthcare CEO due to his belief that UnitedHealthcare and other health insurance companies "have simply gotten too powerful, and they continue to abuse our country for immense profit."  
  
-* Immediately after the shooting and even before his identity was uncovered, [Luigi Magnione became a kind of a folk hero](https://www.newyorker.com/news/the-lede/luigi-mangione-and-the-making-of-a-modern-antihero) as countless people across social media platforms expressed agreement with the Mangione's assessment that "these parasites simply had it coming" and joined the shooter in expressing anger and vitriol against health insurance companies. This sentiment was widely expressed that Josh Shapiro, the governor of Pennsyvania were Mangione was arrested, gave a [press conference](https://www.youtube.com/watch?v=M3G-cPdWNiE) where he said "In some dark corners, this killer is being hailed as a hero hear me on this he is no hero."  
+* Immediately after the shooting and even before his identity was uncovered, [Luigi Mangione became a kind of folk hero](https://www.newyorker.com/news/the-lede/luigi-mangione-and-the-making-of-a-modern-antihero) as countless people across social media platforms expressed agreement with Mangione's assessment that "these parasites simply had it coming" and joined the shooter in expressing anger and vitriol against health insurance companies. This sentiment was so widely expressed that Josh Shapiro, the governor of Pennsylvania, where Mangione was arrested, gave a [press conference](https://www.youtube.com/watch?v=M3G-cPdWNiE) where he said, "In some dark corners, this killer is being hailed as a hero. Hear me on this: he is no hero."  
  
-* On an international, geopolitical scale, the idea of it being justified and even necessary to "kill the killers" has also been expressed in the context of war. In 2024, much of this justification has come from manypeople on both sides of the Israel vs. Hamas conflict that began on October 7, 2023, 11 months before the release of "Watch the Party Die" after Hamas killed 1,195 Israelis, took 248 Israelis as hostages and - based on a few sources - sexually assaulted and gang raped numerous Israelis during the October 7 attack. Many people who supported the plight of the Palestinians justified the attack as a necessary response to how Israelis had previously killed thousands of innocent Palestinians. Meanwhile, many supporter of Israel's War in Gaza justified killing the killers of innocent Israelies even tens of thousands of innocent Palestinians were killed and two thirds of Gaza's buildings were damaged or destroyed.  
+* On an international, geopolitical scale, the idea of it being justified and even necessary to "kill the killers" has also been expressed in the context of war. In 2024, much of this justification has come from many people on both sides of the Israel vs. Hamas conflict that began on October 7, 2023, eleven months before the release of "Watch the Party Die," after Hamas killed 1,195 Israelis, took 248 Israelis as hostages, and—based on a few sources—sexually assaulted and gang raped numerous Israelis during the October 7 attack. Many people who supported the plight of the Palestinians justified the attack as a necessary response to how Israelis had previously killed thousands of innocent Palestinians. Meanwhile, many supporters of Israel's War in Gaza justified killing the killers of innocent Israelis, even as tens of thousands of innocent Palestinians were killed and two-thirds of Gaza's buildings were damaged or destroyed.  
  
-* While "Watch the Party Die" does not specifially address current events such at the War in Gaza and was released months before Luigi Mangione's vigilante execution, both of these current events reveal the cultural zeigtgeist in which which Kendrick wrote, recorded and released "Watch the Party Die".  
+* While "Watch the Party Die" does not specifically address current events such as the War in Gaza and was released months before Luigi Mangione's vigilante execution, both of these current events reveal the cultural zeitgeist in which Kendrick wrote, recorded, and released "Watch the Party Die."  
 
 {{< / details >}}
 
@@ -442,7 +440,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "We even kill the killers 'cause they like taking innocent lives" > Kendrick's catalogue
 
-* Kendrick has explored the idea of killing the killers at length in his previous work most notably on the track “XXX.” from *DAMN*. On the first verse of "XXX." Kendrick (or Kung Fu Kenny) tells a story about a distressed friend who asked for advice on how to respond after gang members killed his son. Kendrick (or Kung Fu Kenny) acknowledged that as a anointed (i.e. Christian) individual he theoretically knew better, but felt strongly that the friend should kill his sons killer.   
+* Kendrick has explored the idea of killing the killers at length in his previous work, most notably on the track “XXX.” from *DAMN.* On the first verse of "XXX.," Kendrick (or Kung Fu Kenny) tells a story about a distressed friend who asked for advice on how to respond after gang members killed his son. Kendrick (or Kung Fu Kenny) acknowledged that as an anointed (i.e., Christian) individual, he theoretically knew better but felt strongly that the friend should kill his son's killer.  
 
   * *Yesterday, I got a call, like, from my dog, like 101  
   Said **they killed his only son** because of insufficient funds  
@@ -464,7 +462,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   I can't even keep the peace, **don't you fuck with one of ours  
   It be murder in the street, it be bodies in the hour***  
  
-* Meanwhile the second verse of "XXX." explored how the inclination towards violence and killing the killers is a common pattern of thought within the American psyche in contrast to the mentality that was exemplified by Jesus. 
+* Meanwhile, the second verse of "XXX." explored how the inclination toward violence and killing the killers is a common pattern of thought within the American psyche, in contrast to the mentality that was exemplified by Jesus.  
 
   * *Hail Mary, **Jesus**, and Joseph  
   The great **American flag is wrapped and dragged with explosives**  
@@ -483,7 +481,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   **Gang members or terrorists**, et cetera, et cetera  
   **America's reflections of me**, that's what a mirror does*
  
-* It is also notable that on “Worldwide Steppers” from *Mr. Morale and the Big Stepper* Kendrick asserted that we are all killers who intentionally or unintentionally, directly or indirectly cause the deaths of innocent people.  
+* It is also notable that on “Worldwide Steppers” from *Mr. Morale and the Big Steppers*, Kendrick asserted that we are all killers who intentionally or unintentionally, directly or indirectly, cause the deaths of innocent people.  
 
   * ***I'm a killer, he's a killer, she's a killer**, bitch  
   **We some killers**, walkin' zombies, tryna scratch that itch  
@@ -507,11 +505,11 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   **The noble person that goes to work and pray like they 'posed to?  
   Slaughter people too, your murder's just a bit slower***  
  
-* If we apply the logic of "Wordlwide Steppers" to this current line on "Watch the Party Die", the natural conclusion would suggest that beyond the powerful men who exploit, coerce and sexually abuse victims at parties, there is a much wider set of people whom Kendrick could justifiable kill through his vigilante executions.  
+* If we apply the logic of "Worldwide Steppers" to this current line on "Watch the Party Die," the natural conclusion would suggest that beyond the powerful men who exploit, coerce, and sexually abuse victims at parties, there is a much wider set of people whom Kendrick could justifiably kill through his vigilante executions.  
  
-* At the same time, we should note that on “Worldwide Steppers” Kendrick first and foremost acknowledges that he himself is a killer in part due to his catering choices which might lead innocent children to long-term health complications and shortened lifespans. If we apply that logic from “Worldwide Steppers” to this line from “Watch the Party Die” it would seem that Kendrick is being a hypocrite for justifying his desire to kill the people who he despises while not acknowledging that he also deserves to be killed.  
+* At the same time, we should note that on “Worldwide Steppers,” Kendrick first and foremost acknowledges that he himself is a killer, in part due to his catering choices, which might lead innocent children to long-term health complications and shortened lifespans. If we apply that logic from “Worldwide Steppers” to this line from “Watch the Party Die,” it would seem that Kendrick is being a hypocrite for justifying his desire to kill the people whom he despises while not acknowledging that he also deserves to be killed.  
  
-* In contrast, on “Die for the Party” Lecrae looks at the man in the mirror, sees that he himself is a killer and a hyprocrite which leads him to acknowledge that he deserves death along with all the other hypocrites.  
+* In contrast, on “Die for the Party,” Lecrae looks at the man in the mirror, sees that he himself is a killer and a hypocrite, which leads him to acknowledge that he deserves death along with all the other hypocrites.  
 
   * *It's **killers** sittin' in they cell for **takin' somebody innocent**  
   And they don't even feel no remorse, **the worst ignorance**  
@@ -531,11 +529,11 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Burn the whole village, we start over, it's really that time" > Justification
 
-* Burning the whole village with men, women and children would normally be seen as an act of injustice and inhumane brutality. However, if everyone is a killer, Kendrick seems to have no issue with any collateral damage that he would cause while trying to exterminate the wicked hosts and attendees of “the party”.  
+* Burning the whole village with men, women, and children would normally be seen as an act of injustice and inhumane brutality. However, if everyone is a killer, Kendrick seems to have no issue with any collateral damage that he would cause while trying to exterminate the wicked hosts and attendees of “the party.”  
  
-* The justification for burning the whole village naturlaly follows from the idea that we are all killers and the idea that we should kill the killers who like taking innocent lives.  
+* The justification for burning the whole village naturally follows from the idea that we are all killers and the idea that we should kill the killers who like taking innocent lives.  
  
-* By saying “it’s really that time”, Kendrick connects the idea of burning the whole village to the opening line “I think it’s time to watch the party die”.  
+* By saying “it’s really that time,” Kendrick connects the idea of burning the whole village to the opening line, “I think it’s time to watch the party die.”  
 
 {{< / details >}}
 
@@ -543,23 +541,23 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Burn the whole village, we start over, it's really that time" > Reqesting fire from heaven in the Old Testament
 
-* From a biblical perspective, the idea of a whole village being burned does bring to mind the Old Testament story of Sodom and Gomorrah where two towns of rapists were destroyed by fire and sulfur raining down from the skies, as I mentioned in the ["Wicked sexual misbehavior in the Bible"](#this-shit-done-got-too-wicked-to-apologize--wicked-sexual-behavior-in-the-bible) section.  
+* From a biblical perspective, the idea of a whole village being burned does bring to mind the Old Testament story of Sodom and Gomorrah, where two towns of rapists were destroyed by fire and sulfur raining down from the skies, as I mentioned in the ["Wicked sexual misbehavior in the Bible"](#this-shit-done-got-too-wicked-to-apologize--wicked-sexual-behavior-in-the-bible) section.  
  
-* The motif of fire coming down from the sky gets further developed in the stories about the Prophet Elijah, who served as a prophet to the Northern Kingdom of Israel which had its capital in a city called Samaria.  
+* The motif of fire coming down from the sky gets further developed in the stories about the Prophet Elijah, who served as a prophet to the Northern Kingdom of Israel, which had its capital in a city called Samaria.  
  
-* Around 50 years earlier The Northern Kingdom of Israel with its capital in Samaria had split from the Southern Kingdom of Judah with its capital in Jerusalem after a rebellion and a near civil war.  
+* Around 50 years earlier, the Northern Kingdom of Israel, with its capital in Samaria, had split from the Southern Kingdom of Judah, with its capital in Jerusalem, after a rebellion and a near civil war.  
  
-  * This split would be the begnning of a animosity between Samaria and Judah that would continue to escalate for centuries.  
+  * This split would be the beginning of an animosity between Samaria and Judah that would continue to escalate for centuries.  
     
-  * In English, the name Judah which was later shortened to the word "Jew", which is the word that is now used to refer to the ethnic group that is originally from this geographic area and the religion that was originally practided by this ethnic group.  
+  * In English, the name Judah was later shortened to the word "Jew," which is the word that is now used to refer to the ethnic group that is originally from this geographic area and the religion that was originally practiced by this ethnic group.  
  
-* At the time, Israel had almost entirely turned away from worshiping God and were instead worship a fertility and sex god named Ba’al. As part of the worship of this fertility god, the Isrealites presumably would have been going to the god Ba’al’s temple to participate in feasts and have ritualized sex with temple prostitutes.  
+* At the time, Israel had almost entirely turned away from worshiping God and was instead worshiping a fertility and sex god named Ba’al. As part of the worship of this fertility god, the Israelites presumably would have been going to the god Ba’al’s temple to participate in feasts and have ritualized sex with temple prostitutes.  
   
-* The worship of Ba’al was introduced to the Kingdom of Israel by a king named Ahab who “did evil in the sight of the Lord more than all who were before him.” King Ahab married a princess named Jezebel from one of the neighboring nations which God had specifically forbidden the Israelites from entering into marriage relationships because those nations worshiped false gods like the fertility god Ba’al.  
+* The worship of Ba’al was introduced to the Kingdom of Israel by a king named Ahab, who “did evil in the sight of the Lord more than all who were before him.” King Ahab married a princess named Jezebel from one of the neighboring nations, which God had specifically forbidden the Israelites from entering into marriage relationships with because those nations worshiped false gods like the fertility god Ba’al.  
  
-* According to a prophesy from Elijah, God stopped the sky from raining any water to prove that worshiping the fertility and sex god Ba’al would actually diminish the land’s agricultural fertility and, as a consequence, also diminish the sexual fertility amongst the Israelites. This prophesy angered King Ahab and Queen Jezebel who then unsuccessfully tried to murder Elijah.  
+* According to a prophecy from Elijah, God stopped the sky from raining any water to prove that worshiping the fertility and sex god Ba’al would actually diminish the land’s agricultural fertility and, as a consequence, also diminish the sexual fertility among the Israelites. This prophecy angered King Ahab and Queen Jezebel, who then unsuccessfully tried to murder Elijah.  
  
-* At some point after Ahab’s son succeeded Ahab as king, God sent Elijah to confront the king about the ongoing worship of Ba’al. The king sent a military captain with fifty soldiers to kill Elijah. However, Elijah called down fire from the skies which came down and burned the captain and all the soldiers to death. he king then sent another captain with fifty of soldiers to kill Elijah but they too were burned to death when Elijah called down fire from the skies. Finally, a last captain of fifty soldiers came and humbled himself before Elijah, who this time did not call down fire on the soldiers. (See [2 Kings 1:1-15](https://www.biblegateway.com/passage/?search=2%20Kings%201%3A1-15&version=NASB))  
+* At some point after Ahab’s son succeeded Ahab as king, God sent Elijah to confront the king about the ongoing worship of Ba’al. The king sent a military captain with fifty soldiers to kill Elijah. However, Elijah called down fire from the skies, which came down and burned the captain and all the soldiers to death. The king then sent another captain with fifty soldiers to kill Elijah, but they too were burned to death when Elijah called down fire from the skies. Finally, a last captain of fifty soldiers came and humbled himself before Elijah, who this time did not call down fire on the soldiers. (See [2 Kings 1:1-15](https://www.biblegateway.com/passage/?search=2%20Kings%201%3A1-15&version=NASB))  
 
 {{< / details >}}
 
@@ -567,31 +565,31 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Burn the whole village, we start over, it's really that time" > Refusing fire from heaven in the New Testament
 
-* Given the motif of fire raining down from the skies to destroy the wicked in the Old Teastament, it is notable that one particular New Testament story in St. Luke's account of the Gospel (aka "Good News") seems to intentionally undermine the desire one might have for God to send fire to destroy one's enemies. (See [Luke 9:52-56](https://www.biblegateway.com/passage/?search=Luke%209%3A52-56&version=NASB))  
+* Given the motif of fire raining down from the skies to destroy the wicked in the Old Testament, it is notable that one particular New Testament story in St. Luke's account of the Gospel (aka "Good News") seems to intentionally undermine the desire one might have for God to send fire to destroy one's enemies. (See [Luke 9:52-56](https://www.biblegateway.com/passage/?search=Luke%209%3A52-56&version=NASB))  
  
-* In that story, Jesus and his disciple go to a village in Samaria, the same city where King Ahab and Queen Jezebel had long ago led the Israelites to worship the fertility and sex god, Ba’al.  
+* In that story, Jesus and his disciples go to a village in Samaria, the same city where King Ahab and Queen Jezebel had long ago led the Israelites to worship the fertility and sex god Ba’al.  
  
-* During the time of Jesus, the people of Samaria did worship Yahweh the God of Israel, but the Samaritans and the Judeans considered each other to be be enemies because:  
+* During the time of Jesus, the people of Samaria did worship Yahweh, the God of Israel, but the Samaritans and the Judeans considered each other to be enemies because:  
  
   * The Judeans considered the Samaritans to be “heretics” who did not worship Yahweh in the way that Yahweh was supposed to be worshiped.  
  
   * About 550 years earlier, the Samaritans had tried to prevent the Judeans from building a temple in Jerusalem.  
  
-  * About 140 years earlier, earlier there was a military campaign in which the Judeans from Jerusalem destroyed the Samaritan’s temple to Yahweh, killed lots of people and destroyed their capital city.  
+  * About 140 years earlier, there was a military campaign in which the Judeans from Jerusalem destroyed the Samaritan’s temple to Yahweh, killed lots of people, and destroyed their capital city.  
 
-* As Jesus entered the Sameritan village, Jesus's followers announced him as the rightful king of the Judeans who was on his way to Jerusalem to be crowned and enthroned as king. However, due the the longstanding hatred between Judeans and Samaritans, the Samaritans did not accept Jesus and expressed visible hostility to Jesus’s arrival.  
+* As Jesus entered the Samaritan village, Jesus's followers announced him as the rightful king of the Judeans, who was on his way to Jerusalem to be crowned and enthroned as king. However, due to the longstanding hatred between Judeans and Samaritans, the Samaritans did not accept Jesus and expressed visible hostility to Jesus’s arrival.  
  
-* Two of Jesus’s disciples, St James and St. John, seemed to have been greatly displeased by the cold reception that the Samaritans were giving to Jesus. Likey influenced by their own hatred of the Samaritans, Jesus’s two disciples asked Jesus:  
+* Two of Jesus’s disciples, St. James and St. John, seemed to have been greatly displeased by the cold reception that the Samaritans were giving to Jesus. Likely influenced by their own hatred of the Samaritans, Jesus’s two disciples asked Jesus:  
 
   * "Lord, do you want us to command fire to come down from the sky and destroy them, just as Elijah did?"  
 
-* Jesus immediately became angry with those two disciples and strongly criticized them by saying:
+* Jesus immediately became angry with those two disciples and strongly criticized them by saying:  
 
-  * “You do not know what kind of spirit you belong to. For the Son of Man did not come to destroy human lives, but to \[save / rescue / heal\] them.”
+  * “You do not know what kind of spirit you belong to. For the Son of Man did not come to destroy human lives, but to [save / rescue / heal] them.”  
 
-    * Note: The term “Son of Man” is how Jesus typically referred to himself in the Gospel accounts (See the Bible Project [Son of Man video](https://www.youtube.com/watch?v=z6cWEcqxhlI)).
+    * Note: The term “Son of Man” is how Jesus typically referred to himself in the Gospel accounts (See the Bible Project [Son of Man video](https://www.youtube.com/watch?v=z6cWEcqxhlI)).  
  
-* By expressinging his desire to “burn the whole village”, Kendrick seems to be exhibiting the same misguided way of thought as the disciples who wanted to destroy their enemies in the name of serving Jesus. In doing so, James, John and Kendrick totally disregarded Jesus’s desire to have his enemies apologize, repent and allow Jesus to save, rescue, and heal their lives.
+* By expressing his desire to “burn the whole village,” Kendrick seems to be exhibiting the same misguided way of thought as the disciples who wanted to destroy their enemies in the name of serving Jesus. In doing so, James, John, and Kendrick totally disregarded Jesus’s desire to have his enemies apologize, repent, and allow Jesus to save, rescue, and heal their lives.  
 
 {{< / details >}}
 
@@ -599,7 +597,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Burn the whole village, we start over, it's really that time" > Current events
 
-* Within the context of current events in 2024, one can also see the Israeli military action against Hamas and the resulting damage or destruction of two thirds of buildings in Gaza an example of the Israeli government deciding that it is justifable to “burn the whole village” in order to kill the killers who executed the October 7, 2023 attack.
+* Within the context of current events in 2024, one can also see the Israeli military action against Hamas and the resulting damage or destruction of two thirds of buildings in Gaza an example of the Israeli government deciding that it is justifable to “burn the whole village” in order to kill the killers who executed the October 7, 2023 attack.  
 
 {{< / details >}}
 
