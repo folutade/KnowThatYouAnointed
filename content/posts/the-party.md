@@ -57,7 +57,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 You can see the analysis for each line by clicking the triangle next to the line and each subsection.  
 
-You'll get a better sense of the context and progression if you go through the lines in order, but you can also use this post as a reference to dive into particular lines.  
+You'll get a better sense of the context and progression if you go through the lines in order, but you can also use this post as a reference to dive into particular lines out of order.  
 
 
 ## "Watch the Party Die" by Kendrick Lamar
@@ -740,10 +740,10 @@ You'll get a better sense of the context and progression if you go through the l
  
 * Kendrick also hinted at the idea of tough love leading to violence on “euphoria” when he alluded to rapper YNW Melly. YNW Melly, whose legal last name is ironically "Demons," released a hit single called "Murder on My Mind” in June 2018, just a few months before a shooting in which he was later accused of murdering two of his close friends, rappers YNW Sakchaser and YNW Juvy.  
 
-  * It's **three GOATs left**, and I seen **two of them kissin' and huggin' on stage**  
-  I love 'em to death and in eight bars, I'll explain that phrase, huh  
+  * *It's three GOATs left, and I seen two of them kissin' and huggin' on stage  
+  **I love 'em to death** and in eight bars, I'll explain that phrase, huh  
   ...  
-  I pray they my real friends, if not, **I'm YNW Melly**  
+  I pray they my real friends, if not, **I'm YNW Melly***  
 
 {{< /details >}}
 
