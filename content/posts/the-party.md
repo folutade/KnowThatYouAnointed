@@ -53,7 +53,11 @@ The contrast between the black Air Force 1 shoes in Kendrick's post and the whit
 
 With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drake of being a pedophile, Diddy was arrested and charged with sex trafficking, college campuses were shut down due to protests against Israel's alleged genocide in Gaza, the elected U.S. president was routinely compared to Hitler, and much of the internet celebrated the murder of a health insurance CEO, it seems well worth the time to go through a deep, **line-by-line analysis of Kendrick Lamar's "Watch the Party Die" and Lecrae's "Die for the Party"**, which is what this blog post aims to do.  
 
-**Note: You can see the analysis for each line by clicking the triangle next to the line.**
+### How to read
+
+You can see the analysis for each line by clicking the triangle next to the line and each subsection.  
+
+You'll get a better sense of the context and progression if you go through the lines in order, but you can also use this post as reference to dive into particular lines.  
 
 ## "Watch the Party Die" by Kendrick Lamar
 
