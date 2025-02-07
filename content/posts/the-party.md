@@ -57,7 +57,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 You can see the analysis for each line by clicking the triangle next to the line and each subsection.  
 
-You'll get a better sense of the context and progression if you go through the lines in order, but you can also use this post as a reference to dive into particular lines out of order.  
+You'll get a better sense of the context and progression of thought if you go through the lines in order, but you can also use this post as a reference to dive into particular lines out of order.  
 
 
 ## "Watch the Party Die" by Kendrick Lamar
@@ -1909,7 +1909,7 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "I think it's time to watch the party die" > Repeated
 
-* Kendrick begins the second verse with the same line from beginning of the first verse. Additionally, the chorus ended with Kendrick saying "watch the party die" three times. By continuing to repeat this phrase, Kendrick seems to be speaking like someone with an unhealthy obsession with vigilante justice.  
+* Kendrick begins the second verse with the same line from the beginning of the first verse. Additionally, the chorus ended with Kendrick saying "watch the party die" three times. By continuing to repeat this phrase, Kendrick seems to be speaking like someone with an unhealthy obsession with vigilante justice.  
 
 {{< /details >}}
 
@@ -1925,9 +1925,9 @@ You'll get a better sense of the context and progression if you go through the l
 
 * Kendrick seems to be highlighting more people who should be executed for the benefit of society.  
  
-* “Street niggas" refer to young Black men who are engaged in selling drugs, hustling, robberies, gang banging or any other kind of illegal activity that is done to get money. These kinds of activities are statistically more common in densely populated, urbanized neighborhoods in major American cities where people are more likely to walk through the city on street sidewalks in contrast to American suburbs where many people exclusively drive from one place to another.  
+* “Street niggas" refer to young Black men who are engaged in selling drugs, hustling, robberies, gang activity, or any other kind of illegal activity done to get money. These kinds of activities are statistically more common in densely populated, urbanized neighborhoods in major American cities where people are more likely to walk through the city on street sidewalks, in contrast to American suburbs where many people exclusively drive from one place to another.  
  
-* The illegal activities in which "street niggas" often engage often lead to violence, murder and other casualties as Kendrick has detailed throughout much of his work, such as the track “Poe Man's Dreams” from *Section.80*.  
+* The illegal activities in which "street niggas" often engage often lead to violence, murder, and other casualties, as Kendrick has detailed throughout much of his work, such as the track “Poe Man's Dreams” from *Section.80*.  
 
   * My mama is stressin', my daddy tired  
   **I need me a weapon**, these niggas ride  
@@ -1938,7 +1938,7 @@ You'll get a better sense of the context and progression if you go through the l
   You like to mistake a **street nigga** for real nigga  
   The **same nigga that kill with you'll squeal with you**  
 
-* Since “street niggas" typically depict themselves as people who like to kill others, they would likely be included among the peaople who Kendrick planned to execute when he said "We even kill the killers 'cause they like taking innocent lives."  
+* Since "street niggas" typically depict themselves as people who like to kill others, they would likely be included among the people who Kendrick planned to execute when he said, "We even kill the killers 'cause they like taking innocent lives."  
 
 {{< /details >}}
 
@@ -1946,9 +1946,9 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "Street niggas and the corporate guys, the rappers that report the lies" > Corporate guys
 
-* "Corporate guys" likely refers to the entertainment industry's corporate employees who are paid to find ways of making money from music, films and other forms of entertainment. In many cases, their approach to making money is not in the best interest of the artist who makes the work, the audience who consumes the work, or the society in which the work is distibuted.  
+* "Corporate guys" likely refers to the entertainment industry's corporate employees who are paid to find ways of making money from music, films, and other forms of entertainment. In many cases, their approach to making money is not in the best interest of the artist who makes the work, the audience who consumes the work, or the society in which the work is distributed.  
  
-* In the case that "corporate guys" are trying to make money from the stories of "street niggas", the resulting work may actually lead the audience to immitate behavior that leads some individuals to kill other individuals.  
+* In the case that "corporate guys" are trying to make money from the stories of "street niggas," the resulting work may actually lead the audience to imitate behavior that leads some individuals to kill other individuals.  
  
 * Within both *DAMN.* and *Mr. Morale & the Big Steppers*, Kendrick has pointed out that corporate employees often hide their tendency to be killers and murderers while teaching their own deceptive philosophies to the youth.  
 
@@ -1976,7 +1976,7 @@ You'll get a better sense of the context and progression if you go through the l
   **Silent murderer, what's your body count? Who your sponsorship?***  
   -"Worldwide Steppers"
 
-* "Corporate guys" may thus be complicit with those who "parade in gluttony without givin' truth to the youth" and for whom "the graveyard is company".  
+* "Corporate guys" may thus be complicit with those who "parade in gluttony without givin' truth to the youth" and for whom "the graveyard is company."  
 
 {{< /details >}}
 
@@ -1984,7 +1984,7 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "Street niggas and the corporate guys, the rappers that report the lies" > Rappers that report the lies
 
-* Rather than "givin' truth to the youth", "corporate guys" often appropriate the stories from "street niggas" and package them in music made by "rappers that report the lies".  
+* Rather than "givin' truth to the youth," "corporate guys" often appropriate the stories from "street niggas" and package them in music made by "rappers that report the lies."  
  
 * On "N95." from *Mr. Morale & the Big Steppers*, Kendrick seemed to expose liars in the rap game and demand that they take off their lies like an actor taking off a mask.  
 
@@ -1996,7 +1996,7 @@ You'll get a better sense of the context and progression if you go through the l
   **Take off them fabricated streams** and them microwave memes, it's a real world outside  
   (Take that shit off)*  
 
-* It's also notable that in the battle tracks, Kendrick repeatedly called Drake a liar, actor, and manipulator who has tried to borrow stories and credibility from "street niggas".  
+* It's also notable that in the battle tracks, Kendrick repeatedly called Drake a liar, actor, and manipulator who has tried to borrow stories and credibility from "street niggas."  
 
   * *The **famous actor** we once knew is lookin' paranoid and now is spiralin'  
   You're movin' just like a degenerate, every antic is feelin' distasteful  
@@ -2055,7 +2055,7 @@ You'll get a better sense of the context and progression if you go through the l
   It was God's plan to show y'all the liar***  
   -"Not Like Us"  
 
-* Kendrick expressed his hatred for all street niggas, corporate guys, rappers and members of the entertainment industry who have empowered, emboldened and enabled Drake.  
+* Kendrick expressed his hatred for all "street niggas", "corporate guys", rappers, and members of the entertainment industry who have empowered, emboldened, and enabled Drake.  
 
   * ***Whoever that's fuckin' with him, fuck you niggas, and fuck the industry too***  
 
@@ -2070,11 +2070,11 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "I need they families mortified" > Families mortified
 
-* In addition to ordering the execution of the "street niggas, corporate guys, and rappers that report the lies", Kendrick says that he "needs" the families of these individuals to be “mortified”. The word "mortified" refers to someone feeling ashamed, particularly when they are in the view of the public.  
+* In addition to ordering the execution of the "street niggas, corporate guys, and rappers that report the lies," Kendrick says that he "needs" the families of these individuals to be “mortified.” The word "mortified" refers to someone feeling ashamed, particularly when they are in the view of the public.  
  
-* It is notable that in early forms of English—from the 1300s to the 1700s—the word “moritiy” meant “to kill”. The word was originally derived from the Latin word “mortificō” which literally meant “to put to death”. In early forms of English, "mortify" was often used metaphorically to refer to the act of subduing, humbling, or humiliating someone.  
+* It is notable that in early forms of English—from the 1300s to the 1700s—the word “mortify” meant “to kill.” The word was originally derived from the Latin word “mortificō,” which literally meant “to put to death.” In early forms of English, "mortify" was often used metaphorically to refer to the act of subduing, humbling, or humiliating someone.  
  
-* By using the word mortify, Kendrick subtly brings up the idea that the family of the street niggas, corporate guys, and lying rappers should also be killed. The idea of killing family members of excessively wicked individuals connects back to first verse where Kendrick told his supporters to “burn the whole village”.  
+* By using the word mortify, Kendrick subtly brings up the idea that the family of the street niggas, corporate guys, and lying rappers should also be killed. The idea of killing family members of excessively wicked individuals connects back to the first verse, where Kendrick told his supporters to “burn the whole village.”  
 
 {{< /details >}}
 
@@ -2088,7 +2088,7 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "We can do life without 'em. Get they bodies organized." > Execution orders
 
-* Coming after the previous lines, Kendrick again seems to be assuring his supporters that it is okay to kill the street niggas, corporate guys, and rappers that report the lies"along with their family members because society will go on just fine without them being alive.  
+* Coming after the previous lines, Kendrick again seems to be assuring his supporters that it is okay to kill the "street niggas, corporate guys, and rappers that report the lies" along with their family members because society will go on just fine without them being alive.  
  
 * Kendrick then seems to appeal to his supporters to join his roster of executioners and help in the process of organizing the dead bodies after carrying out the execution orders.  
 
@@ -2106,16 +2106,16 @@ You'll get a better sense of the context and progression if you go through the l
 
 * "Pillow-talking" refers to conversations that happen between couples while lying down in bed with their heads on pillows after having sex.  
  
-* Certain hip hop media figures, such as [DJ Akademics](https://www.youtube.com/watch?v=cXtyIYSPadY&t=596s), have explained that arguments, hatred and information that is leveraged within rap battle often spreads because many rappers will often have sex with the same set of women. These women end up pillow-talking about the other rappers with whom they have had sex.  
+* Certain hip-hop media figures, such as [DJ Akademiks](https://www.youtube.com/watch?v=cXtyIYSPadY&t=596s), have explained that arguments, hatred, and information leveraged within rap battles often spread because many rappers will often have sex with the same set of women. These women end up pillow-talking about the other rappers with whom they have had sex.  
  
-  * DJ Akademics—who is sometimes referred to as Ak'—is also known for being a loyal supporter of Drake. Kendrick previously suggested that DJ Akademics is compromised on “6:16 in LA”.
+  * DJ Akademiks—who is sometimes referred to as Ak'—is also known for being a loyal supporter of Drake. Kendrick previously suggested that DJ Akademiks is compromised on “6:16 in LA.”  
   
     * *Yeah, somebody's lyin', **I can see the vibes on Ak'  
     Even he lookin' compromised**, let's peel the layers back*  
 
-* The pillow-talking dynamic also exist among violent street niggas, which explains how pillow-talking could lead to neighborhood wars.  
+* The pillow-talking dynamic also exists among violent street niggas, which explains how pillow-talking could lead to neighborhood wars.  
  
-* By saying "no more pillow-talkin'", Kendrick seems to be implying that he will be giving orders to execute the "dirty-macking bitches" who have attended "the party" or had sex with the street niggas, corporate guys or rappers that report the lies.  
+* By saying "no more pillow-talkin'," Kendrick seems to be implying that he will be giving orders to execute the "dirty-macking bitches" who have attended "the party" or had sex with the street niggas, corporate guys, or rappers that report the lies.  
 
 {{< /details >}}
 
@@ -2123,13 +2123,13 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "Dirty-mackin' bitches because your spirit is insecure" > Dirty-mackin' bitches
 
-* “Macking” refers to physical contact, conversations, or other flirtatious actions that a person does to flirt or attract someone with whom the person wants to have sex.  
+* “Macking” refers to conversations, physical contact, or other flirtatious actions that a person does to attract someone with whom they want to have sex.  
  
-* Dirty can be used to describe something that is dishonorable or something that is overtly sexual, especially when expressing a desire for novelty and adventurous forms of sexual behavior.  
+* "Dirty" can be used to describe something that is dishonorable or something that is overtly sexual, especially when expressing a desire for novelty and adventurous forms of sexual behavior.  
  
-* Here Kendrick seems to be criticizing the “dirty ackin'” women and men whose "pillow-talking" is leading to neighborhood wars.  
+* Here, Kendrick seems to be criticizing the “dirty-macking” men and women whose "pillow-talking" is leading to neighborhood wars.  
  
-* Kendrick seems to suggest the reason why men or women get into these "dirty-macking", "pillow-talking" sexual relationships because they are insecure men who need the validation of an attractive woman agreeing to have sex with them or insecure women who need the validation of a famous rapper expressing a strong desire to have sex with them.  
+* Kendrick seems to suggest that the reason why men or women get into these "dirty-macking," "pillow-talking" sexual relationships is that they are insecure men who need the validation of an attractive woman agreeing to have sex with them or insecure women who need the validation of a famous rapper expressing a strong desire to have sex with them.  
 
 {{< /details >}}
 
@@ -2143,11 +2143,11 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "The flashy nigga with nasty decisions usin' money as a backbone" > Nasty
 
-* In slang, "flashy" is an adjective which describes someone who shows off or flaunts their wealth and possession. "Flashy niggas" might thus be included among those who "parade in gluttony without givin' truth to the youth”.  
+* In slang, "flashy" is an adjective that describes someone who shows off or flaunts their wealth and possessions. "Flashy niggas" might thus be included among those who "parade in gluttony without givin' truth to the youth.”  
  
-* The idea of “dirty” from the previous line gets escalated to “nasty”, conveys a sense of repulsion or aversion. Both "dirty" and "nasty" are used as slang adjectives to describe someone who is overtly sexual, especially when expressing a desire for novelty and adventurous forms of sexual behavior.  
+* The idea of “dirty” from the previous line gets escalated to “nasty,” which conveys a sense of repulsion or aversion. Both "dirty" and "nasty" are used as slang adjectives to describe someone who is overtly sexual, especially when expressing a desire for novelty and adventurous forms of sexual behavior.  
  
-* The words "nasty" and "dirty" are both synonyms for the word "freaky" which Kendrick used when he described Drake as a "freaky ass nigga" and a "69 god"—in reference to an adventurous form of simultaneous oral sex-on "Not Like Us."  
+* The words "nasty" and "dirty" are both synonyms for the word "freaky," which Kendrick used when he described Drake as a "freaky ass nigga" and a "69 god"—in reference to an adventurous form of simultaneous oral sex—on "Not Like Us."  
 
   * *Devil is a lie, **he a 69 god**, ayy  
   **Freaky-ass niggas** need to stay they ass inside, ayy  
@@ -2165,9 +2165,9 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "The flashy nigga with nasty decisions usin' money as a backbone" > Backbone
 
-* In English "having a backbone" is an idiom for having the courage, strength, and ability to stand up for oneself.  
+* In English, "having a backbone" is an idiom for having the courage, strength, and ability to stand up for oneself.  
  
-* Kendrick's criticism of "the flashy nigga" who is "usin' money as a backbone" may also be applied to Drake. Within the battle, Kendrick accused Drake of acting like a tough "street nigga" even though he has no backbone and has to pass real street niggas to join his crew an be his "backbone". However, as Kendrick pointed out, these "street niggas" who are paid to be Drake's "backbone" are actually a liability because they are not truly loyal to Drake and are only around for the money.  
+* Kendrick's criticism of "the flashy nigga" who is "usin' money as a backbone" may also be applied to Drake. Within the battle, Kendrick accused Drake of acting like a tough "street nigga" even though he has no backbone and has to pass real street niggas to join his crew and be his "backbone." However, as Kendrick pointed out, these "street niggas" who are paid to be Drake's "backbone" are actually a liability because they are not truly loyal to Drake and are only around for the money.  
 
   * *The **famous actor** we once knew is **lookin' paranoid** and now is spiralin'  
   ...  
@@ -2190,7 +2190,7 @@ You'll get a better sense of the context and progression if you go through the l
   Just don't got the audacity to tell you***  
   -"6:16 in LA"
      
-* Drake's strategy of paying "street niggas" and other tough guys to be part of his crew is well documented online most notably in [this video by HipHopMadness](https://www.youtube.com/watch?v=5hgN3ze96zU).
+* Drake's strategy of paying "street niggas" and other tough guys to be part of his crew is well documented online, most notably in [this video by HipHopMadness](https://www.youtube.com/watch?v=5hgN3ze96zU).  
 
 {{< /details >}}
 
@@ -2202,11 +2202,11 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "I want his head cracked before he's back home" > Head cracked
 
-* Kendrick give even more specific instructions on how he wants the hosts and attendees of "the party" to be executed. In this case, he orders his executioners kill the condemned man by hitting him in the head with some kind of blunt weapon until the man's skull is cracked open.  
+* Kendrick gives even more specific instructions on how he wants the hosts and attendees of "the party" to be executed. In this case, he orders his executioners to kill the condemned man by hitting him in the head with some kind of blunt weapon until the man's skull is cracked open.  
  
 * Kendrick orders for the execution to happen while the condemned man is out of his house and before the condemned man ever has a chance to come back home that day. The immediacy of these orders further highlights the idea that "it is time" to watch the party die.  
  
-* The specificity of these execution orders resembles "XXX." from *DAMN.* where Kendrick talked about how he would kill someone who had killed his son by waiting outside of the building where the killer was located and then gun the killer down at his first opportunity.  
+* The specificity of these execution orders resembles "XXX." from *DAMN.*, where Kendrick talked about how he would kill someone who had killed his son by waiting outside the building where the killer was located and then gunning the killer down at his first opportunity.  
 
   * ***I'd wait in front a nigga's spot and watch him hit his block**  
   **I'd catch a nigga leavin' service** if that's all I got  
@@ -2223,18 +2223,18 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "The radio personality pushin' propaganda for salary" > Propaganda
 
-* A "radio personality" is host of an radio program, podcast or other form of audio based content who publicly broadcasts his or her perspective on current events or popular culture. 
+* A "radio personality" is a host of a radio program, podcast, or other form of audio-based content who publicly broadcasts his or her perspective on current events or popular culture.  
  
-* Propaganda is the deliberate dissemination of information, ideas, or messages that are often biased or misleading and are designed to influence public opinion, manipulate emotions, or promote a specific agenda or ideology. Propaganda is typically disseminated by powerful or influential political entity, government, industry or group who wants to influence the public in order to control their actions or hold on to power.
+* Propaganda is the deliberate dissemination of information, ideas, or messages that are often biased or misleading and are designed to influence public opinion, manipulate emotions, or promote a specific agenda or ideology. Propaganda is typically disseminated by a powerful or influential political entity, government, industry, or group that wants to influence the public in order to control their actions or hold on to power.  
  
-* Kendrick implies that many of these "radio personalities" are getting paid to use their platform to disseminate propaganda on behalf of the entertainment industry or on behalf of the systems which mentally enslave Black people.  
+* Kendrick implies that many of these "radio personalities" are getting paid to use their platforms to disseminate propaganda on behalf of the entertainment industry or on behalf of the systems that mentally enslave Black people.  
  
-* It is notable that on his 2016 track, "Hype", Drake boasts about creating his own propaganda.  
+* It is notable that on his 2016 track, "Hype," Drake boasts about creating his own propaganda.  
 
   * *I don't take this shit for granted  
   **I do my own propaganda***  
 
-* On the battle track "6:16 in LA", Kendrick accuses Drake of "playin' dirty with propaganda".  
+* On the battle track "6:16 in LA," Kendrick accuses Drake of "playin' dirty with propaganda".  
 
   * *But let me tell you some game 'cause I can see you, my lil' homie  
   **You playin' dirty with propaganda**, it blow up on ya  
@@ -2243,13 +2243,13 @@ You'll get a better sense of the context and progression if you go through the l
   Your lil' memes is losin' steam, they figured you out  
   **The forced opinions is not convincin'**, y'all need a new route*  
 
-* A few months after "Watch the Party Die" was released, Kendrick released the album *GNX* whose opening track "wacced out murals" mentions "Watch the Party Die" and specifically criticies a White comedy podcast host who controvertially joked about Black women being emotionally disregulated and violent.  
+* A few months after "Watch the Party Die" was released, Kendrick released the album *GNX*, whose opening track "wacced out murals" mentions "Watch the Party Die" and specifically criticizes a White comedy podcast host who controversially joked about Black women being emotionally dysregulated and violent.  
 
   * **Don't let no white comedian talk about no Black woman**, that's law  
   **I know propaganda work for them**, and fuck whoever that's close to them  
   **The niggas that coon, the niggas that bein' groomed**, slide on both of them  
 
-* On the track "Worldwide Steppers" from *Mr. Morale & the Big Steppers*, Kendrick asserted that Hollywood's corporate leaders and employees are "silent murderers" who teach their deadly and deceptive philosophies in schools.
+* On the track "Worldwide Steppers" from *Mr. Morale & the Big Steppers*, Kendrick asserted that Hollywood's corporate leaders and employees are "silent murderers" who teach their deadly and deceptive philosophies in schools.  
 
   * *Eight billion people on Earth, **silent murderers**  
   Non-profits, preachers and church? Crooks and burglars (Woo)  
@@ -2268,13 +2268,13 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "...casualty. I want agony, assault, and battery" > Sadistic
 
-* In English the word "casualty" is used to refer to someone who has died—or in some cases someone who has been injured—during an act of violence such a war or a criminal attack.  
+* In English, the word "casualty" is used to refer to someone who has died—or in some cases, someone who has been injured—during an act of violence such as war or a criminal attack.  
  
-* In the most narrow legal definition, "assault" is a crime in which a someone causes reasonable fear that they will cause physical harm to another person or make unwanted physical contact with another person. Meanwhile, "battery" is a crime in which someone actually causes physical harm or makes unwanted physical contact.  
+* In the most narrow legal definition, "assault" is a crime in which someone causes reasonable fear that they will cause physical harm to another person or make unwanted physical contact with another person. Meanwhile, "battery" is a crime in which someone actually causes physical harm or makes unwanted physical contact.  
  
-* The use of the terms "assault" and "battery" reminds us that the acts of all of these vigilante executions which Kendrick has ordered are illegal, criminal attacks.  
+* The use of the terms "assault" and "battery" reminds us that all of these vigilante executions that Kendrick has ordered are illegal, criminal attacks.  
  
-* Moreover, by saying that he wants the hosts and attendees of "the party" to experience extreme physical and mental suffering or "agony", Kendrick seems to not be satisfied with simply ridding society of wicked people. He seems to be expressing an unhealthy and sadistic enjoyment of knowing that wicked people will experience extreme suffering.  
+* Moreover, by saying that he wants the hosts and attendees of "the party" to experience extreme physical and mental suffering or "agony," Kendrick seems not to be satisfied with simply ridding society of wicked people. He seems to be expressing an unhealthy and sadistic enjoyment in knowing that wicked people will experience extreme suffering.  
 
 {{< /details >}}
 
@@ -2288,15 +2288,15 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "I see a New Earth filled with beautiful people" > New Earth in the New Testament
 
-* The term “New Earth” originates from, "The Revelation", the final book in the New Testament and the Bible in which St. John sees a prophetic, visionary “Revelation” from Jesus.  
+* The term “New Earth” originates from *The Revelation*, the final book in the New Testament and the Bible, in which St. John sees a prophetic vision revealed to him by Jesus.  
  
-* In this prophetic vision, Jesus shows St. John how the oppression, persecution, violence and killings that Christians faced under various Roman Emperors from 64 to 100 AD are part of a much larger pattern of the \["devil" / "satan" / “false accuser” / “diabolical one”\] trying to bring death and destruction to those who follow Jesus as their Lord.  
+* In this vision, Jesus shows St. John how the oppression, persecution, violence, and killings that Christians faced under various Roman Emperors from 64 to 100 AD are part of a much larger pattern of the ["devil" / "satan" / “false accuser” / “diabolical one”] trying to bring death and destruction to those who follow Jesus as their Lord.  
  
-* Jesus encourages various church communities to “overcome” not by starting a revolution or killing their oppressors, but by forgiving and loving the humans who are acting like enemies, but are really just under the control of the true enemy—the \["devil" / "satan" / “false accuser” / “diabolical one”\].  
+* Jesus encourages various church communities to "overcome"—not by starting a revolution or killing their oppressors—but by forgiving and loving the humans who act like enemies, recognizing that they are truly just under the control of the true enemy—the ["devil" / "satan" / “false accuser” / “diabolical one”].  
  
-* Jesus encourages these persecuted church communities to trust that one day Jesus will defeat the true enemy. Moreover, Jesus promised that one day, God will bring an end to the world as it currently exists and bring about a "New Heaven" which fully overlaps with a "New Earth". In this overlapping "New Heaven" and "New Earth" where all humans will know God, have a loving relationship with God, and obey God's commandments, which will lead to an eternal life of peace, justice and right relationships.  
+* Jesus encourages these persecuted church communities to trust that one day Jesus will defeat the true enemy. Moreover, Jesus promises that one day, God will bring an end to the world as it currently exists and bring about a "New Heaven" which fully overlaps with a "New Earth." In this overlapping "New Heaven" and "New Earth," all humans will know God, have a loving relationship with God, and obey God's commandments, leading to an eternal life of peace, justice, and right relationships.  
  
-* This transformation from the current Earth to the "New Earth" is described in the second to last chapter of "The Revelation" where St. John describes the end of his vision by saying:
+* This transformation from the current Earth to the "New Earth" is described in the second-to-last chapter of *The Revelation*, where St. John concludes his vision by saying:  
 
   * I saw **a new heaven and a new earth: for the first heaven and the first earth have passed away**, and the sea is no more. I saw **the holy city, New Jerusalem, coming down out of heaven from God**, prepared like a bride adorned for her husband. I heard a loud voice out of heaven saying, “Behold, **God's [tent / residence] is with humans, and he will reside with them, and they will be his people, and God himself will be with them as their God. He will wipe away every tear from their eyes. Death will be no more; There will be no mourning, no crying, no pain, any more**. The first things have passed away.”  
     -Revelation 21:1-4  
@@ -2308,17 +2308,17 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "I see a New Earth filled with beautiful people" > New Earth in New Age Spirituality
 
-* More recently, biblical concept of a "New Earth" has also been encorporated into "New Age" spirituality.  
+* More recently, the biblical concept of a "New Earth" has also been incorporated into "New Age" spirituality.  
  
-* “New Age” spirituality is a somewhat fluid category of spiritual beliefs and practices that arose from the "hippie" and "counterculture" movement of the late 1960s. Teachers and practitioners of New Age spirituality blend Eastern spiritual traditions \(e.g. Buddhism, Hinduism and Taoism)\ with some aspects of Western Christianity and a modern, secular humanist ethos.  
+* “New Age” spirituality is a somewhat fluid category of spiritual beliefs and practices that arose from the "hippie" and "counterculture" movement of the late 1960s. Teachers and practitioners of New Age spirituality blend Eastern spiritual traditions (e.g., Buddhism, Hinduism, and Taoism) with some aspects of Western Christianity and a modern, secular humanist ethos.  
  
-* After the initial popularity of New Age spirituality in the 1970s, there was a resurgence of New Age ideas in the late late 1990s and early 2000s due to the populaity of self-help psychology books by teachers such as Eckhart Tolle. Tolle's is known best for his 1997 book *The Power of Now: A Guide to Spiritual Enlightenment* and his 2005 book *A New Earth: Awakening to Your Life's Purpose*.  
+* After the initial popularity of New Age spirituality in the 1970s, there was a resurgence of New Age ideas in the late 1990s and early 2000s due to the popularity of self-help psychology books by teachers such as Eckhart Tolle. Tolle is best known for his 1997 book *The Power of Now: A Guide to Spiritual Enlightenment* and his 2005 book *A New Earth: Awakening to Your Life's Purpose.*  
  
-* In 2008, the legendary Black talk show host, Oprah Winfrey, hosted Eckhart Tolle on The Oprah Winfrey Show to discuss his book *A New Earth*. Oprah also added *A New Earth* to Oprah's Book Club and hosted a 10-week live online class series where Eckhart Tolle discussed *A New Earth* chapter by chapter.  
+* In 2008, the legendary Black talk show host, Oprah Winfrey, hosted Eckhart Tolle on *The Oprah Winfrey Show* to discuss his book A New Earth. Oprah also added A New Earth to *Oprah's Book Club* and hosted a 10-week live online class series where Eckhart Tolle discussed A New Earth chapter by chapter.  
  
-* Similar fashion to other forms of New Age spirituality, *A New Earth* takes some ideas from the Bible, such as St. John's vision of "a New Heaven and a New Earth" and subtly redefines it through the perspective of Eastern spiritual beliefs, practices, and terminology.  
+* In similar fashion to other forms of New Age spirituality, *A New Earth* takes some ideas from the Bible, such as St. John's vision of "a New Heaven and a New Earth," and subtly redefines them through the perspective of Eastern spiritual beliefs, practices, and terminology.  
  
-* In particular, *A New Earth* builds on the concepts from Tolle's previous book *The Power of Now* to focus on the Buddhist/Hindu idea that humans must go through an “ego death” so that their suffering will end and their individual identities (or the illusion of their individual identities) can melt away into a new, unified harmony with the universe. Within Tolle's writing, this ego death is  said to take place through practices such a Buddhist forms of emptying meditation that lead a person to awaken into a greater state of awareness or “consciousness” in moment or in the “now”.  
+* In particular, *A New Earth* builds on the concepts from Tolle's previous book *The Power of Now* to focus on the Buddhist/Hindu idea that humans must go through an “ego death” so that their suffering will end, and their individual identities (or the illusion of their individual identities) can melt away into a new, unified harmony with the universe. Within Tolle's writing, this ego death is said to take place through practices such as Buddhist forms of emptying meditation that lead a person to awaken into a greater state of awareness or “consciousness” in the present moment or in the "now."  
 
 {{< /details >}}
 
@@ -2326,7 +2326,12 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "I see a New Earth filled with beautiful people" > New Testament and New Age in Kendrick's work
 
-* While the influence of Christianity has already been well documented throughout this analysis, it should also be noted that Eckhart Tolle has clearly had a significant influence on Kendrick's work beginning at least as early as 2021 when Kendrick released a video introducing his new media production company, pgLang. This introductory video contains imagery of meditative practices, a clock in which every hour is labeled as "now", a scene were a young woman chooses "NOW" instead of "PAST" or "FUTURE", and a scene were Kendrick sits across from Eckhart Tolle and listens intently as Tolle gives spiritual/psychologial guidance.  
+* While the influence of Christianity has already been well documented throughout this analysis, it should also be noted that Eckhart Tolle has clearly had a significant influence on Kendrick's work, beginning at least as early as 2021, when Kendrick released a video introducing his new media production company, pgLang. This introductory video contains:  
+
+  * Imagery of meditative practices  
+  * A clock in which every hour is labeled as "NOW"  
+  * A scene where a young woman chooses "NOW" instead of "PAST" or "FUTURE"  
+  * A scene where Kendrick sits across from Eckhart Tolle and listens intently as Tolle gives spiritual/psychological guidance  
  
 * On *Mr. Morale & the Big Steppers*, Eckhart Tolle is introduced as Kendrick's psychotherapist and a major contributor to the album.  
 
@@ -2342,7 +2347,7 @@ You'll get a better sense of the context and progression if you go through the l
   Whitney:  *Yeah, well, **you need to talk to somebody. Reach out to Eckhart.***  
   -"Father Time"  
 
-* Eckhart Tolle's voice is heard on several occasions on the second half of *Mr. Morale & the Big Steppers*.  
+* Eckhart Tolle's voice is heard on several occasions on the second half of *Mr. Morale & the Big Steppers.*  
    
   * *Mr. Duckworth...*  
   -"Count Me Out"  
@@ -2356,7 +2361,7 @@ You'll get a better sense of the context and progression if you go through the l
   *People get taken over by this pain-body, because this energy field that almost has a life of its own—it needs to periodically feed on more unhappiness.*  
   -"Mr. Morale"  
 
-* On the last verse of "Rich Spirit", ends with Kendrick specifically referencing the "New Earth" after making references to Christianity, Buddhism, Islam and other New Age concepts earlier in an the track.  
+* On "Rich Spirit", the last verse ends with Kendrick specifically referencing the "New Earth" after making references to Christianity, Buddhism, Islam and other New Age concepts earlier in the track.  
 
   * *Takin' my baby to school, then **I pray for her**  
   'Cause you bitches ain't never been cool, **writin' testament**  
@@ -2374,7 +2379,7 @@ You'll get a better sense of the context and progression if you go through the l
 
 * Whether Kendrick is currently seeing a vision of the traditional Christian understanding of a “New Earth” or the New Age version, the reference to a peaceful "New Earth" is in sharp contrast to the increasingly violent rhetoric that Kendrick is using throughout the verse.  
  
-* Kendrick seems to be implying that the end goal of a "New Earth" justifies the means of violent and inhumane vigilante executions. This "ends-justify-the-means" logic twists the prophetic vision of a "New Earth" into dystopian, totalitarian vision of a bloody revolution and political purge.  
+* Kendrick seems to be implying that the end goal of a "New Earth" justifies the means of violent and inhumane vigilante executions. This "ends-justify-the-means" logic twists the prophetic vision of a "New Earth" into a dystopian, totalitarian vision of a bloody revolution and political purge.  
 
 {{< /details >}}
 
@@ -2386,17 +2391,17 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "Let's kill the followers that follow up on poppin' mollies" > Mollies
 
-* After ordering the executions of social media influencers on the previous verse, Kendrick is now adding the followers of those influencers to the execution list.  
+* After ordering the executions of social media influencers in the previous verse, Kendrick is now adding the followers of those influencers to the execution list.  
  
-* In particular he calls out the follower who are “poppin mollies”. "Molly" is slang for the pure, molecular—from which we get the name molly—form of psychoactive drug MDMA. This pure form of MDMA is distinguished from the drug ecstasy in which MDMA is mixed with other substances.  
+* In particular, he calls out the followers who are “poppin' mollies.” "Molly" is slang for the pure, molecular form—from which we get the name "molly"—of the psychoactive drug MDMA. This pure form of MDMA is distinguished from ecstasy, in which MDMA is mixed with other substances.  
  
-* MDMA increases heart rate, makes users feel more energetic, induces increased emotional and sensory experience, increases feelings of connection and empathy and overall leads to feelings of euphoria. However, these positive feelings can lead to an emotional crash and increased anxiety after the effects of the drug wears off.  
+* MDMA increases heart rate, makes users feel more energetic, induces increased emotional and sensory experience, increases feelings of connection and empathy, and overall leads to feelings of euphoria. However, these positive feelings can lead to an emotional crash and increased anxiety after the effects of the drug wear off.  
  
-* MDMA was originally used in the 1970s to assist with psychotherapy for conditions such a post traumatic stress disorder (PTSD). However, by the 1980s forms of MDMA and eventually molly began to be used as a “party drug” at raves, electronic music concerts and other dance parties. Molly's status as a “party drug” connects to the recurring motif of "the party" throughout “Watch the Party Die”.  
- 
-* Molly has also been referenced in the lyrics of a countless number of songs by "rappers that report the lies" and "parade in gluttony without givin' truth to the youth".  
- 
-* It seems that Kendrick now wants to execute the followers who have been using mollie in order to prevent the usage of the drug from spreading to other innocent lives and negatively affective society.  
+* MDMA was originally used in the 1970s to assist with psychotherapy for conditions such as post-traumatic stress disorder (PTSD). However, by the 1980s, forms of MDMA and eventually molly began to be used as a “party drug” at raves, electronic music concerts, and other dance parties. Molly's status as a “party drug” connects to the recurring motif of "the party" throughout “Watch the Party Die.”  
+
+* Molly has also been referenced in the lyrics of countless songs by "rappers that report the lies" and "parade in gluttony without givin' truth to the youth."  
+
+* It seems that Kendrick now wants to execute the followers who have been using molly in order to prevent the usage of the drug from spreading to other innocent lives and negatively affecting society.  
 
 {{< /details >}}
 
@@ -2408,13 +2413,13 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "from the obvious degenerates" > Degenerates
 
-* The “followers” who are “poppin mollie” seems to be following the influence of people who Kendrick describes as “degenerates”. The word "degenerate" refers morally corrupt people or more generally to people who have lost desirable physical, mental or social characteristics.  
- 
-* Labeling a certain group of people with a term like “degenerates” has historicaly been a propaganda strategy for totalitarian rulers to justify eliminating certain cultural influences or killing off certain group of people.
- 
-* Most notably, in the Nazi Party in Germany began to describe modern art with the term "Entartete Kunst" meaning "Degenerate Art". In the 1930s, during the dictatorship of Adolf Hitler, German modernist art was removed from state-owned museums and banned in Nazi Germany because such art was deemed "an insult to German feeling". The Nazi party also ran a propaganda campaign against "Degenerate Music" which specifically targeted jazz music due to its "Negroid excesses in tempo" and "Jewishly gloomy lyrics."  
- 
-* Given that Nazi propaganda would have labeled Kendrick's own form of hip hop music as "Degenerate Music", it is ironic that Kendrick is not labeling other media influencers as degenerates and executing them alongside "the radio personality pushin’ propaganda for salary".  
+* The “followers” who are “poppin' mollies” seem to be following the influence of people who Kendrick describes as “degenerates.” The word "degenerate" refers to morally corrupt people or, more generally, to people who have lost desirable physical, mental, or social characteristics.  
+
+* Labeling a certain group of people with a term like “degenerates” has historically been a propaganda strategy for totalitarian rulers to justify eliminating certain cultural influences or killing off certain groups of people.  
+
+* Most notably, the Nazi Party in Germany began to describe modern art with the term "Entartete Kunst," meaning "Degenerate Art." In the 1930s, during the dictatorship of Adolf Hitler, German modernist art was removed from state-owned museums and banned in Nazi Germany because such art was deemed "an insult to German feeling." The Nazi Party also ran a propaganda campaign against "Degenerate Music," which specifically targeted jazz music due to its "Negroid excesses in tempo" and "Jewishly gloomy lyrics."  
+
+* Given that Nazi propaganda would have labeled Kendrick's own form of hip-hop music as "Degenerate Music," it is ironic that Kendrick is now labeling other media influencers as degenerates and executing them alongside "the radio personality pushin’ propaganda for salary."  
 
 
 {{< /details >}}
@@ -2427,9 +2432,9 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "that's failing to acknowledge the hope that we tryna spread" > Hope
 
-* Kendrick again seems to be highlighting the hope of a "New Earth" that can be created after all of the wicked hosts and attendees of "the party" are elimiated from society.  
+* Kendrick again seems to be highlighting the hope of a "New Earth" that can be created after all of the wicked hosts and attendees of "the party" are eliminated from society.  
 
-* Kendrick seems to be implying that the "degenerates" among the media influencers are spreading cynical criticism of Kendrick's message of hope. This assessement is conistent with the lines from the first verse where Kendrick said:  
+* Kendrick seems to be implying that the "degenerates" among the media influencers are spreading cynical criticism of Kendrick's message of hope. This assessment is consistent with the lines from the first verse where Kendrick said:  
 
   * ***Influencers talk down 'cause I'm not with the basic shit**  
   But they don't hate me, **they hate the man that I represent***  
@@ -2448,22 +2453,22 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "If I'm not his vote then you need to bring his fuckin' head" > Vote
 
-* Kendrick's campaign of totalitarian executions seems to be taking place that is a nominal democracy. Elections are still being held and Kendrick could theoretically be voted out of power. However, if anyone tries to oppose him by running an effective opposition campain or even casting a vote for the opposition, Kendrick wants such a person to be beheaded.  
- 
-* This kind of election where voters are not free to cast their vote without suffering retribution for voting against the ruling party is often referred to as a "sham election".  
- 
-* Months before the release of "Watch the Party Die" in March of 2024, the United States and other Western European allies denounced Russia's presidential election as a "sham election" after Vladimir Putin was re-elected as President of Russia with 88% of vote, which happed to be the highest percentage vote in the history of Russian democracy.  
- 
-* Vladimir Putin's re-election follows more than a decade in which political opposition leaders have been harrassed, silenced, imprisoned and assasinated. The most recent casualty was Alexei Navalny who died in a Russian prison under suspicious circumstances in February of 2024, just a month before the election.  
- 
-* On the track "Savior" from *Mr. Morale & the Big Steppers*, Kendrick specifially highlighted Vladimir Putin as an example of oppresive leadership after he invaded Ukraine in Febrary of 2022 after claiming that Ukraine was governed by a neo-Nazi regime.  
+* Kendrick's campaign of totalitarian executions seems to be taking place in a nominal democracy. Elections are still being held, and Kendrick could theoretically be voted out of power. However, if anyone tries to oppose him by running an effective opposition campaign or even casting a vote for the opposition, Kendrick wants such a person to be beheaded.  
 
-  * **Vladimir making nightmares  
+* This kind of election, where voters are not free to cast their vote without suffering retribution for voting against the ruling party, is often referred to as a "sham election."  
+
+* Months before the release of "Watch the Party Die" in March of 2024, the United States and other Western European allies denounced Russia's presidential election as a "sham election" after Vladimir Putin was re-elected as President of Russia with 88% of the vote, which happened to be the highest percentage vote in the history of Russian democracy.  
+
+* Vladimir Putin's re-election follows more than a decade in which political opposition leaders have been harassed, silenced, imprisoned, and assassinated. The most recent casualty was Alexei Navalny, who died in a Russian prison under suspicious circumstances in February of 2024, just a month before the election.  
+
+* On the track "Savior" from *Mr. Morale & the Big Steppers*, Kendrick specifically highlighted Vladimir Putin as an example of oppressive leadership after he invaded Ukraine in February of 2022 after claiming that Ukraine was governed by a neo-Nazi regime.  
+
+  * ***Vladimir making nightmares  
   But that's how we all think**  
   The collective conscious  
-  Calamities on repeat  
+  Calamities on repeat*  
 
-* While Kendrick did highlight Vladimir Putin's destructive behavior on "Savior", Kendrick overall point seemed to be that Vladimir Putin is not unique or even outside of the norm. Instead, Kendrick asserted that Vladimir Putin's behavior simply reveals the way that all of us natrually think. Here on "Watch the Party Die", Kendrick proudly expresses this collective way thought as he seeks to eliminate anyone who does not support his vigilante campaign.  
+* While Kendrick did highlight Vladimir Putin's destructive behavior on "Savior," Kendrick's overall point seemed to be that Vladimir Putin is not unique or even outside of the norm. Instead, Kendrick asserted that Vladimir Putin's behavior simply reveals the way that all of us naturally think. Here on "Watch the Party Die," Kendrick proudly expresses this collective way of thought as he seeks to eliminate anyone who does not support his vigilante campaign.  
 
 {{< /details >}}
 
@@ -2471,23 +2476,23 @@ You'll get a better sense of the context and progression if you go through the l
 
 #### "you need to bring his fuckin' head or film that shit in hi-res" > Bring his head
 
-* Kendrick again exhibits sadistic tendencies as he demands to see the decapitated head of the person who did not vote for Kendrick. The executioners must either bring the decapitated head to Kendrick to see or they must film the decapitation in a high resolution video format so that Kendrick can see all of the small details when he watches the recording.  
- 
-* It is also notable that the Gospel accounts of St. Matthew, St. Mark, and St. Luke all tell the story about a wicked queen who conspires to have the king order the beheading of a John, the great prophet who baptized Jesus. Moreover, she got the king to bring John's head to her on a dinner platter.  
+* Kendrick again exhibits sadistic tendencies as he demands to see the decapitated head of the person who did not vote for Kendrick. The executioners must either bring the decapitated head to Kendrick to see or they must film the decapitation in a high-resolution video format so that Kendrick can see all of the small details when he watches the recording.  
+
+* It is also notable that the Gospel accounts of St. Matthew, St. Mark, and St. Luke all tell the story about a wicked queen who conspires to have the king order the beheading of John, the great prophet who baptized Jesus. Moreover, she got the king to bring John's head to her on a dinner platter.  
      
-  * John the Baptist was Jesus's cousin and was highly respected prophet who called the Israelites to "repent" \(i.e. change their way of thinking\) and be baptized. John also spoke out against the unjust actions of powerful figures including Herod, the puppet king of a Roman-controlled, Israelite region called Galilee.  
-   
+  * John the Baptist was Jesus's cousin and was a highly respected prophet who called the Israelites to "repent" (i.e., change their way of thinking) and be baptized. John also spoke out against the unjust actions of powerful figures, including Herod, the puppet king of a Roman-controlled Israelite region called Galilee.  
+     
   * John the Baptist publicly criticized King Herod, telling him that it was not right or just for him to take his own brother's wife, Herodias, so that he could marry her for himself.  
-   
-  * The new queen, Herodias, became very angry at St. John the Baptist and got King Herod to arrest John. Still the queen was not satisfied with just arresting St. John. She wanted him to be killed even though the king was very reluctant to do so. Queen Herodias then looked for a way to kill the prophet John, much like Queen Jezebel looked for a way to kill the prophet Elijah.  
-   
-  * Then when King Herod threw a birthday party for himself, the queen sent her daughter to dance for Herodias and his guests at the party. The queen's daughter's dancing was apparently so stimulating and pleasurable for King Herod that without thinking he made an oath in front of all his guests that he would give the queen's daughter whatever she wanted.  
-   
-  * The daughter consulted with her mother, who immediately told her to ask the king to bring her the head of John the Baptist on a dinner platter. The king was sad and upset with himself because he really didn't want to kill John, but because he had made the oath in front of his guests and was too proud to look dishonorable by going back on his word, he agreed. He immediately ordered soldiers to decapitate John the Baptist and bring the head on a platter to the daughter who then presented it to the queen.  
+     
+  * The new queen, Herodias, became very angry at St. John the Baptist and got King Herod to arrest John. Still, the queen was not satisfied with just arresting St. John. She wanted him to be killed, even though the king was very reluctant to do so. Queen Herodias then looked for a way to kill the prophet John, much like Queen Jezebel looked for a way to kill the prophet Elijah.  
+     
+  * Then, when King Herod threw a birthday party for himself, the queen sent her daughter to dance for Herod and his guests at the party. The queen's daughter's dancing was apparently so stimulating and pleasurable for King Herod that, without thinking, he made an oath in front of all his guests that he would give the queen's daughter whatever she wanted.  
+     
+  * The daughter consulted with her mother, who immediately told her to ask the king to bring her the head of John the Baptist on a dinner platter. The king was sad and upset with himself because he really didn't want to kill John, but because he had made the oath in front of his guests and was too proud to look dishonorable by going back on his word, he agreed. He immediately ordered soldiers to decapitate John the Baptist and bring the head on a platter to the daughter, who then presented it to the queen.  
    
-* The fact that John the Baptist was decapitated due to a party where a younger girl danced in a sensual way to gratify a group of powerful men brings us back to the motif of "the party" and the alleged trafficing of underage girls for sex parties at Drake's mansion.  
+* The fact that John the Baptist was decapitated due to a party where a younger girl danced in a sensual way to gratify a group of powerful men brings us back to the motif of "the party" and the alleged trafficking of underage girls for sex parties at Drake's mansion.  
  
-* At the same time, by demanding for his executionors to bring him a the head of the man who refused to vote for him, Kendrick, the King of LA, is now playing the role of King Herod and Queen Herodias who unjustly killed the prophet, John the Baptist.  
+* At the same time, by demanding for his executioners to bring him the head of the man who refused to vote for him, Kendrick, the King of LA, is now playing the role of King Herod and Queen Herodias, who unjustly killed the prophet, John the Baptist.  
 
 {{< /details >}}
 
@@ -4439,10 +4444,10 @@ You'll get a better sense of the context and progression if you go through the l
  
 * Lecrae decided to release this verse on his own rather than Kendrick inviting him to do so as part of a remix or extended version. That being said, on two separate lines within the third verse of “Watch the Party Die”, Kendrick did say that he wondered “what Lecrae would do”.
 
-  * Sometimes I wonder what Lecrae would do  
+  * *Sometimes **I wonder what Lecrae would do**  
   Fuck these niggas up or show 'em just what prayer do?  
   ...  
-  A nigga wonder what Lecrae would do  
+  **A nigga wonder what Lecrae would do***  
 
 * Lecrae thus seems to have reasonably concluded that those two lines from “Watch the Party Die” were an open invitation for him to write and release his verse on "Die for the Party".  
 
@@ -4484,7 +4489,18 @@ You'll get a better sense of the context and progression if you go through the l
  
 * "Clout chasers" can be seen as a form of “culture vulture” since "clout chasers" are metaphorically scavenging off of someone else who has been “killing it” rather than using their own skills, discipline or hard work to eat what they kill. Thus, "clout chasing" is also a way for someone to avoid "paying dues" or working hard, as Kendrick mentioned in the first verse.  
  
-* It is notable that on the battle track "THE HEART PART 6", Drake accused Kendrick of "clout chasing" as Drake denied Kendrick's allegations that Drake was involved in pedophilia and sex trafficing.  
+* Kendrick previously described "clout chasing" as a "disease" on "Rich Spirit" from *Mr. Morale & the Big Stepper*.  
+
+  * *Frat brother, real nigga, that brother  
+  We just upped the score, give me dap, brother  
+  Spirit medium, I don't rap, brother  
+  We headed there now, are you strapped brother?  
+  Ayy, peacemaker, but I'm not naïve, brother  
+  Ayy, gotta watch your homies and police, brother  
+  Ayy, **clout chasing hell of a disease**, brother  
+  I'm fasting four days out the week, brother*  
+
+* It is also notable that on the battle track "THE HEART PART 6", Drake accused Kendrick of "clout chasing" as Drake denied Kendrick's allegations that Drake was involved in pedophilia and sex trafficing.  
 
   * *Album droppin' soon, no wonder **you turn to a clout chaser 'stead of doin' hard labor***  
 
