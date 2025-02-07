@@ -1217,9 +1217,9 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "God, give me life, dear God, please give me peace" > Kendrick's prayers
 
-* In contrast to the verses of “Watch the Party Die”, which seem to be persuasive rhetoric addressed to those who will support Kendrick's campaign of vigilante executions, the chorus seems to be a prayer that is addressed to God.  
+* In contrast to the verses of “Watch the Party Die,” which seem to be persuasive rhetoric addressed to those who will support Kendrick's campaign of vigilante executions, the chorus seems to be a prayer that is addressed to God.  
  
-* The idea of praying to God is a recurring motif in Kendrick's work going all the way back to the track "Faith" on Kendrick's first project under the name Kendrick Lamar, the 2009 *Kendrick Lamar EP*.  
+* The idea of praying to God is a recurring motif in Kendrick's work, going all the way back to the track "Faith" on Kendrick's first project under the name Kendrick Lamar, the 2009 *Kendrick Lamar EP*.  
 
   * *I found myself losing focus **at a Sunday service**  
   Embarrassed so **I start questioning God, "What is my purpose?"**  
@@ -1230,7 +1230,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   And this from a person that never believed in religion  
   But shit, my life is so fucked up, man, I can't help but give in*  
 
-* In 2012, Kendrick used his major label debut album, *good kid, m.A.A.d city* to tell the backstory of how he first became a Christian. The album's first track, "Sherane a.k.a Master Splinter's Daughter", begins with Kendrick and his homies saying a version of the ["Sinners Prayer"](https://en.wikipedia.org/wiki/Sinner%27s_prayer) to receive Jesus as there "personal savior". This prayer is later heard within the narrative context during the pivotal moment in "Sing About Me, I'm Dying of Thirst" when an older Christian woman approachs Kendrick and his homies and implores them to start a new way of life after Kendrick's friend Dave died in a gang shootout.
+* In 2012, Kendrick used his major label debut album, *good kid, m.A.A.d city*, to tell the backstory of how he first became a Christian. The album's first track, "Sherane a.k.a Master Splinter's Daughter," begins with Kendrick and his homies saying a version of the ["Sinner’s Prayer"](https://en.wikipedia.org/wiki/Sinner%27s_prayer) to receive Jesus as their "personal savior." This prayer is later heard within the narrative context during the pivotal moment in "Sing About Me, I'm Dying of Thirst" when an older Christian woman approaches Kendrick and his homies and implores them to start a new way of life after Kendrick's friend Dave was killed in a gang shootout.  
 
   * *Young man, come talk to me! Is that what I think that is?  
   I know that's not what I think that is  
@@ -1254,7 +1254,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   Alright now, remember this day  
   **The start of a new life, your REAL life***.  
 
-* On Kendrick's second major label album, *To Pimp a Butterfly*, Kendrick rapped from the perspective of Lucy (aka Lucifer / the devil / the satan / the false accuser / the diabolical one). Lucy acknowledges that Lucy heard Kendrick saying the "Sinner's Prayer" to God the Father on *good kid, m.A.A.d city*, but was nonetheless confident that Kendrick would abandon God and pursue Lucy.  
+* On Kendrick's second major label album, *To Pimp a Butterfly*, Kendrick rapped from the perspective of Lucy (aka Lucifer / the devil / the satan / the false accuser / the diabolical one). Lucy acknowledges that she heard Kendrick saying the "Sinner's Prayer" to God the Father on *good kid, m.A.A.d city*, but is nonetheless confident that Kendrick would abandon God and pursue Lucy.  
 
   * *You said **Sherane ain't got nothing on Lucy**  
   ...  
@@ -1263,7 +1263,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   **I'm Lucy, I loosely heard prayers on your first album**, truly  
   Lucy don't mind, 'cause **at the end of the day you'll pursue me***  
 
-* On Kendrick's third major label album, *DAMN.*, Kendrick \(or Kung Fu Kenny\) repeatedly expressed feelings of sadness and frustration because he felt that nobody was praying for him. Then during the album's pibotal track, "FEAR.", Kendrick's cousin, Carl Duckworth, left a voicemail explaining that Kendrick's feelings of sadness and frustration were not due to a lack of people praying for him but were instead do to Kendrick's own lack of faithfulness in following the Lord's commandments.  
+* On Kendrick's third major label album, *DAMN.*, Kendrick (or Kung Fu Kenny) repeatedly expressed feelings of sadness and frustration because he felt that nobody was praying for him. Then, during the album's pivotal track, "FEAR.," Kendrick's cousin, Carl Duckworth, left a voicemail explaining that Kendrick's feelings of sadness and frustration were not due to a lack of people praying for him but were instead due to Kendrick's own lack of faithfulness in following the Lord's commandments.  
 
   * *New Kung Fu Kenny  
   **Ain't nobody prayin' for me**  
@@ -1300,7 +1300,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   Until you follow His commandments, you gonna feel that way...*  
   -"FEAR."
 
-* On Kendrick's fourth major label album, *Mr. Morale and the Big Steppers*, Kendrick seemed to depict himself as being—at least temporarily—distant from God and detached from his identity as a Christian while exploring alternative spiritual practices including praying to flowers and trees.
+* On Kendrick's fourth major label album, *Mr. Morale and the Big Steppers*, Kendrick seemed to depict himself as being—at least temporarily—distant from God and detached from his identity as a Christian while exploring alternative spiritual practices, including praying to flowers and trees.  
 
   * *Yesterday, **I prayed to the flowers and trees**  
   Gratification to the powers that be  
@@ -1314,7 +1314,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   ...  
   I **pray our children don't inherit me** and feelings I attract*
 
-* On Kendrick's first battle track, "euphoria", Kendrick implied that Drake was an absentee father while rapping about the role as a father, including responsibility of teaching one's son to pray.  
+* On Kendrick's first battle track, "euphoria," Kendrick implied that Drake was an absentee father while rapping about his own role as a father, including the responsibility of teaching one's son to pray.  
 
   * *Why would I call around tryna get dirt on niggas? Y'all think all my life is rap?  
   That's ho shit, **I got a son to raise**, but I can see you don't know nothin' 'bout that  
@@ -1324,7 +1324,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   Teachin' him morals, integrity, discipline, listen, man, you don't know nothin' 'bout that  
   **Speakin' the truth and consider what God's considerin'**, you don't know nothin' 'bout that*  
 
-* On Kendrick's second battle record, "6:16 in LA", Kendrick spoke directly to God while seemingly confessing that he was engaging in the battle with Drake in part because his identity is wrapped up in being a solider who needs to go to war in order to have a stable identity.  
+* On Kendrick's second battle record, "6:16 in LA," Kendrick spoke directly to God while seemingly confessing that he was engaging in the battle with Drake in part because his identity was wrapped up in being a soldier who needs to go to war in order to have a stable identity.  
 
   * *Who could reach us? Only God could teleport this type of freedom  
   **God**, ah, my confession is yours  
@@ -1336,7 +1336,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "God, give me life, dear God, please give me peace" > The Lord's Prayer
 
-* The idea of a perosn praying for God to give them what they truly need is one of the central points of the most famous and univeral Christian prayer, which is known as the "Lord's Prayer". Thos who pray the Lord's Prayer asks for God the Father to give them their "daily bread" in referrence to the essential physical and spiritual need on a daily basis in order to live.  
+* The idea of a person praying for God to give them what they truly need is one of the central points of the most famous and universal Christian prayer, which is known as the "Lord's Prayer." Those who pray the Lord's Prayer ask for God the Father to give them their "daily bread" in reference to the essential physical and spiritual needs on a daily basis in order to live.  
 
   * ***Our Father**, who is in heaven,  
   hallowed be Your name.  
@@ -1348,16 +1348,16 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   and lead us not into temptation,  
   but deliver us from the evil one.*   
 
-* The idea of "bread" being symbolic for the things that someone needs to live is further explored in a story where Jesus multiplies five loves of bread in order to feed five thousand men and their families \(See [Matthew 14:13-21](https://www.biblegateway.com/passage/?search=Matthew%2014%3A13-21&version=NASB) or [John 6:1-15](https://www.biblegateway.com/passage/?search=John%206%3A1-15&version=NASB)\).  
+* The idea of "bread" being symbolic of the things that someone needs to live is further explored in a story where Jesus multiplies five loaves of bread in order to feed five thousand men and their families \(See [Matthew 14:13-21](https://www.biblegateway.com/passage/?search=Matthew%2014%3A13-21&version=NASB) or [John 6:1-15](https://www.biblegateway.com/passage/?search=John%206%3A1-15&version=NASB)\).  
  
-* Later, after a crowd of those who ate the multiplied bread started to focus exclusively on their desire for Jesus to fulfill their physical hunger for physical bread, Jesus told the crowd that he himself is the spiritual "bread of life" and that anyone who eats Jesus as the "bread of life" will live forever.
+* Later, after a crowd of those who ate the multiplied bread began to focus exclusively on their desire for Jesus to fulfill their physical hunger for earthly bread, Jesus told the crowd that he himself is the spiritual "bread of life" and that anyone who eats Jesus as the "bread of life" will live forever.  
 
   * *Jesus said to them, “**I am the bread of life**; the one who comes to Me will not be hungry, and the one who believes in Me will never be thirsty. For **this is the will of My Father, that everyone who sees the Son and believes in Him will have eternal life**, and I Myself will raise him up on the last day. **I am the bread of life**. Your fathers ate the manna in the wilderness, and they died. This is the bread that comes down out of heaven, so that **anyone may eat from it and not die. I am the living bread that came down out of heaven; if anyone eats from this bread, he will live forever; and the bread which I will give for the life of the world also is My flesh**. Truly, truly, I say to you, **unless you eat the flesh of the Son of Man and drink His blood, you have no life in yourselves. The one who eats My flesh and drinks My blood has eternal life**, and I will raise him up on the last day. For My flesh is true food, and My blood is true drink. The one who eats My flesh and drinks My blood remains in Me, and I in him. Just as the living Father sent Me, and I live because of the Father, **the one who eats Me, he also will live because of Me. This is the bread that came down out of heaven, not as the fathers ate and died; the one who eats this bread will live forever.***  
   -Matthew 6:35,40,48-58
 
-* Later, just before Jesus was arrrested and executed on a cross, he shared a meal of bread and wine his disciples and told them that the bread was his body and the wine was his blood. This particular meal of Jesus's disciplles eating bread as Jesus's body and drinking wine as Jesus's blood became a the most central Christian spiritual practice known as the "communion", the "Eucharist" or the "Lord's Supper".   
+* Later, just before Jesus was arrested and executed on a cross, he shared a meal of bread and wine with his disciples and told them that the bread was his body and the wine was his blood. This particular meal of Jesus's disciples eating bread as Jesus's body and drinking wine as Jesus's blood became the most central Christian spiritual practice, known as the "Communion," the "Eucharist," or the "Lord's Supper."  
 
-  * ***Jesus took some bread**, and after a blessing, He broke it and **gave it to the disciples, and said, "Take, eat; this is My body.”** nd when He had taken **a cup and given thanks, He gave it to them, saying, “Drink from it, all of you; for this is My blood of the \[covenant / agreement\]**, which is being poured out **for many for forgiveness of sins**.*  
+  * ***Jesus took some bread**, and after a blessing, He broke it and **gave it to the disciples, and said, "Take, eat; this is My body.”**And when He had taken **a cup and given thanks, He gave it to them, saying, “Drink from it, all of you; for this is My blood of the \[covenant / agreement\]**, which is being poured out **for many for forgiveness of sins**.*  
 
 * Hence, if we see Kendrick's prayer during the chorus of "Watch the Party Die" as an echo of the Lord's Prayer, we could conclude that what Kendrick truly needs to receive is Jesus himself and the new way of life that comes from living in close communion with Jesus. This is the same conclusion that was presented to Kendrick when the older Christian woman convinced Kendrick and his homies not to kill their enemies and instead led them to say the "Sinner's Prayer" at the end of "Sing About Me, I'm Dying of Thirst."  
 
@@ -1376,13 +1376,13 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "God, give me life, dear God, please give me peace" > God-given life
 
-* In addition to referring to himself as the "bread of life", Jesus also describes himself as "the life" on a few other occasions in St. John's account of the Gospel.  
+* In addition to referring to himself as the "bread of life," Jesus also describes himself as "the life" on a few other occasions in St. John's account of the Gospel.  
 
-  * After one of Jesus's friends died, Jesus told the sister of the friend, “I am the resurrection and the life”. Jesus then went on to resurrect his friend from death to life \(See [John 11:1-45](https://www.biblegateway.com/passage/?search=John%2011%3A1-45&version=NASB)\).  
+  * After one of Jesus's friends died, Jesus told the sister of the friend, “I am the resurrection and the life.” Jesus then went on to resurrect his friend from death to life (See [John 11:1-45](https://www.biblegateway.com/passage/?search=John%2011%3A1-45&version=NASB)).  
      
-  * In that same Gospel account, Jesus also told his disciples, "I am the way, the truth and the life” \(See [John 14:2-6](https://www.biblegateway.com/passage/?search=John%2014%3A2-6&version=NASB)\)  
+  * In that same Gospel account, Jesus also told his disciples, "I am the way, the truth, and the life” (See [John 14:2-6](https://www.biblegateway.com/passage/?search=John%2014%3A2-6&version=NASB)).  
 
-* Throughout St. John's account of the Gospel, Jesus repeatedly teaches that he came to earth not to kill or destroy humans but to give "eternal life" to all those who would listen to his teaching and believed in him.  
+* Throughout St. John's account of the Gospel, Jesus repeatedly teaches that he came to earth not to kill or destroy humans but to give "eternal life" to all those who would listen to his teaching and believe in him.  
 
   * *The Son of Man be lifted up, so that **everyone who believes will have eternal life in Him**. For **God so loved the world, that He gave His only Son, so that everyone who believes in Him will not perish, but have eternal life**. For God did not send the Son into the world to judge the world, but so that the world might be saved through Him.*  
   -John 3:14-17  
@@ -1428,7 +1428,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   * ***Jesus spoke** these things; and **raising His eyes to heaven, He said, “Father**, the hour has come; glorify **Your Son**, so that the Son may glorify You, just as You gave Him authority over all humanity, so that to all whom You have given Him, He **may give eternal life. this is eternal life, that they may know You, the only true God, and Jesus Christ** whom You have sent.*  
   -John 17:1-3  
 
-* Hence, when Kendrick prays "God, give me life", Kendrick is really praying for God to give him a close relationship with Jesus, who is life. This request is ironic because throughout the verses Kendrick seems to be ignoring Jesus's teachings about love and forgivness so that Kendrick can judge and execute the very same people who Jesus came to offer eternal life.  
+* Hence, when Kendrick prays, "God, give me life," Kendrick is really praying for God to give him a close relationship with Jesus, who is life. This request is ironic because, throughout the verses, Kendrick seems to be ignoring Jesus's teachings about love and forgiveness so that Kendrick can judge and execute the very same people whom Jesus came to offer eternal life.  
 
 {{< /details >}}
 
@@ -1436,22 +1436,21 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "God, give me life, dear God, please give me peace" > God-given peace
 
-* Just before he was arrested and executed, Jesus gave one final teaching to his disciples. In that final teaching, Jesus said that he was giving "peace" to his disciples. Moreover, Jesus clarified that that he himself is the peace that he was giving to his disciples. The disciples would receive this peace by listening to Jesus' words and remaining in close relationship with Jesus.  
+* Just before he was arrested and executed, Jesus gave one final teaching to his disciples. In that final teaching, Jesus said that he was giving "peace" to his disciples. Moreover, Jesus clarified that he himself is the peace that he was giving to his disciples. The disciples would receive this peace by listening to Jesus' words and remaining in a close relationship with him.  
 
   * ***Peace I leave with you. My peace I give to you**; not as the world gives, I give to you. Do not let your heart be troubled, neither let it be fearful. These things I have spoken to you so that **in Me you may have peace**. In the world you have oppression, but be of good courage for I have overcome the world.*  
   -John 14:27, 16:33  
 
-* Also, in Jesus's most famous collection of teachings, he declared that his disciples will be blessed with a close relationship to God the Father when they serve as peacemakers in the world.  
+* Also, in Jesus's most famous collection of teachings, he declared that his disciples would be blessed with a close relationship with God the Father when they serve as peacemakers in the world.  
 
   * **Blessed are the peacemakers**, for they **will be called children of God**.
   -Matthew 5:9
 
-* Hence, when Kendrick prays "dear God, please give me peace", Kendrick is really praying for God to give him a close relationship with Jesus, who is peace. This request is ironic because throughout the verses Kendrick seems to be ignoring Jesus's teachings about being a peacemaker so that Kendrick can try to overcome the evils of the world through violence.  
+* Hence, when Kendrick prays, "Dear God, please give me peace," Kendrick is really praying for God to give him a close relationship with Jesus, who is peace. This request is ironic because, throughout the verses, Kendrick seems to be ignoring Jesus's teachings about being a peacemaker so that Kendrick can try to overcome the evils of the world through violence.  
 
 {{< /details >}}
 
 {{< /details >}}
-
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Dear God, please keep these lame niggas away from me" >}}
 
@@ -1459,18 +1458,17 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Dear God, please keep these lame niggas away from me'" > Keep away from me
 
-* In slang, the word "lame" refers to anything that is not cool, refined or worthy of honor.  
-
-* Kendrick's prayer to keep "these lame niggas away" seems to echo the end of the Lord's Prayer which asks God the Father to lead his people away from tempting situations and away from the "evil one" in reference to the \[devil / satan / false accuser / diabolical one\].
+* In slang, the word "lame" refers to anything that is not cool, refined, or worthy of honor.  
+ 
+* Kendrick's prayer to keep "these lame niggas away" seems to echo the end of the Lord's Prayer, which asks God the Father to lead his people away from tempting situations and away from the "evil one," in reference to the ["devil" / "satan" / "false accuser" / "diabolical one"]. 
 
   * ***Lead us not into temptation**, but **deliver us from the evil one.***  
 
-* By praying to "keep these lame niggas away from me" Kendrick seems to be asserting that these "lame niggas" members of "the other side" which is opposed to "God's side". If Kendrick was to follow the example of Jesus and the early praying to transform these "lame niggas" so that they could repent, apologize and come to "God's side". 
+* By praying to "keep these lame niggas away from me," Kendrick seems to be asserting that these "lame niggas" are members of "the other side," which is opposed to "God's side." If Kendrick were to follow the example of Jesus and the early Christians, he would be praying to transform these "lame niggas" so that they could repent, apologize, and come to "God's side."  
 
 {{< /details >}}
 
 {{< /details >}}
-
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Dear God, keep me shinin'" >}}
 
@@ -1478,34 +1476,34 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Dear God, keep me shinin'" > Shining
 
-* In hip hop terminology, “shining” refers to wearing gaudy amounts of expensive, shiny diamond jewelry or otherwise making public displays of one's success, wealth and power.  
+* In hip-hop terminology, “shining” refers to wearing gaudy amounts of expensive, shiny diamond jewelry or otherwise making public displays of one's success, wealth, and power.  
  
-* Given that Kendrick earlier expressed his desire to kill rappers, influencers, and members of the entertainment industry who “parade in gluttony without givin' truth to the youth”, it is likely that Kendrick is not asking God to give him shiny jewelry.  
+* Given that Kendrick earlier expressed his desire to kill rappers, influencers, and members of the entertainment industry who “parade in gluttony without givin' truth to the youth,” it is likely that Kendrick is not asking God to give him shiny jewelry.  
  
 * Similar to the previous requests for life and peace, it seems more likely that Kendrick is making a request for spiritual well-being rather than material or financial well-being.  
  
-* In biblical terminology “shining” refers to the way in which people who follow God's commandments serve as bright example of how other humans should live.  
+* In biblical terminology, “shining” refers to the way in which people who follow God's commandments serve as a bright example of how other humans should live.  
  
-* In the introduction to St. John's account of the Gospel, St. John introduces Jesus by saying that Jesus is the "true light" who has existed even before the universe was created. Moreover, St. John asserts through Jesus's birth as a human, the "light" has now come down from the skies to "shine" on humans and penetrate through the darkness of human wickedness.  
+* In the introduction to St. John's account of the Gospel, St. John introduces Jesus by saying that Jesus is the "true light" who has existed even before the universe was created. Moreover, St. John asserts that through Jesus's birth as a human, the "light" has now come down from the skies to "shine" on humans and penetrate through the darkness of human wickedness.  
 
   * *In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were made through him. Without him, nothing was made that has been made. In him was life, and **the life was the light of humanity. The light shines in the darkness, and the darkness hasn't overcome it…the true light that enlightens everyone was coming into the world***  
 
-* Later in St. John's account of the Gospel, Jesus tells a crowd of listeners that he is the "light of the world" that humans can follow so that they find the light of life and no longer walk towards the darkness of death.
+* Later in St. John's account of the Gospel, Jesus tells a crowd of listeners that he is the "light of the world," and that humans can follow him so that they may find the light of life and no longer walk in the darkness of death.  
 
   * *Then Jesus again spoke to them, saying, “**I am the Light of the world; the one who follows Me will not walk in the darkness, but will have the Light of life**.”*  
   -John 8:12  
 
-* In addition to identifying himself as the "light of the word", in St. Matthew's account of the Gospel, Jesus also taught his disciples that they are the "light of the world" who are meant to "shine" the light of Jesus's way of life so that people in the world no longer have to walk towards the darkness of death.  
+* In addition to identifying himself as the "light of the world," in St. Matthew's account of the Gospel, Jesus also taught his disciples that they are the "light of the world," meant to "shine" the light of his way of life so that people in the world do not have to walk toward the darkness of death.  
 
   * ***You all are the light of the world**. A city located on a hill can't be hidden. Neither do you light a lamp and put it under a bucket, but on a lampstand; so it shines to all who are in the house. In the same way, **let your light shine before humans, so that they may see your good actions and glorify your Father who is in heaven**.*  
   -Matthew 6:14-16
 
-* By teaching that humans who are faithful to God will shine spiritual light to indicate how other humans should live, Jesus seems to be referring to a Old Testament prophesy from the Prophet Daniel.  
+* By teaching that humans who are faithful to God will shine spiritual light to indicate how other humans should live, Jesus seems to be referring to an Old Testament prophecy from the Prophet Daniel.  
 
-  * *Many of those who sleep \(i.e. are dead\) in the dust of the earth will awake, some to eternal life, and some to shame and eternal contempt. **Those who are wise will shine as the brightness of the sky. Those who turn many toward right relationship will shine as the stars forever and ever.***  
+  * *Many of those who sleep (i.e. are dead) in the dust of the earth will awake, some to eternal life, and some to shame and eternal contempt. **Those who are wise will shine as the brightness of the sky. Those who turn many toward right relationship will shine as the stars forever and ever.***  
   -Daniel 12:2-3  
 
-* Hence, by praying "Dear God, keep me shinin'", Kendrick is really praying for God to give him a close relationship with Jesus, who is light. This request is ironic because throughout the verses Kendrick seems to be ignoring Jesus's teachings about being a "light to the world" by being an example to those who are living in darkness and giving them an opportunity to turn towards right relationships with other humans. Rather than turning wicked people toward the light of life, Kendrick keeps expressing his desire to bring the darkness of death upon the hosts and attendees of the party.  
+* Hence, by praying, "Dear God, keep me shinin'," Kendrick is really praying for God to give him a close relationship with Jesus, who is light. This request is ironic because, throughout the verses, Kendrick seems to be ignoring Jesus's teachings about being a "light to the world" by being an example to those who are living in darkness and giving them an opportunity to turn toward right relationships with other humans. Rather than turning wicked people toward the light of life, Kendrick continues to express his desire to bring the darkness of death upon the hosts and attendees of the party.  
 
 {{< /details >}}
 
@@ -1519,15 +1517,15 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Pocket-watching, you must be the police" > Police
 
-* Kendrick's prayer to God seems to be interrupted as he wonders what the “lame niggas" who thinking about Kendrick. Kendrick seems to conclude that that the "lame niggas" are thinking that Kendrick is acting like a police officer who is "pocket-watching" them.  
+* Kendrick's prayer to God seems to be interrupted as he wonders what the “lame niggas" are thinking about him. Kendrick seems to conclude that the "lame niggas" are thinking that he is acting like a police officer who is "pocket-watching" them.  
  
-* "Pocket-watching" refers to the act of closely monitoring what another person is doing—particularly regarding their use of money—so that monitoring person can make some kind of judgement or assessment of the other person.  
+* "Pocket-watching" refers to the act of closely monitoring what another person is doing—particularly regarding their use of money—so that the monitoring person can make some kind of judgment or assessment of the other person.  
  
-* Within hip hop culture, rappers, hustlers and "steet niggas" often describe an adversarial relationship with the police, most famously on the legendary rap group NWA's hit single "Fuck tha Police."  
+* Within hip-hop culture, rappers, hustlers, and "street niggas" often describe an adversarial relationship with the police, most famously on the legendary rap group NWA's hit single "Fuck tha Police."  
  
-* By saying that Kendrick "must be the police", the "lame niggas" seem to be expressing some amount of nervousness that they might be caught, prosecuted, and judged for any illicit actions that they might have committed at "the party".  
+* By saying that Kendrick "must be the police," the "lame niggas" seem to be expressing some amount of nervousness that they might be caught, prosecuted, and judged for any illicit actions that they might have committed at "the party."  
  
-* The idea that Kendrick “must be the police” would also align with the battle track “meet the grahams”, where Kendrick claimed to be "policing" the "weird shit" going on in the entertainment industry after he dropped the bombshell allegation that Drake and his OVO crew have allegedly been sex trafficking under aged girls.  
+* The idea that Kendrick “must be the police” would also align with the battle track “meet the grahams,” where Kendrick claimed to be "policing" the "weird shit" going on in the entertainment industry after he dropped the bombshell allegation that Drake and his OVO crew have allegedly been sex trafficking underaged girls.  
 
   * *Sandra, sit down, what I'm about to say is heavy, now listen  
   Mm-mm, **your son's a sick man with sick thoughts, I think niggas like him should die**  
@@ -1553,18 +1551,18 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "God, bless these words. Dear God, bless how I think" > Bless
 
-* After wondering what the "lame niggas" were thinking about him, Kendrick goes back to praying to God. He now asks for God to "bless" the words that he is rapping and the words that he is thinking.  
+* After wondering what the "lame niggas" are** thinking about him, Kendrick goes back to praying to God. He now asks God to "bless" the words that he is rapping and the words that he is thinking.  
  
-* In biblical terminology a "blessing" refers to God giving preferential favor to a people, places, objects or things so that they may bring about more life and goodness on the earth.  
+* In biblical terminology, a "blessing" refers to God giving preferential favor to people, places, objects, or things so that they may bring about more life and goodness on the earth.  
  
-* In the very first narrative of the Bible, God gave a blessing to animals and then humans so that they would reproduce new life that fill the earth.
+* In the very first narrative of the Bible, God gave a blessing to animals and then humans so that they would reproduce new life to fill the earth.  
 
   * ***God created** the great sea creatures and **every living creature** that moves, with which the waters swarmed, according to their kind, and every winged bird according to its kind; and God saw that it was good. **God blessed them**, saying, “**Be fruitful and multiply**, and fill the waters in the seas, and let birds multiply on the earth.”  
      
   **God created humanity** in His own image, in the image of God He created him; male and female He created them. **God blessed them**; and God said to them, “**Be fruitful and multiply, and fill the earth**, and subdue it; and **rule over the fish of the sea and over the birds of the sky and over every living thing that moves on the earth**.”*
   -Genesis 1:21-23,27-28  
 
-* However, when humans are tempted by a devil in the form of a snake and disobey God's commandment by trying to define good and evil for themselves, their actions result in curse which leads to death and evil on the earth.  
+* However, when humans are tempted by the devil in the form of a snake and disobey God's commandment by trying to define good and evil for themselves, their actions result in *a curse that leads to death and evil on the earth.  
 
   * *Then the LORD **God said to the snake**,  
      
@@ -1612,7 +1610,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
      
   -Deuteronomy 28:1-6,15-19,28 30:15-16,19-20  
 
-* In the New Testament, Jesus and his chosen disciples commanded followers of Jesus love and bless their enemies and not to hate and curse them.
+* In the New Testament, Jesus and his chosen disciples commanded followers of Jesus love and bless their enemies and not to hate and curse them.  
 
   * *Jesus taught them saying, “You have heard that it was said, 'You shall love your neighbor and hate your enemy.' But I say to you, **love your enemies and pray for those who persecute you, so that you may prove yourselves to be children of your Father who is in heaven**; for He causes His sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous.*  
   -Matthew 5:43-45
@@ -1628,16 +1626,16 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "God, bless these words. Dear God, bless how I think" > DAMN.
 
-* It is notable that the title for Kendrick's album, *DAMN.*, is shortening of the word "damnation" which is a synonym for "curse." and the oppostive of a "blessing".  
+* It is notable that the title for Kendrick's album, *DAMN.*, is a shortening of the word "damnation," which is a synonym for "curse" and the opposite of a "blessing."  
  
-* "BLOOD." the first track on *DAMN.* opens a voice that presents a choice between life and death, similar to the choice that the Prophet Moses placed in front of the Israelites.  
+* "BLOOD.," the first track on *DAMN.*, opens with a voice that presents a choice between life and death, similar to the choice that the Prophet Moses placed in front of the Israelites.  
 
   * *Is it wickedness?  
   Is it weakness?  
   **You decide.  
   Are we gonna live or die**?*  
 
-* On "YAH." the third track on *DAMN.*, Kendrick identifies himself as an Israelite and refers to a conversation in which his cousin Carl Duckworth told him that he was "cursed" based on Moses's speech from Deuteronomy about blessings and curses.  
+* On "YAH.," the third track on *DAMN.*, Kendrick identifies himself as an Israelite and refers to a conversation in which his cousin Carl Duckworth told him that he was "cursed" based on Moses's speech from Deuteronomy about blessings and curses.  
 
   * ***I'm a Israelite**, don't call me black no mo'  
   That word is only a color, it ain't facts no mo'  
@@ -1645,7 +1643,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   Said** know my worth  
   And **Deuteronomy say that we all been cursed***  
 
-* On "FEAR." the pivotal track on *DAMN.*, we hear a voicemail in which Kendrick's cousin Carl Duckworth quotes from Deuteronomy chapter 28 and asserts that Kendrick is experiencing a cursed existence because he has not been following God's commandments.  
+* On "FEAR.," the pivotal track on *DAMN.*, we hear a voicemail in which Kendrick's cousin Carl Duckworth quotes from Deuteronomy chapter 28 and asserts that Kendrick is experiencing a cursed existence because he has not been following God's commandments.  
 
   * *What's up, family?  
   Yeah, it's **your cousin Carl, man, just givin' you a call**, man  
@@ -1694,24 +1692,24 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Dear God, draw the line, they tryna confuse 'em with me" > Drawing the line in the Old Testament
 
-* Kendrick seems to be asking God to make a distinction between himself and the “lame niggas" who Kendrick wants God to keep away from him.  
+* Kendrick seems to be asking God to make a distinction between himself and the “lame niggas" whom Kendrick wants God to keep away from him.  
  
-* Kendrick seems to be requesting something that is similar to what God did when he rescured the Israelites from slavery.  
+* Kendrick seems to be requesting something similar to what God did when he rescued the Israelites from slavery.  
  
-* Prior to being resuced the Israelites were enslaved by the Egyptian Pharaoh, who forced the Israelites to live in slave houses in a region near the capital of Egypt. When Pharaoah worried that the Israelite population was becoming too large, Pharaoh sent orders for soldier to kill every baby boy that was born to an Israelite mother.  
+* Prior to being rescued, the Israelites were enslaved by the Egyptian Pharaoh, who forced the Israelites to live in slave houses in a region near the capital of Egypt. When Pharaoh worried that the Israelite population was becoming too large, he sent orders for soldiers to kill every baby boy born to an Israelite mother.  
  
-* God saved one Israelite boy named Moses and later called Moses to be a prophet. God then sent Moses to confront Pharaoh by telling him to let the Israelites go free. When Pharaoh repeatedly refused, God used Moses to send plagues ten different plagues which brough death and destruction upon Egypt.  
+* God saved one Israelite boy named Moses and later called Moses to be a prophet. God then sent Moses to confront Pharaoh by telling him to let the Israelites go free. When Pharaoh repeatedly refused, God used Moses to send ten different plagues, which brought death and destruction upon Egypt.  
  
-* After the first nine plagues, God said that he was going to send a final tenth plague in which a spirit of death would pass through the capital of Egypt and the neighboring regions. This spirit of death would kill the first born sons and male animals of every household as a punishment for Pharaoh and the Egyptians killing the Israelties newborn sons.  
+* After the first nine plagues, God said that he was going to send a final tenth plague in which a spirit of death would pass through the capital of Egypt and the neighboring regions. This spirit of death would kill the firstborn sons and male animals of every household as a punishment for Pharaoh and the Egyptians for killing the Israelites' newborn sons.  
  
-* Since this plague of death was going to pass through the region of the Israelite slave houses, God told the Israelites that their sons and male animals would be spared for each Israelite houshold that celebrated a Passover (aka Pesach / Pascha) ritual meal. During the Passover meal, each Israelite family would kill a lamb, smear the blood on the posts and crossbar of their exterior door, and eat the lamb meat with unleavened bread. When the death spirit came across a door covered in lamb's blood it would “pass over” the house without killing the firstborn son or male animals.  
+* Since this plague of death was going to pass through the region of the Israelite slave houses, God told the Israelites that their sons and male animals would be spared if each Israelite household celebrated a Passover (aka Pesach / Pascha) ritual meal. During the Passover meal, each Israelite family would kill a lamb, smear the blood on the posts and crossbar of their exterior door, and eat the lamb meat with unleavened bread. When the spirit of death came across a door covered in lamb's blood, it would “pass over” the house without killing the firstborn son or male animals.  
  
-* God told Moses that by bringing death to the firstborn sons of Egypt while providing a way preserve the lives of the sons of Israel, God was created a line of separation between the Egyptians and the Israelites.  
+* God told Moses that by bringing death to the firstborn sons of Egypt while providing a way to preserve the lives of the sons of Israel, God was creating a line of separation between the Egyptians and the Israelites.  
 
   * There will be a great cry throughout all the land of Egypt, such as there has not been, nor will be any more. But against any of the children of Israel a dog won't even bark or move its tongue, against man or animal, **that you may know that the LORD makes a line of separation* between the Egyptians and Israel.  
   -Exodus 11:6-7  
 
-* Hence, by praying "Dear God, draw the line" and prevent anyone from confusing Kendrick with the "lame niggas", Kendrick seems to be asking God to kill the “lame niggas" similar to how God sent the spirit of death to killsthe sons of the Egyptian who liked taking the innocent lives of the Israelites in the Old Testament.  
+* Hence, by praying, "Dear God, draw the line" and prevent anyone from confusing Kendrick with the "lame niggas," Kendrick seems to be asking God to kill the “lame niggas," similar to how God sent the spirit of death to kill the sons of the Egyptians who took the innocent lives of the Israelites in the Old Testament.  
 
 {{< /details >}}
 
@@ -1719,31 +1717,31 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Dear God, draw the line, they tryna confuse 'em with me" > Drawing the line in the New Testament
 
-* In the New Testament, the are several instances where Jesus does speak a future day where he will separate the righteous from the wicked.  
+* In the New Testament, there are several instances where Jesus speaks of a future day when he will separate the righteous from the wicked.  
  
-* In St. Matthew's account of the Gospel, Jesus tells a parable about a land owner who instructs his servants to plant wheat seeds in a field. However, after the servants plant the wheat seeds, a deceptive adversary—who represents the \[devil / satan / false accuser / diabolical one\]—comes at night to plant seeds which will grow into weeds that look like wheat but do not produce any grain (See [Matthew 13:24-30,36-43](https://www.biblegateway.com/passage/?search=Matthew%2013%3A24-30%2C36-43&version=NASB)).  
+* In St. Matthew's account of the Gospel, Jesus tells a parable about a landowner who instructs his servants to plant wheat seeds in a field. However, after the servants plant the wheat seeds, a deceptive adversary—who represents the ["devil" / "satan" / "false accuser" / "diabolical one"]—comes at night to plant seeds that will grow into weeds that look like wheat but do not produce any grain (See [Matthew 13:24-30,36-43](https://www.biblegateway.com/passage/?search=Matthew%2013%3A24-30%2C36-43&version=NASB)).  
      
-  * When the wheat and the weeds begin to sprout up, the servants discover that someone has planted weeds among the wheat. The servants initially want to pull out all the weeds from the field. However, the land owner stops them.  
+  * When the wheat and the weeds begin to sprout up, the servants discover that someone has planted weeds among the wheat. The servants initially want to pull out all the weeds from the field. However, the landowner stops them.  
      
-  * The land owner tells the servants that because the wheat and the weeds look very similar at this stage of their development, if the servants try to pull up the weeds they may accidentally pull up some of the wheat thinking that they are weeds. Moreover, since the wheat and the weeds are planted so close together, even if they can accurately distinguish between the wheat and the weeds, pulling up the weeds may uproot the wheat.  
+  * The landowner tells the servants that because the wheat and the weeds look very similar at this stage of their development, if the servants try to pull up the weeds, they may accidentally pull up some of the wheat as well. Moreover, since the wheat and the weeds are planted so close together, even if they can accurately distinguish between them, pulling up the weeds may uproot the wheat.  
      
-  * The land owner tells the servants that it is not yet time to pull up the weeds. Instead, the land owner tells the servants to wait until the time of the harvest when all of the wehat has had the chance to be fruitful and produce grain. At that point, the servants will be able to accurately distinguish between the wheat and the weeds. The servants will then gather the wheat together and burn up the weeds to dispose of them.  
+  * The landowner tells the servants that it is not yet time to pull up the weeds. Instead, the landowner tells the servants to wait until the time of the harvest when all of the wheat has had the chance to be fruitful and produce grain. At that point, the servants will be able to accurately distinguish between the wheat and the weeds. The servants will then gather the wheat together and burn up the weeds to dispose of them.  
      
-  * Jesus explains that this parable is a metaphor for the "Last Judgment" at end of the world as we know it, when those who have lived lives with right relationships will be gathered together in God's new creation while the wicked are exclused from God's new creation.  
+  * Jesus explains that this parable is a metaphor for the "Last Judgment" at the end of the world as we know it, when those who have lived lives in right relationships will be gathered together in God's new creation, while the wicked are excluded from God's new creation.  
 
-* Within the context of "Watch the Party Die", Kendrick seems to be a kind of disobedient servant who refuses to listen to the land owner's instructions and is convinced that now is the time to pull out the weeds. If he continues to disobey the land owenrs instruction, Kendrick will end up destroying the lives of the those who will eventually produce good grain.  
+* Within the context of "Watch the Party Die," Kendrick seems to be a kind of disobedient servant who refuses to listen to the landowner's instructions and is convinced that now is the time to pull out the weeds. If he continues to disobey the landowner's instructions, Kendrick may end up destroying the lives of those who will eventually produce good grain.  
    
-* It is particularly ironic that in the first verse Kendrick described himself as a "the man that resides in patience" but by saying "I think it's time to watch the party die" Kendrick seems to be too impatient to wait for the time that the Lord has set to bring an end to wickedness.  
+* It is particularly ironic that in the first verse, Kendrick described himself as "the man that resides in patience," but by saying, "I think it's time to watch the party die," Kendrick seems to be too impatient to wait for the time that the Lord has set to bring an end to wickedness.  
  
-* Later in St. Matthew's account of the Gospel, Jesus tells another parable about the "Last Judgement" in which the Lord will be like a herder who takes a mixed herd of sheep and goats into the pastures. However, at the end of the day, the herder separates the sheep from the goats and places the sheep on his right side and the goats on his left side.  
+* Later in St. Matthew's account of the Gospel, Jesus tells another parable about the "Last Judgment," in which the Lord will be like a herder who takes a mixed herd of sheep and goats into the pastures. However, at the end of the day, the herder separates the sheep from the goats and places the sheep on his right side and the goats on his left side.  
      
-  * Jesus explains that the sheep represent people who have maintained right relationships with others, especially those who are in need. In contrast, the goats represents people who have not maintained right relationships with others, especially those who are in need.  
+  * Jesus explains that the sheep represent people who have maintained right relationships with others, especially those who are in need. In contrast, the goats represent people who have not maintained right relationships with others, especially those who are in need.  
      
-  * In the parable, many of the people who turn out to be sheep are not aware that they did anything in thier lives that would cause them to be included among the sheep. Similarly, many of the people who turn out to be goats are not aware that they failed to do things that would have allowed them to be included among the sheep.  
+  * In the parable, many of the people who turn out to be sheep are not aware that they did anything in their lives that would cause them to be included among the sheep. Similarly, many of the people who turn out to be goats are not aware that they failed to do things that would have allowed them to be included among the sheep.  
      
-  * The fact that the identity of the sheep and the goats is a surprise that is not revealed until the end of time as we know seems to suggest that all humans should not be quick to assume that someone else is a goat or assume that they themselves are sheep.  
+  * The fact that the identity of the sheep and the goats is a surprise that is not revealed until the end of time suggests that all humans should not be quick to assume that someone else is a goat or assume that they themselves are sheep.  
 
-* Within the context of "Watch the Party Die", seems to be convinced that he is one of the sheep. However, by advocating to burn down entire villages and ignoring Jesus's commandments to love his neighbor, Kendrick is acting more like a goat who has failed to maintain right relationships.  
+* Within the context of "Watch the Party Die," Kendrick seems to be convinced that he is one of the sheep. However, by advocating for burning down entire villages and ignoring Jesus's commandments to love his neighbor, Kendrick is acting more like a goat who has failed to maintain right relationships.  
 
 {{< /details >}}
 
@@ -1755,9 +1753,9 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Dear God, please forgive me, you knowin' how hard I tried" > Forgiveness in the New Testament
 
-* Kendrick's final request is for God to grant him forgiveness. In case God might not be included to forgive kendrick, Kendrick tried to justify himself by pointing out how hard he has tried to do what's right.  
- 
-* The request for God's forgviness echos the Lord's Prayer, which includes the following request:
+* Kendrick's final request is for God to grant him forgiveness. In case God might not be inclined to forgive him, Kendrick tries to justify himself by pointing out how hard he has tried to do what's right.  
+
+* The request for God's forgiveness echoes the Lord's Prayer, which includes the following request:  
 
   * ***Forgive us** our transgressions (i.e. violations of trust)  
   **as we forgive** those who transgress against us (i.e. violate our trust)*  
@@ -1767,33 +1765,33 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   * ***If you forgive** humans for their [transgressions / violations of trust], **your heavenly Father will also forgive you. But if you do not forgive** humans for their [transgressions / violations of trust], **your Father will also not forgive your [transgressions / violations of trust]**.*  
   -Matthew 6:14-15
 
-* Later on in St. Matthew's account of the Gospel, one of Jesus's disciples asked how many times he should forgive a brother who has sdone something wrong to him. In response, Jesus told his disciples a parable which reflected on the for necessity for God's people to forgive other humans because God has already forgiven his people to a much greater degree \(See [Matthew 18:21-35](https://www.biblegateway.com/passage/?search=Matthew%2018%3A21-35&version=NASB)\).  
+* Later on in St. Matthew's account of the Gospel, one of Jesus's disciples asked how many times he should forgive a brother who has done something wrong to him. In response, Jesus told his disciples a parable that reflected on the necessity for God's people to forgive other humans because God has already forgiven his people to a much greater degree (See [Matthew 18:21-35](https://www.biblegateway.com/passage/?search=Matthew%2018%3A21-35&version=NASB)).  
      
-  * In this parable there is a king—representing God the Father—who has many servants—representing different humans, particularly followers of Jesus.  
+  * In this parable, there is a king—representing God the Father—who has many servants—representing different humans, particularly followers of Jesus.  
      
-  * One of these servants has somehow borrowed large amounts of money from the king and now owes the king what in today's currency would be equivalent to $8 billion dollars.  
+  * One of these servants has somehow borrowed large amounts of money from the king and now owes the king what in today's currency would be equivalent to $8 billion.  
      
-  * When the king realizes how much money the servant owes him, the king announced plans to sell the servant into slavery along with the servant's wife and children in order to at least recuperate some money.  
+  * When the king realizes how much money the servant owes him, the king announces plans to sell the servant into slavery along with the servant's wife and children in order to at least recoup some money.  
      
-  * The servant then falls on the ground and begs the king not to sell him into slavery. He even tells the king that he will repay the equivalent of $8 billion dollar that he owes.  
+  * The servant then falls on the ground and begs the king not to sell him into slavery. He even tells the king that he will repay the equivalent of $8 billion that he owes.  
      
-  * The king has compassion on the servant, releases him from his impending slavery and forgives all of the servants debts.  
+  * The king has compassion on the servant, releases him from his impending slavery, and forgives all of the servant's debts.  
      
-  * However, immediately after having his debts forgiven, the first servant walks out of kings court and sees a second servant who owes the first servant what would be the equivalent of $14 thousand dollars.  
+  * However, immediately after having his debts forgiven, the first servant walks out of the king's court and sees a second servant who owes the first servant what would be the equivalent of $14,000.  
      
-  * The first servant immedateily grabs the second servant by the neck, begins choking him and demands that the second servant pay him back.  
+  * The first servant immediately grabs the second servant by the neck, begins choking him, and demands that the second servant pay him back.  
      
-  * The second servant then falls on the ground and begs the first servant servant to be patient and he will repay the equivalent of $14 thousand dollars that he owes.  
+  * The second servant then falls on the ground and begs the first servant to be patient, and he will repay the equivalent of $14,000 that he owes.  
      
-  * However, the first servant refuses to forgive the second servant. Instead, the first servant throws the second servant into a debtors prison where the second servant will be forced for work for three or more months in order to pay the first servant back.  
+  * However, the first servant refuses to forgive the second servant. Instead, the first servant throws the second servant into a debtor's prison, where the second servant will be forced to work for three or more months in order to pay the first servant back.  
      
-  * Soon the king finds out what the first servant did to the second servant and calls the first servant back to his court. The king becomes angry with the first servant and strongly condemns him for refusing to forgive a $14 thousand dollar debt after the king had forgiven him much, much larger $8 billion dollar debt.  
+  * Soon, the king finds out what the first servant did to the second servant and calls the first servant back to his court. The king becomes angry with the first servant and strongly condemns him for refusing to forgive a $14,000 debt after the king had forgiven him a much, much larger $8 billion debt.  
      
-  * The king then once again holds the first servant responsible for the $8 billion dollar debt. The king orders the first servant to be thrown into debtors prison until he has repaid the entire debt. This punishment is essentially a life sentence because it would take 164 thousand years of labor for the first servant to pay the king back.  
+  * The king then once again holds the first servant responsible for the $8 billion debt. The king orders the first servant to be thrown into debtor's prison until he has repaid the entire debt. This punishment is essentially a life sentence because it would take 164,000 years of labor for the first servant to pay the king back.  
 
-* Based on the Jesus's teaching on the Lord's Prayer and the parable of the unforgiving servant, it is deeply ironic that Kendrick is praying "Dear God, please forgive me" after he has refused to forgive Drake or anyone who has participated in "the party" and has even claimed "this shit done got too wicked to apologize."  
+* Based on Jesus's teaching on the Lord's Prayer and the parable of the unforgiving servant, it is deeply ironic that Kendrick is praying, "Dear God, please forgive me," after he has refused to forgive Drake or anyone who has participated in "the party" and has even claimed, "this shit done got too wicked to apologize."  
  
-* Moreover, based on Jesus's teaching, Kendrick's self-justification that God knows "how hard I tried" seems destined to fall on deaf ears and be rejected by God. Jesus dicussed how he would reject the pleas of individuls who claimed to do lots of things for God but refused to actually does God the Father.  
+* Moreover, based on Jesus's teaching, Kendrick's self-justification that God knows "how hard I tried" seems destined to fall on deaf ears and be rejected by God. Jesus discussed how he would reject the pleas of individuals who claimed to do lots of things for God but refused to actually do what God the Father commands.  
 
   * *Jesus taught his disciple saying, "**Not everyone who says to Me, 'Lord, Lord,' will enter the kingdom of heaven, but the one who does the will of My Fathe**r who is in heaven will enter. **Many will say to Me** on that day,  
      
@@ -1809,9 +1807,9 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Dear God, please forgive me, you knowin' how hard I tried" > Forgiveness in Kendrick's cataloge.
 
-* The need forgivness is a central theme within both *DAMN.* and *Mr. Morale and the Big Steppers*.
+* The need for forgiveness has been a central theme within both *DAMN.* and *Mr. Morale and the Big Steppers.*  
 
-* On “DNA.”, the second track of DAMN., Kendrick rapped about the fact his rough upbringing taught him so many things he needed to know to become successful in the would, but the one things that he wish he had received was to be nurtured in a way that would allow him to forgive others.  
+* On "DNA.", the second track of *DAMN.*, Kendrick rapped about the fact that his rough upbringing taught him so many things he needed to know to become successful in the world, but the one thing that he wished he had received was to be nurtured in a way that would allow him to forgive others.  
 
   * *I know murder, conviction  
   Burners, boosters, burglars, ballers, dead, redemption  
@@ -1819,7 +1817,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   **I wish I was fed forgiveness**  
   Yeah, yeah, yeah, yeah, soldier's DNA*
 
-* The theme of monetary debts in the parable of the unforgiving servant also reminds us of the track “XXX.” from *DAMN.*, where Kendrick tells a story about his friend's son who was killed because of “insufficient funds”. When the friend called Kendrick and asked for spiritual guidance from an anointed Chrisitan, Kendrick ignores Jesus's teachings by saying that he would never forgive someone who harmed any one of his family members and the friend should not forgive either.
+* The theme of monetary debts in the parable of the unforgiving servant also reminds us of the track "XXX." from *DAMN.*, where Kendrick tells a story about his friend's son who was killed because of "insufficient funds." When the friend called Kendrick and asked for spiritual guidance from an anointed Christian, Kendrick ignored Jesus's teachings by saying that he would never forgive someone who harmed any one of his family members and that the friend should not forgive either.  
 
   * *Yesterday, I got a call, like, from my dog, like 101  
   Said **they killed his only son because of insufficient funds**  
@@ -1841,7 +1839,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   Touch my daddy, touch my niece, touch my nephew, touch my brother  
   You should chip a nigga, then throw the blower in his lap***  
 
-* In the first verse of “Mother I Sober” from *Mr. Morale and the Big Steppers*, Kendrick acknowledged his battles with sex addiction, infidelity, and violations of trust in his relationships with Whitney, his fiance and the mother of his children. As he reckoned with the pain that he had caused to an innocent soul, Kendrick asked God whether he could be forgiven for what he had done.  
+* In the first verse of "Mother I Sober" from *Mr. Morale and the Big Steppers*, Kendrick acknowledged his battles with sex addiction, infidelity, and violations of trust in his relationships with Whitney, his fiancée, and the mother of his children. As he reckoned with the pain that he had caused to an innocent soul, Kendrick asked God whether he could be forgiven for what he had done.  
 
   * *Intoxicated, **there's a lustful nature** that I failed to mention  
   Insecurities that I project, **sleepin' with other women**  
@@ -1852,38 +1850,37 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   **Pure soul, even in her pain, know she cared for me**  
   Gave me a number, said she recommended some therapy*  
 
-* The theme of forgivness is noticably been absent within the diss tracks that Kendrick released during his battle with Drake. Here in "Watch the Party Die" Kendrick seems to fully reject the idea of forgiving anyone even as he prays for God to forgive him.  
+* The theme of forgiveness has noticeably been absent from the diss tracks that Kendrick released during his battle with Drake. Here in "Watch the Party Die," Kendrick seems to fully reject the idea of forgiving anyone even as he prays for God to forgive him.  
 
 {{< /details >}}
 
-{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Forgiveness in Kendrick's cataloge">}}
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Forgiveness and punishment">}}
 
-#### "Dear God, please forgive me, you knowin' how hard I tried" > Forgiveness in Kendrick's cataloge.
+#### "Dear God, please forgive me, you knowin' how hard I tried" > Forgiveness and punishment
 
-* I do think it is important to point out that within the context of Bible, forgiveness does not mean that society, law enforcement or victims should allow a crime to go unpunished or—even worse—allow a perpetrator to continue harming the victim or other future victims.  
+* I do think it is important to point out that within the context of the Bible, forgiveness does not mean that society, law enforcement, or victims should allow a crime to go unpunished or—even worse—allow a perpetrator to continue harming the victim or other future victims.  
 
-* This point is actually illustrated quite clearly by the Old Testament story of King David using his power to traffic a woman to his palace, force her to have sex with him, and then kill her husband to cover up a pregnancy. In that case, God sent a prophet to directly confront David about his evil and unjust actions. David admitted to being guilty under God's judgment, repented, was forgiven by God, and was spared from the death penalty. However, David's actions had real world consequences that led to the deaths of at least three of David's sons as well as a significant amount of societal shame which over time made countless numbers of men in David's time—along with later readers of the Bible—think twice about allowing uncontrolled sexual desire to lead them to coercing women or murdering people to cover up earlier acts of wickedness.  
+* This point is actually illustrated quite clearly by the Old Testament story of King David using his power to traffic a woman to his palace, force her to have sex with him, and then kill her husband to cover up a pregnancy. In that case, God sent a prophet to directly confront David about his evil and unjust actions. David admitted to being guilty under God's judgment, repented, was forgiven by God, and was spared from the death penalty. However, David's actions had real-world consequences that led to the deaths of at least three of David's sons as well as a significant amount of societal shame. Over time, this shame made countless men in David's time—along with later readers of the Bible—think twice about allowing uncontrolled sexual desire to lead them to coercing women or murdering people to cover up earlier acts of wickedness.  
 
-* One can also look at the New Testament story from St. John account of the Gospel in which a woman who was caught while she was having sex in an adulterous relationship. Unlike the case of the woman with King David, she had apparently chosen to engage in this sexual relationship. She was then brought in front of an all-male court of Judean religious leaders who appealed to Jesus to serve as a trial judge who would sentence her to death under the rules laid out in laws given to Moses \(See [John 8:1-11](https://www.biblegateway.com/passage/?search=John%208%3A1-11&version=NASB)\).  
+* One can also look at the New Testament story from St. John's account of the Gospel, in which a woman was caught while she was having sex in an adulterous relationship. Unlike the case of the woman with King David, she had apparently chosen to engage in this sexual relationship. She was then brought before an all-male court of Judean religious leaders who appealed to Jesus to serve as a trial judge to sentence her to death under the rules laid out in the laws given to Moses (See [John 8:1-11](https://www.biblegateway.com/passage/?search=John%208%3A1-11&version=NASB)).  
      
-  * Jesus sent all the accusers away by pointing out that they had themselves done things against the law of Moses that the Israelites were supposed to follow and thus should not feel that it was their right to condemn the woman to the death penalty.  
+  * Jesus sent all the accusers away by pointing out that they themselves had done things against the law of Moses that the Israelites were supposed to follow and thus should not feel that it was their right to condemn the woman to the death penalty.  
      
-  * Jesus had not done any actions that broke the law of Moses, so he theoretically had the right to condemn the woman to the death penalty. However, he chose not to. Instead, Jesus told the woman, "I do not condemn you. Go on your way. From now on, do not sin any more.”  
+  * Jesus had not done any actions that broke the law of Moses, so he theoretically had the right to condemn the woman to the death penalty. However, he chose not to. Instead, Jesus told the woman, "I do not condemn you. Go on your way. From now on, do not sin anymore."  
      
-  * In this case, Jesus let the woman go free without any additional punishment beyond the societal shame that she had already experienced and would likely continue to experience. Jesus didn't totally take this consequence away, though he did mitigate it to some degree by pointing out the lawless actions of her accusers.  
+  * In this case, Jesus let the woman go free without any additional punishment beyond the societal shame that she had already experienced and would likely continue to experience. Jesus did not completely remove this consequence, though he did mitigate it to some degree by pointing out the lawless actions of her accusers.  
      
-  * Moreover, Jesus warned her by saying “do not sin any more”. This statement echos a previous statement from Jesus after Jesus healed a man and told that man “Now you have become well. Do not sin anymore or something worse will happen to you”.  
+  * Moreover, Jesus warned her by saying, “Do not sin anymore.” This statement echoes a previous statement from Jesus after he healed a man and told him, “Now you have become well. Do not sin anymore, or something worse will happen to you.”  
      
-  * Hence, Jesus ultimate goal was for the woman not be immediatly killed for her wickedness but for her to find healing and be transformed in a way that she would be able to stop herself from acting in a way that would ruin her relationships and result in a negative final judgement at the end of time.  
+  * Hence, Jesus's ultimate goal was for the woman not to be immediately killed for her wickedness but for her to find healing and be transformed so that she would be able to stop herself from acting in a way that would ruin her relationships and result in a negative final judgment at the end of time.  
 
 {{< /details >}}
 
 {{< /details >}}
 
-{{< lyrics >}}
-I think it's time for me to watch the party die<br>
-Get 'em gone, we gon' watch the party die
-{{< / lyrics >}}
+{{< lyrics >}}I think it's time for me to watch the party die{{< / lyrics >}}
+
+{{< lyrics >}}Get 'em gone, we gon' watch the party die{{< / lyrics >}}
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Send 'em home, we gon' watch the party die" >}}
 
@@ -1891,7 +1888,7 @@ Get 'em gone, we gon' watch the party die
 
 #### "I think it's time...Get 'em gone...Send 'em home" > Watch the party die
 
-* After praying to God throughout most of the chorus, Kendrick ends the chorus by doubling down on the first line of the first verse. Kendrick further emphasizes his desire to execute the hosts and attendees of the party by saying "watch the party die" three times and adding the phrases "send 'em home" and "get'em gone", which are both slang phrases for killing someone.
+* After praying to God throughout most of the chorus, Kendrick ends the chorus by doubling down on the first line of the first verse. Kendrick further emphasizes his desire to execute the hosts and attendees of the party by saying "watch the party die" three times and adding the phrases "send 'em home" and "get 'em gone," which are both slang phrases for killing someone.  
 
 {{< /details >}}
 
