@@ -619,7 +619,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Why reason with these niggas if they can't see the future first?" > Future first
 
-* The phrase “see the future first” could be a reference to Frank Ocean’s track, “Nikes”.  
+* The phrase “see the future first” could be a reference to Frank Ocean’s track, “Nikes.”  
 
   * ***We'll let you guys prophesy**  
   **We gon' see the future first**  
@@ -628,9 +628,9 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   **Devil be possessin homies**  
   **Demons try to body jump***  
 
-* In the context of “Nikes”, the people who “see the future first” seem to be the ones who truly have a prophetic vision. These true prophets stand in contrast to those who talk as if they can prophesy but are not actually able to see the future in advance.  
+* In the context of “Nikes,” the people who “see the future first” seem to be the ones who truly have a prophetic vision. These true prophets stand in contrast to those who talk as if they can prophesy but are not actually able to see the future in advance.  
  
-* Kendrick has repeatedly identified himself as a prophet most prominently on the final track of *To Pimp a Butterfly* and on several tracks that were released in subsequent years.
+* Kendrick has repeatedly identified himself as a prophet, most prominently on the final track of *To Pimp a Butterfly* and on several tracks that were released in subsequent years.  
  
   * *I freed you from being a slave in your mind, you're very welcome  
   You tell me my song is more than a song, it's surely a blessing  
@@ -647,7 +647,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   I answer to Metatron and Gabriel*  
   -"family ties"
 
-* In the third verse of “Watch the Party Die”, Kendrick also seems to compare himself and the wicked leaders of the entertainment industry to the biblical prophet Elijah and the wicked Queen Jezebel who tried to imprison and kill all the true prophets of God who spoke truth while giving prominent positions to false prophets who told lies.  
+* In the third verse of “Watch the Party Die,” Kendrick also seems to compare himself and the wicked leaders of the entertainment industry to the biblical prophet Elijah and the wicked Queen Jezebel, who tried to imprison and kill all the true prophets of God who spoke truth while giving prominent positions to false prophets who told lies.  
 
   * *It's cynical to say I know these **artists** petrified  
   The end result, in **jail by Jezebel** or **drugged up full of lies***  
@@ -662,9 +662,9 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 * The word “clown” is often used as a pejorative to describe someone who acts foolishly in a way that attracts a lot of attention.  
  
-* The word “circus” can also be used as a pejorative to describe an environment that is overcrowded, noisy and chaotic. This pejorative meaning of the word “circus” could potentially be used to description of the “party”, particularly since a party and a circus are both forms of communal entertainment.  
+* The word “circus” can also be used as a pejorative to describe an environment that is overcrowded, noisy, and chaotic. This pejorative meaning of the word “circus” could potentially be used to describe the “party,” particularly since a party and a circus are both forms of communal entertainment.  
  
-* Hence, we could interpret this line as Kendrick saying that it is futile to argue with the rappers who and members of the entertainment industry who are working for the circus.  
+* Hence, we could interpret this line as Kendrick saying that it is futile to argue with the rappers and members of the entertainment industry who are working for the circus.  
 
 {{< / details >}}
 
@@ -676,15 +676,15 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Just walk that man down, that'll do everyone a solid" > Walk down
 
-* "Walking someone down" is a slang term which refers to premediated murder, particularly in a shooting where the shooter calmly executes his target.  
+* "Walking someone down" is a slang term that refers to premeditated murder, particularly in a shooting where the shooter calmly executes his target.  
  
-* In “euphoria” Kendrick confronts Drake while rapping:  
+* In “euphoria,” Kendrick confronts Drake while rapping:  
 
-  * Have you ever **walked your enemy down** like with a poker face?  
+  * *Have you ever **walked your enemy down** like with a poker face?*  
  
-* Here in "Watch the Party Die", Kendrick seems to inciting his supporters to kill the killers who like taking innocent lives. Kendrick justifies such murders by saying it will “do everyone a solid” which is a colloquial way of saying that killing such people will do everyone a favor.   
+* Here in "Watch the Party Die," Kendrick seems to **be** inciting his supporters to kill the killers who like taking innocent lives. Kendrick justifies such murders by saying it will “do everyone a solid,” which is a colloquial way of saying that killing such people will do everyone a favor.   
  
-* Similar to earlier line where Kendrick said [“We even kill the killers 'cause they like taking innocent lives”](#we-even-kill-the-killers-cause-they-like-taking-innocent-lives--current-events), it seems approximate to point out that a few months after the release of “Watch the Party Die” this logic was used by significant numbers of people to justify Luigi Mangione’s decision to kill the CEO of UnitedHealthcare. For example, in one [popular video](https://youtu.be/KVsu-FHFds8?si=wNtKpbip_tFJOtl3) the host defends the shooters actions and fittingly refers to the shooter as "Run 'em down Jake" prior to the shooter's name being discovered and publicized.  
+* Similar to the earlier line where Kendrick said [“We even kill the killers 'cause they like taking innocent lives”](#we-even-kill-the-killers-cause-they-like-taking-innocent-lives--current-events), it seems appropriate to point out that a few months after the release of “Watch the Party Die,” this logic was used by significant numbers of people to justify Luigi Mangione’s decision to kill the CEO of UnitedHealthcare. For example, in one [popular video](https://youtu.be/KVsu-FHFds8?si=wNtKpbip_tFJOtl3), the host defends the shooter’s actions and fittingly refers to the shooter as "Run 'em down Jake" prior to the shooter's name being discovered and publicized.  
 
 {{< /details >}}
 
@@ -698,7 +698,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 * The term "tough love" is stereotypically used by parents (particularly dads) to refer to painful discipline that is meant to benefit a child in the long run.  
  
-* Kendrick specifically mentions “tough love” to describe the parenting Kendrick received from his father on the *Mr. Morale and the Big Stepper* track “Father Time”.
+* Kendrick specifically mentions “tough love” to describe the parenting Kendrick received from his father on the *Mr. Morale and the Big Steppers* track “Father Time.”  
 
   * *Daddy issues ball across my head, told me, "**Fuck a foul**"  
   I'm teary-eyed, wanna throw my hands, I won't think out loud
@@ -722,26 +722,25 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   Daddy issues, hid my emotions, never expressed myself  
   **Men should never show feelings, being sensitive never helped***  
 
-* It is notable that “Father Time” is one of the few tracks where Kendrick mentioned Drake by name prior to the feud.
+* It is notable that “Father Time” is one of the few tracks where Kendrick mentioned Drake by name prior to the feud.  
 
   * ***Daddy issues kept me competitive**, that's a fact, nigga  
   I don't give a fuck what's the narrative, I am that nigga  
   **When Kanye got back with Drake, I was slightly confused**  
   Guess I'm not mature as I think, got some healin' to do*  
 
-* Given that on "Father Time" Kendrick higlighted how “tough love” can instill unhealthy patterns of thoughts and lead to immature competitiveness, it is ironic for inconisistent for Kendrick to justify the use of violence against his enemies by claiming it is a result of “tough love".  
+* Given that on "Father Time" Kendrick highlighted how “tough love” can instill unhealthy patterns of thought and lead to immature competitiveness, it is ironic and inconsistent for Kendrick to justify the use of violence against his enemies by claiming it is a result of “tough love."  
  
-* Kendrick also hinted at the idea of tough love leading to violence on “euphoria” when alluded to rapper YNW Melly. YNW Melly, whose legal last name is ironically "Demons", released a hit single called "Murder on My Mind” in June 2018 just a few months before a shooting in which he was later accused of murdering two of his close friends, rappers YNW Sakchaser and YNW Juvy.  
+* Kendrick also hinted at the idea of tough love leading to violence on “euphoria” when he alluded to rapper YNW Melly. YNW Melly, whose legal last name is ironically "Demons," released a hit single called "Murder on My Mind” in June 2018, just a few months before a shooting in which he was later accused of murdering two of his close friends, rappers YNW Sakchaser and YNW Juvy.  
 
   * It's **three GOATs left**, and I seen **two of them kissin' and huggin' on stage**  
   I love 'em to death and in eight bars, I'll explain that phrase, huh  
   ...  
-  I pray they my real friends, if not, **I'm YNW Melly** . 
+  I pray they my real friends, if not, **I'm YNW Melly**  
 
 {{< /details >}}
 
 {{< /details >}}
-
 
 {{< lyrics >}}If you parade in gluttony without givin' truth to the youth{{< / lyrics >}}
 
@@ -751,11 +750,11 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "If you parade in gluttony without givin' truth to the youth" > Gluttony
 
-* Kendrick now seems to be targeting rappers, social media influencers and other members the entertainment industry who glorify greed, instant gratification and conspicuous, unhealthy consumption, particularly when such individuals never actually offer truth to innocent youth whose lives may be shortened if they immitate the examples that are given to them by the entertainment indudstry.  
+* Kendrick now seems to be targeting rappers, social media influencers, and other members of the entertainment industry who glorify greed, instant gratification, and conspicuous, unhealthy consumption, particularly when such individuals never actually offer truth to innocent youth whose lives may be shortened if they imitate the examples that are given to them by the entertainment industry.  
  
 * Kendrick has discussed the theme of unhealthy consumption throughout his career.  
  
-* The track “Vanity Slaves” from the *Kendrick Lamar EP* explores the ways in which Black people in America have become enslaved to White-owned businesses and corporations who lead Black people into financial mismanagement and ruin. From this perspective, Kendrick could make a compelling case that parading gluttony leads to generational racial injustice that dehumanizes Black people much like slavery.  
+* The track “Vanity Slaves” from the *Kendrick Lamar EP* explores the ways in which Black people in America have become enslaved to White-owned businesses and corporations that lead Black people into financial mismanagement and ruin. From this perspective, Kendrick could make a compelling case that parading gluttony leads to generational racial injustice that dehumanizes Black people much like slavery.  
 
   * ***I care about my pride too much**  
   **If my clothes is new, if my ride is plush**  
@@ -811,7 +810,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   You're a vanity slave  
   We all vanity slaves***  
 
-* On the track “Alright” followed by “For Sale? \(Interlude\)” on *To Pimp a Butterfly*, parading gluttony to tempt young Black people is a satanic plot that is utilized by Lucy \(aka Lucifer / the satan / the devil / the false accuser / the adversary / the diabolical one\). 
+* On the track “Alright,” followed by “For Sale? (Interlude)” on *To Pimp a Butterfly*, parading gluttony to tempt young Black people is a satanic plot that is utilized by Lucy (aka Lucifer / the satan / the devil / the false accuser / the adversary / the diabolical one).  
 
   * ***What you want you, a house⁠? You, a car?  
   Forty acres and a mule? A piano, a guitar?  
@@ -836,7 +835,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   It's not so easy, I'm at these functions accordingly*  
   -"For Sale (Interlude)"  
   
-* On “LUST.” Kendrick raps from the perspective of a man and a woman who is being controlled by demonic forces and driven towards an endless routine of conspicuous, unhealthy consumption. Within the logic of “LUST” demonic forces seem to be at work under the surface in ways that we normally don’t notice and thus don’t realize how Black people are being enslaved in a way that is arguably too wicked to apologize.  
+* On “LUST.,” Kendrick raps from the perspective of a man and a woman who are being controlled by demonic forces and driven toward an endless routine of conspicuous, unhealthy consumption. Within the logic of “LUST.,” demonic forces seem to be at work under the surface in ways that we normally don’t notice, and thus don’t realize how Black people are being enslaved in a way that is arguably too wicked to apologize for.  
 
   * ***Wake up in the mornin', thinkin' 'bout money**, kick your feet up  
   Watch you a comedy, take a shit, then **roll some weed up**  
@@ -857,13 +856,13 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   **Go to the club, have you some fun, make that ass bounce**  
   It's whatever, just make it count*  
 
-* At the end of “LUST.”, Kendrick references a New Testament Bible passage that speakes directly to the dangers of being controlled by gluttony and lust.  
+* At the end of “LUST.,” Kendrick references a New Testament Bible passage that speaks directly to the dangers of being controlled by gluttony and lust.  
 
   * *Lately, in **James 4:4** says  
   "**Friend of the world is enemy of the Lord**"  
   Brace yourself: Lust is all yours*  
 
-* James 4:4 refers to a section of teaching that St. James, the step brother of Jesus, gave to Christians who were getting into conflicts because of their lust, gluttony and desire for all material possession that can be obtained in this world. St. James warns these Christians that living in this way leads to pride (i.e. exalting themselves above other to get what they want). Morover, St. James warns that those who become proud become enemies of God, who opposes those who are proud and gives grace to those who are humble.  
+* James 4:4 refers to a section of teaching that St. James, the stepbrother of Jesus, gave to Christians who were getting into conflicts because of their lust, gluttony, and desire for all the material possessions that can be obtained in this world. St. James warns these Christians that living in this way leads to pride (i.e., exalting themselves above others to get what they want). Moreover, St. James warns that those who become proud become enemies of God, who opposes those who are proud and gives grace to those who are humble.  
 
   * ***Where do wars and fighting among you come from? Don’t they come from your desires that war in your body parts? You lust, and do not have. You murder and want what someone else has, and can’t obtain it. You fight and make war. You don’t have, because you don’t ask. You ask, and don’t receive, because you ask with wrong motives, so that you may spend it on your desires**.
      
@@ -877,9 +876,9 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "The graveyard is company, just tell us what casket to choose" > Graveyard
 
-* By saying "The graveyard is company, just tell us what casket to choose", Kendrick is asserting that those who "parade in gluttony without givin' truth to the youth" are guratneed to be executed alongside the killers who "like taking innocent lives".  
+* By saying, "The graveyard is company, just tell us what casket to choose," Kendrick is asserting that those who "parade in gluttony without givin' truth to the youth" are guaranteed to be executed alongside the killers who "like taking innocent lives."  
  
-* Since their deaths are all but certain, Kendrick cold-heartedly recommends that these people should make plans for their own funeral. Since these people have been so consumed by their own vanity for commercialized products, Kendrick seems to suggest that they should take the time to pick the casket that will allow them to take their vanity to the grave.
+* Since their deaths are all but certain, Kendrick cold-heartedly recommends that these people should make plans for their own funeral. Since these people have been so consumed by their own vanity for commercialized products, Kendrick seems to suggest that they should take the time to pick the casket that will allow them to take their vanity to the grave.  
 
 {{< /details >}}
 
@@ -891,7 +890,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "They glorify scamming, you get chipped over this credit card" > Scamming
 
-* On a few tracks over the years, Kendrick has ointed out the destructive pattern of Black people using credit card scams to illegally get money to pay for their unhealthy consumption habits, addictions or desire to be lazy.  
+* On a few tracks over the years, Kendrick has pointed out the destructive pattern of Black people using credit card scams to illegally get money to pay for their unhealthy consumption habits, addictions, or desire to be lazy.  
 
   * *Baby wanna go back to school, but she need some help  
   **Because it's hard trying to pay the bills** when you're by yourself  
@@ -914,7 +913,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "They glorify scamming, you get chipped over this credit card" > Chipped
 
-* Getting “chipped” is a slang term for getting killed, particularly by gunshots that are fired to put an end a conflict, as can be heard in several of Kendrick's past tracks.  
+* Getting “chipped” is a slang term for getting killed, particularly by gunshots that are fired to put an end to a conflict, as can be heard in several of Kendrick's past tracks.  
 
   * *I **chip a nigga** lil' bit of nothin'  
   ...  
@@ -939,7 +938,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
   **Everybody wanna be demon 'til they get chipped by a throwaway***  
   -"euphoria"  
 
-* In the context of "Watch the Party Die", Kendrick seems to be saying that rappers, influencers and members of the entertainment industry who "glorify scamming" will soon get "chipped" by the people who are carrying out Kendrick's execution orders.  
+* In the context of "Watch the Party Die," Kendrick seems to be saying that rappers, influencers, and members of the entertainment industry who "glorify scamming" will soon get "chipped" by the people who are carrying out Kendrick's execution orders.  
 
 {{< /details >}}
 
@@ -951,11 +950,11 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Influencers talk down 'cause I'm not with the basic shit" > Influencers
 
-* Here Kendrick seems to criticizing social media influencers who "parade in gluttony without givin' truth to the youth". These influencers are often followed by thousands or even millions of impressionable young people. Once they amass a significant number of followers, these particular influencers profit from convincing young people that they need to buy sponsored products which may then lead young people to steal money through credit card scams.  
+* Here, Kendrick seems to be criticizing social media influencers who "parade in gluttony without givin' truth to the youth." These influencers are often followed by thousands or even millions of impressionable young people. Once they amass a significant number of followers, these particular influencers profit from convincing young people that they need to buy sponsored products, which may then lead young people to steal money through credit card scams.  
  
-* It is worth noting that in the years prior to the release of "Watch the Party Die" several social science research studies published papers which found [connections between materialistic social media content and problematic consumption behavior among young people](https://www.frontiersin.org/journals/psychology/articles/10.3389/fpsyg.2022.870614/full).  
+* It is worth noting that in the years prior to the release of "Watch the Party Die," several social science research studies published papers that found [connections between materialistic social media content and problematic consumption behavior among young people](https://www.frontiersin.org/journals/psychology/articles/10.3389/fpsyg.2022.870614/full).  
  
-* To further magnify their influence, these influencers seem to have a pattern of exalting themsevles so that they can "talk down" at people like Kendrick.  
+* To further magnify their influence, these influencers seem to have a pattern of exalting themselves so that they can "talk down" to people like Kendrick.  
 
 {{< /details >}}
 
@@ -963,11 +962,11 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "Influencers talk down 'cause I'm not with the basic shit" > Basic
 
-* In slang usage, the word "basic" is a pejoritive that describes something that is mainsteam, popular and trending or someone who is unrefined and boring because they only like things that are mainsteam, popular and trending.  
+* In slang usage, the word "basic" is a pejorative that describes something that is mainstream, popular, and trending, or someone who is unrefined and boring because they only like things that are mainstream, popular, and trending.  
  
-* For Kendrick "basic shit" from the mainstream entertainment industry seems to be the exact opposite of the thoughful, complex and creative aristry that has defined Kendrick's career, most notably with Kendrick's album, DAMN. winning a [Pulitzer Prize](https://www.pulitzer.org/winners/kendrick-lamar).  
+* For Kendrick, "basic shit" from the mainstream entertainment industry seems to be the exact opposite of the thoughtful, complex, and creative artistry that has defined Kendrick's career—most notably with Kendrick's album *DAMN.* winning a [Pulitzer Prize](https://www.pulitzer.org/winners/kendrick-lamar).  
  
-* On the track "Poetic Justice" \(ft. Drake\) from *good kid, m.A.A.d city*, Kendrick highlights how finding someone who is not "basic" is as rare as finding a flower that bloomed in a dark room.  
+* On the track "Poetic Justice" (featuring Drake) from *good kid, m.A.A.d city*, Kendrick highlights how finding someone who is not "basic" is as rare as finding a flower that bloomed in a dark room.  
 
   * ***I recognize your fragrance**, hol' up, you ain't never gotta say shit, uh  
   And I know **your taste is a little bit, mmm, high maintenance**, uh  
@@ -985,7 +984,7 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "But they don't hate me, they hate the man that I represent" > Hate
 
-* Kendrick claims that he constantly receives hate from "basic" influencers who cannot understand or appreciate Kendrick's thoughtful, complex and creative artistry. However, Kendrick doesn't take this hate personally. From Kendrick's perspective, "basic" influencers hate everything that Kendrick represents in contrast to the mainstream entertainment industry.  
+* Kendrick claims that he constantly receives hate from "basic" influencers who cannot understand or appreciate his thoughtful, complex, and creative artistry. However, Kendrick doesn't take this hate personally. From Kendrick's perspective, "basic" influencers hate everything that he represents in contrast to the mainstream entertainment industry.  
 
 {{< /details >}}
 
@@ -997,11 +996,11 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "The type of man that never dickride 'cause I want a favor" > Dickride
 
-* Within the entertainment industry, Kendrick sees himself as representing the kind of man who never “dickrides.” In slange usage, "dickriding" refers to the act of saying an excessive and unwarrented amount of good thing about an important person in order to benefit by receiving favorable treatment from that important person.  
+* Within the entertainment industry, Kendrick sees himself as representing the kind of man who never “dickrides.” In slang usage, "dickriding" refers to the act of saying an excessive and unwarranted amount of good things about an important person in order to benefit by receiving favorable treatment from that important person.  
  
 * While the term “dickriding” is most often used metaphorically to describe someone who says an excessive amount of good things to gain favor, the most literal usage of the term refers to a man or woman who willingly receives anal or vaginal sexual penetration from a powerful man in order to receive favorable treatment or economic opportunities.  
  
-* It is notable that in the [viral Club Shay Shay interview (1:40:33 - 1:44:00)](https://youtu.be/8oRRZiRQxTs?si=Tag2nxKG36JIAT1H&t=6033) Katt Williams highlighted how from the start of his career in the entertainment industry his entire goal was to become successful without ever literally or metaphorically riding anyone’s dick.  
+* It is notable that in the [viral Club Shay Shay interview (1:40:33 - 1:44:00)](https://youtu.be/8oRRZiRQxTs?si=Tag2nxKG36JIAT1H&t=6033), Katt Williams highlighted how from the start of his career in the entertainment industry, his entire goal was to become successful without ever literally or metaphorically riding anyone’s dick.  
 
   * ***My goal was to get this far in Hollywood and still have a virgin asshole and never had sucked a penis**. That was my only goal.  
   ...  
@@ -1017,16 +1016,15 @@ With 2024 being a year in which Kendrick won five Grammy Awards by accusing Drak
 
 #### "The man that resides in patience" > Patience
 
-* While "dickriding" can be a quick way to achieve some level of success, Kendrick seems to see himself as someone who has the patitence needed to reap the rewards hard-earned success.  
+* While "dickriding" can be a quick way to achieve some level of success, Kendrick seems to see himself as someone who has the patience needed to reap the rewards of hard-earned success.  
 
 {{< /details >}}
 
 {{< /details >}}
 
-{{< lyrics >}}
-So where the soldiers at—<br>
-the one's that lost it all
-{{< /lyrics >}}
+{{< lyrics >}}So where the soldiers at—{{< /lyrics >}}
+
+{{< lyrics >}}the one's that lost it all{{< /lyrics >}}
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="    and learned to learn from that—" >}}
 
@@ -1034,15 +1032,15 @@ the one's that lost it all
 
 #### "So where the soldiers at...lost it all and learned to learn from that?" > Soldiers who learned from a loss
 
-* In contrast to men who "dickride" and are "with the basic shit", Kendrick seems to be highlighting the kinds of rare character traits and behaviors that he wants his people to nurture, particularly self improvement, education, hard work, financial stability and a desire or thirst for things that will lead to life.  
+* In contrast to men who "dickride" and are "with the basic shit," Kendrick seems to be highlighting the kinds of rare character traits and behaviors that he wants his people to nurture, particularly self-improvement, education, hard work, financial stability, and a desire or thirst for things that will lead to life.  
  
-* These are traits and behaviors that often best developed during childhood and adolescence and thus would be at risk if rappers, infuencers or members of the entertainment industry are allowed to “parade in gluttony without givin' truth to the youth”.  
+* These are traits and behaviors that are often best developed during childhood and adolescence and thus would be at risk if rappers, influencers, or members of the entertainment industry are allowed to “parade in gluttony without givin' truth to the youth.”  
  
 * More specifically, Kendrick is looking for the rare men who have the mentality of soldiers who lost everything in battle but found a way to learn invaluable life lessons from those losses.  
  
-* Within the context of "Watch the Party Die", Kendrick could be looking to recruit these soldiers to be his executioners.  
+* Within the context of "Watch the Party Die," Kendrick could be looking to recruit these soldiers to be his executioners.  
  
-* On “Father Time” and “Purple Hearts” from *Mr. Morale and the Big Steppers*, Kendrick mentioned that the ability to learn from a loss is something that he did not receive from how his own father parented him but it is a blessing that Kendrick want his loved ones to receive  
+* On “Father Time” and “Purple Hearts” from *Mr. Morale and the Big Steppers*, Kendrick mentioned that the ability to learn from a loss is something that he did not receive from how his own father parented him, but it is a blessing that Kendrick wants his loved ones to receive.  
 
   * ***Daddy issues made me lеarn losses**, I don't take those well*  
   -"Father Time"  
@@ -1065,7 +1063,7 @@ the one's that lost it all
 
 #### "a thirst for life, head inside a book 'cause he concerned with that" > Thirst
 
-* Thirst is a concept that Kendrick mentioned on the latter half of the pivotal track “Sing About Me, I’m Dying of Thirst” from good kid, m.A.A.d city. On that track, Kendrick described how a life of gluttony led to them to be overcome by a deep spiritual thirst.  
+* Thirst is a concept that Kendrick mentioned on the latter half of the pivotal track “Sing About Me, I’m Dying of Thirst” from *good kid, m.A.A.d city.* On that track, Kendrick described how a life of gluttony led him and others to be overcome by a deep spiritual thirst.  
 
   * ***How many sins**, oh? I'm runnin' out, oh  
   How many sins, oh? I lost count  
@@ -1096,13 +1094,13 @@ the one's that lost it all
   **You dyin' of thirst, you dyin' of thirst  
   So hop in that water, and pray that it works***.  
  
-    * On the track “LUST.” from *DAMN.*, Kendrick seems to allude to the experience of "daying of thirst" as he reveals the demonic influence that driving people towards greed, conspicuous consumption, and need for "holy water".  
+    * On the track “LUST.” from *DAMN.*, Kendrick seems to allude to the experience of "dying of thirst" as he reveals the demonic influence that is driving people toward greed, conspicuous consumption, and the need for "holy water."  
 
       * ***I need some water**  
       Something came over me  
       Way too hot to simmer down, might as well overheat*  
 
-* During a skit at the end of "Sing About Me, I'm Dying of Thirst", an older Christian woman sees that Kendrick and his friends were "dying of thirst" because their sadness and anger was driving them towards killing their enemies and putting their own lives at risk. She tells them that their thirst for blood and violence was really a spiritual thirst could only be satisfied by “holy water”, being baptized by the Spirit of the Lord, and receiving a new kind of life from Jesus.  
+* During a skit at the end of "Sing About Me, I'm Dying of Thirst," an older Christian woman sees that Kendrick and his friends were "dying of thirst" because their sadness and anger were driving them toward killing their enemies and putting their own lives at risk. She tells them that their thirst for blood and violence was really a spiritual thirst that could only be satisfied by “holy water,” being baptized by the Spirit of the Lord, and receiving a new kind of life from Jesus.  
 
   * *Young man, come talk to me! Is that what I think that is?  
   I know that's not what I think that is  
@@ -1127,7 +1125,7 @@ the one's that lost it all
   Alright now, remember this day  
   **The start of a new life, your REAL life***.  
 
-* The older Christian woman's conclusion that Kendrick and his homies are dying of thirst and need holy water seems to come from scene in St. John's account of the Gospel. In that scene, Jesus stopped to rest in a village inhabitted by people from ethnic group called Samaritans, who were enemies of the the Judean ethnic group to which Jesus belonged. Instead of calling down fire from heaven to burn up the Samaritan village, Jesus started a conversation with a Samaritan woman who was drawing water from a well. Jesus told the woman that he could give her "living water" which would satisfy her to the extent that she would never thirst again.
+* The older Christian woman's conclusion that Kendrick and his friends are dying of thirst and need holy water seems to come from a scene in St. John's account of the Gospel. In that scene, Jesus stops to rest in a village inhabited by people from an ethnic group called the Samaritans, who were enemies of the Judean ethnic group to which Jesus belonged. Instead of calling down fire from heaven to burn up the Samaritan village, Jesus starts a conversation with a Samaritan woman who is drawing water from a well. Jesus tells the woman that he could give her "living water," which would satisfy her so completely that she would never thirst again.  
 
   * *Jesus came to a city of Samaria called Sychar. A Samaritan woman came to draw water. Jesus said to her, “Give Me a drink.” For His disciples had gone away to the city to buy food.  
      
@@ -1139,7 +1137,7 @@ the one's that lost it all
      
   -John 4:5,7-14
 
-* Later in St. John's account of the Gospel, as Jesus repeated his offer of "living water" to a crowd of people at a holiday feast, St. John explained that the "living water" which Jesus spoke about was actually the "Holy Spirit". Jesus would give the "Holy Spirit" to his disciples so that his disciples would be filled with new patterns of thoughts and emotions that would empower them to live a new kind of life.  
+* Later in St. John's account of the Gospel, as Jesus repeats his offer of "living water" to a crowd of people at a holiday feast, St. John explains that the "living water" which Jesus speaks about is actually the "Holy Spirit." Jesus would give the "Holy Spirit" to his disciples so that his disciples would be filled with new patterns of thoughts and emotions that would empower them to live a new kind of life.  
 
   * *Now on the last day, the great day of the feast, Jesus stood and cried out, saying, “**If anyone is thirsty, let him come to Me and drink**. The one who believes in Me, as the Scripture said, 'From his innermost being will **flow rivers of living water**.'”  
      
@@ -1147,21 +1145,21 @@ the one's that lost it all
      
   -John 7:37-39  
  
-* In St. John's account of the Gospel, Jesus told the sister of Jesus's dead friend that “I am the resurrection and the life”. Jesus then went on to resurrect his friend from death to life \(See [John 11:1-45](https://www.biblegateway.com/passage/?search=John%2011%3A1-45&version=NASB)\).  
+* In St. John's account of the Gospel, Jesus tells the sister of his dead friend that “I am the resurrection and the life.” Jesus then goes on to resurrect his friend from death to life (See [John 11:1-45](https://www.biblegateway.com/passage/?search=John%2011%3A1-45&version=NASB)).  
  
-* In that same Gospel account, Jesus also told his disciples, "I am the way, the truth and the life” \(See [John 14:2-6](https://www.biblegateway.com/passage/?search=John%2014%3A2-6&version=NASB)\)
+* In that same Gospel account, Jesus also tells his disciples, "I am the way, the truth, and the life” (See [John 14:2-6](https://www.biblegateway.com/passage/?search=John%2014%3A2-6&version=NASB)).  
  
-* When applied to this line on “Watch the Party Die”, the belief that Jesus is "the life" and the giver of "living water" implies that a “thirst for life” is truly a “thirst for Jesus”. Moreover, those who "thirst for life" discover that Jesus will satisfy their deepest thirst when they read the stories about Jesus in the "Good Book", aka the Holy Bible.  
+* When applied to this line on “Watch the Party Die,” the belief that Jesus is "the life" and the giver of "living water" implies that a “thirst for life” is truly a “thirst for Jesus.” Moreover, those who "thirst for life" discover that Jesus can satisfy their deepest thirst when they read the stories about Jesus in the "Good Book," aka the Holy Bible.  
 
 {{< /details >}}
 
 {{< /details >}}
 
-{{< lyrics >}}
-information that'll change his life<br>
-    because he yearns for that—<br>
-dedication, findin' out what's right
-{{< /lyrics >}}
+{{< lyrics >}}information that'll change his life{{< /lyrics >}}
+
+{{< lyrics >}}    because he yearns for that—{{< /lyrics >}}
+
+{{< lyrics >}}dedication, findin' out what's right{{< /lyrics >}}
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="    'cause he can earn from that?" >}}
 
@@ -1169,19 +1167,17 @@ dedication, findin' out what's right
 
 #### "findin' out what's right 'cause he can earn from that?" > Finding out what's right
 
-* Kendrick seems to highlight the virtue of individuals who know that they will earn a reward when they do the right thing, which motivates them to read books and get information that will allow them to find out what is right. These individuals stand in contrast to people who "dickride" because they want a favor.  
+* Kendrick seems to highlight the virtue of individuals who know that they will earn a reward when they do the right thing, which motivates them to read books and seek information to help them find out what is right. These individuals stand in contrast to people who "dickride" because they want a favor.  
 
 {{< /details >}}
 
 {{< /details >}}
 
+{{< lyrics >}}I feel for the women that deal with the clown and nerd shit{{< /lyrics >}}
 
+{{< lyrics >}}Can't blame them, today they ain't really got much to work with{{< /lyrics >}}
 
-{{< lyrics >}}
-I feel for the women that deal with the clown and nerd shit<br>
-Can't blame them, today they ain't really got much to work with<br>
-How many bitches harder than a lot of you niggas?
-{{< /lyrics >}}
+{{< lyrics >}}How many bitches harder than a lot of you niggas?{{< /lyrics >}}
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Would trade all of y'all for Nip, I can't be proud of you niggas" >}}
 
@@ -1189,7 +1185,7 @@ How many bitches harder than a lot of you niggas?
 
 #### "I feel for the women that deal with the clown and nerd shit" > Clowns and nerds
 
-* Kendrick seems to be asserting that the vast majority of men currently have not developed the kind of virtuous traits that behaviors that Kendrick described in the previous lines. As a result, most women who are looking for respectable partners have to put up with immature and soft clowns and nerds who do not know how to behave like real men.  
+* Kendrick seems to be asserting that the vast majority of men currently have not developed the kind of virtuous traits or behaviors that he described in the previous lines. As a result, most women who are looking for respectable partners must put up with immature and soft clowns and nerds who do not know how to behave like real men.  
 
 {{< /details >}}
 
@@ -1197,15 +1193,15 @@ How many bitches harder than a lot of you niggas?
 
 #### "Would trade all of y'all for Nip, I can't be proud of you niggas" > Nipsey Hussle
 
-* In contrast to rappers who "parade in gluttony without givin' truth to the youth", Kendrick expresses his sadness at the loss of Nipsey Hussle, a beloved South Central rapper who was murdered in March of 2019. Nipsey's murder was particularly tragic because Nispey had shown a remarkable commitment, vision, ingenuity, entreprenership, business accumen and diplomacy in his efforts to improve his local community.  
+* In contrast to rappers who "parade in gluttony without givin' truth to the youth," Kendrick expresses his sadness at the loss of Nipsey Hussle, a beloved South Central rapper who was murdered in March of 2019. Nipsey's murder was particularly tragic because Nipsey had shown a remarkable commitment, vision, ingenuity, entrepreneurship, business acumen, and diplomacy in his efforts to improve his local community.  
    
-  * Nipsey started a community co-working space named [Vector 90](https://www.thesportspublicist.com/agency/vector-90-x-nispey-hussle) which provided opportunities for Black youth in Crenshaw to take science, technology, engineering and math courses and develop as entrepreneurs.  
+  * Nipsey started a community co-working space named [Vector 90](https://www.thesportspublicist.com/agency/vector-90-x-nispey-hussle), which provided opportunities for Black youth in Crenshaw to take science, technology, engineering, and math courses and develop as entrepreneurs.  
      
-  * Nipsey was closely involved in the planning and advisory stages of an open air museum called Destination Crenshaw which planned to showcase the history and culture of Black people in his neighborhood.  
+  * Nipsey was closely involved in the planning and advisory stages of an open-air museum called Destination Crenshaw, which was designed to showcase the history and culture of Black people in his neighborhood.  
      
-  * Nipsey arranged meetings between the Los Angeles Police Department to discuss ways to stop gang violence.  
+  * Nipsey arranged meetings with the Los Angeles Police Department to discuss ways to stop gang violence.  
      
-  * After Nipsey's death, former president Barack Obama wrote a tribute which said:
+  * After Nipsey's death, former President Barack Obama wrote a tribute that said:  
   
     * *While most folks look at the Crenshaw neighborhood where he grew up and see only gangs, bullets, and despair, Nipsey saw potential. He saw hope. He saw a community that, even through its flaws, taught him to always keep going. His choice to invest in that community rather than ignore it – to build a skills training center and a coworking space in Crenshaw; to lift up the Eritrean-American community; to set an example for young people to follow – is a legacy worthy of celebration. I hope his memory inspires more good work in Crenshaw and communities like it.*  
 
