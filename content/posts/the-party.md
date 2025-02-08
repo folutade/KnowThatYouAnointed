@@ -1929,14 +1929,14 @@ You'll get a better sense of the context and progression of thought if you go th
  
 * The illegal activities in which "street niggas" often engage often lead to violence, murder, and other casualties, as Kendrick has detailed throughout much of his work, such as the track “Poe Man's Dreams” from *Section.80*.  
 
-  * My mama is stressin', my daddy tired  
+  * *My mama is stressin', my daddy tired  
   **I need me a weapon**, these niggas ride  
   Every minute, hour, and second, ministers tried to save me  
   How I'm gon' listen when I don't even hear God?  
   Heaven or hell, base it all on my instincts  
   My hands dirty, you worried 'bout mud in your sink  
   You like to mistake a **street nigga** for real nigga  
-  The **same nigga that kill with you'll squeal with you**  
+  The **same nigga that kill with you'll squeal with you***  
 
 * Since "street niggas" typically depict themselves as people who like to kill others, they would likely be included among the people who Kendrick planned to execute when he said, "We even kill the killers 'cause they like taking innocent lives."  
 
@@ -2398,9 +2398,9 @@ You'll get a better sense of the context and progression of thought if you go th
 * MDMA increases heart rate, makes users feel more energetic, induces increased emotional and sensory experience, increases feelings of connection and empathy, and overall leads to feelings of euphoria. However, these positive feelings can lead to an emotional crash and increased anxiety after the effects of the drug wear off.  
  
 * MDMA was originally used in the 1970s to assist with psychotherapy for conditions such as post-traumatic stress disorder (PTSD). However, by the 1980s, forms of MDMA and eventually molly began to be used as a “party drug” at raves, electronic music concerts, and other dance parties. Molly's status as a “party drug” connects to the recurring motif of "the party" throughout “Watch the Party Die.”  
-
+ 
 * Molly has also been referenced in the lyrics of countless songs by "rappers that report the lies" and "parade in gluttony without givin' truth to the youth."  
-
+ 
 * It seems that Kendrick now wants to execute the followers who have been using molly in order to prevent the usage of the drug from spreading to other innocent lives and negatively affecting society.  
 
 {{< /details >}}
@@ -2414,11 +2414,11 @@ You'll get a better sense of the context and progression of thought if you go th
 #### "from the obvious degenerates" > Degenerates
 
 * The “followers” who are “poppin' mollies” seem to be following the influence of people who Kendrick describes as “degenerates.” The word "degenerate" refers to morally corrupt people or, more generally, to people who have lost desirable physical, mental, or social characteristics.  
-
+ 
 * Labeling a certain group of people with a term like “degenerates” has historically been a propaganda strategy for totalitarian rulers to justify eliminating certain cultural influences or killing off certain groups of people.  
-
+ 
 * Most notably, the Nazi Party in Germany began to describe modern art with the term "Entartete Kunst," meaning "Degenerate Art." In the 1930s, during the dictatorship of Adolf Hitler, German modernist art was removed from state-owned museums and banned in Nazi Germany because such art was deemed "an insult to German feeling." The Nazi Party also ran a propaganda campaign against "Degenerate Music," which specifically targeted jazz music due to its "Negroid excesses in tempo" and "Jewishly gloomy lyrics."  
-
+ 
 * Given that Nazi propaganda would have labeled Kendrick's own form of hip-hop music as "Degenerate Music," it is ironic that Kendrick is now labeling other media influencers as degenerates and executing them alongside "the radio personality pushin’ propaganda for salary."  
 
 
@@ -2433,7 +2433,7 @@ You'll get a better sense of the context and progression of thought if you go th
 #### "that's failing to acknowledge the hope that we tryna spread" > Hope
 
 * Kendrick again seems to be highlighting the hope of a "New Earth" that can be created after all of the wicked hosts and attendees of "the party" are eliminated from society.  
-
+ 
 * Kendrick seems to be implying that the "degenerates" among the media influencers are spreading cynical criticism of Kendrick's message of hope. This assessment is consistent with the lines from the first verse where Kendrick said:  
 
   * ***Influencers talk down 'cause I'm not with the basic shit**  
@@ -2454,13 +2454,13 @@ You'll get a better sense of the context and progression of thought if you go th
 #### "If I'm not his vote then you need to bring his fuckin' head" > Vote
 
 * Kendrick's campaign of totalitarian executions seems to be taking place in a nominal democracy. Elections are still being held, and Kendrick could theoretically be voted out of power. However, if anyone tries to oppose him by running an effective opposition campaign or even casting a vote for the opposition, Kendrick wants such a person to be beheaded.  
-
+ 
 * This kind of election, where voters are not free to cast their vote without suffering retribution for voting against the ruling party, is often referred to as a "sham election."  
-
+ 
 * Months before the release of "Watch the Party Die" in March of 2024, the United States and other Western European allies denounced Russia's presidential election as a "sham election" after Vladimir Putin was re-elected as President of Russia with 88% of the vote, which happened to be the highest percentage vote in the history of Russian democracy.  
-
+ 
 * Vladimir Putin's re-election follows more than a decade in which political opposition leaders have been harassed, silenced, imprisoned, and assassinated. The most recent casualty was Alexei Navalny, who died in a Russian prison under suspicious circumstances in February of 2024, just a month before the election.  
-
+ 
 * On the track "Savior" from *Mr. Morale & the Big Steppers*, Kendrick specifically highlighted Vladimir Putin as an example of oppressive leadership after he invaded Ukraine in February of 2022 after claiming that Ukraine was governed by a neo-Nazi regime.  
 
   * ***Vladimir making nightmares  
@@ -2477,7 +2477,7 @@ You'll get a better sense of the context and progression of thought if you go th
 #### "you need to bring his fuckin' head or film that shit in hi-res" > Bring his head
 
 * Kendrick again exhibits sadistic tendencies as he demands to see the decapitated head of the person who did not vote for Kendrick. The executioners must either bring the decapitated head to Kendrick to see or they must film the decapitation in a high-resolution video format so that Kendrick can see all of the small details when he watches the recording.  
-
+ 
 * It is also notable that the Gospel accounts of St. Matthew, St. Mark, and St. Luke all tell the story about a wicked queen who conspires to have the king order the beheading of John, the great prophet who baptized Jesus. Moreover, she got the king to bring John's head to her on a dinner platter.  
      
   * John the Baptist was Jesus's cousin and was a highly respected prophet who called the Israelites to "repent" (i.e., change their way of thinking) and be baptized. John also spoke out against the unjust actions of powerful figures, including Herod, the puppet king of a Roman-controlled Israelite region called Galilee.  
@@ -2508,19 +2508,19 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Sometimes I wonder what Lecrae would do" > Lecrae
 
-* Here for the first time in "Watch the Party Die", Kendrick seems to reconsider whether he is doing the right thing by executing the hosts and attendees of "the party".  
+* Here for the first time in "Watch the Party Die," Kendrick seems to reconsider whether he is doing the right thing by executing the hosts and attendees of "the party."  
  
-* In particular Kendrick wonders whether Lecrae, a famous Christian rapper, would pray for the hosts and attendees of the party or "fuck these niggas up" by violently assaulting them.  
+* In particular, Kendrick wonders whether Lecrae, a famous Christian rapper, would pray for the hosts and attendees of the party or "fuck these niggas up" by violently assaulting them.  
  
-* Lecrae happens to be the most famous and successful artist in the history of the Christian hip hop (aka CHH). Christian hip hop is a subgenre of hip hop music that utilizes similar production, rapping and singing styles as mainstream hip hop. However, unlike mainstream hip hop, Christian hip hip is committed to presenting lyrics that help people understand and identify with Christian values, beliefs, and behavior.  
+* Lecrae happens to be the most famous and successful artist in the history of Christian hip hop (aka CHH). Christian hip hop is a subgenre of hip hop music that utilizes similar production, rapping, and singing styles as mainstream hip hop. However, unlike mainstream hip hop, Christian hip hop is committed to presenting lyrics that help people understand and identify with Christian values, beliefs, and behavior.  
  
-* Because of the necessary commitment to Christian values, beliefs and behavior, artists that are accepted as part of Christian hip hop will not make songs that glorify scamming, gluttony, sexual promiscuity or criminal activity. In fact it is very rare for Christian hip hip artists to release music with any words that would be considered explicit: including profanity, sexual terminology or racial slurs.  
+* Because of the necessary commitment to Christian values, beliefs, and behavior, artists that are accepted as part of Christian hip hop will not make songs that glorify scamming, gluttony, sexual promiscuity, or criminal activity. In fact, it is very rare for Christian hip hop artists to release music with any words that would be considered explicit: including profanity, sexual terminology, or racial slurs.  
  
-* Despite the high moral and behavioral expectations that come with being a Christian hip hop artis, Lecrae had a rough upbriging that was similar to many mainstream hip hop artists.  
+* Despite the high moral and behavioral expectations that come with being a Christian hip hop artist, Lecrae had a rough upbringing that was similar to many mainstream hip hop artists.  
  
-* Lecrae never met his father and was raised by a single mother in a low income, urban, Black neighborhood. He was not raised as a Christian but became a very committed Christian later in life. That background has allowed Lecrae to speak to the reality of "street life" while also being able to clearly articulate Jesus's teaching in language that is accessible to urban, Black audiences.  
+* Lecrae never met his father and was raised by a single mother in a low-income, urban, Black neighborhood. He was not raised as a Christian but became a very committed Christian later in life. That background has allowed Lecrae to speak to the reality of "street life" while also being able to clearly articulate Jesus's teaching in language that is accessible to urban, Black audiences.  
  
-* Similar to Kendrick on *To Pimp a Butterfly*, *DAMN.* and *Mr. Morale & the Big Steppers*, Lecrae has also publicly wrestled with his faith in God, hypocrisy among Christian leaders including himself, depression, personal struggles with addiction, and the weight of serving as a leader in a Black community facing various social issues.  
+* Similar to Kendrick on *To Pimp a Butterfly*, *DAMN.*, and *Mr. Morale & the Big Steppers*, Lecrae has also publicly wrestled with his faith in God, hypocrisy among Christian leaders—including himself—depression, personal struggles with addiction, and the weight of serving as a leader in a Black community facing various social issues.  
 
   * ***Last year I was feeling hopeless  
   I just wanted it to end**  
@@ -2584,15 +2584,15 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * Given his background and spiritual perspective, Lecrae seems to be the perfect person to provide Kendrick with a perspective on whether Kendrick should rely on prayer or use violence to improve society.  
  
-* It is also notable that prior to the release of “Watch the Party Die”, Lecrae released a [podcast episode](https://youtu.be/y2ZC1FEk87Q?si=syqzXoAhmBaRGzAv) in which he discussed the battle between Kendrick and Drake.  
+* It is also notable that prior to the release of “Watch the Party Die,” Lecrae released a [podcast episode](https://youtu.be/y2ZC1FEk87Q?si=syqzXoAhmBaRGzAv) in which he discussed the battle between Kendrick and Drake.  
      
-  * In the podcast episode, Lecrae accepted that rap battles as an established part of hip hop culture. Since Lecrae grew up with hip hop culture, he was  reluctant to criticize rap battles in and of themselves.  
+  * In the podcast episode, Lecrae accepted that rap battles are an established part of hip hop culture. Since Lecrae grew up with hip hop culture, he was reluctant to criticize rap battles in and of themselves.  
      
   * Lecrae also acknowledged that Kendrick was providing Drake with some feedback that he probably needed to hear.  
   
      *We all need friends like Kendrick who are willing to tell us about ourselves. I never want to have to run into somebody in a rap battle to tell me the truth about myself.*  
      
-  * However, Lecrae did express his concern that the way that Kendrick and Drake approached the rap battle (and to some extent how most rappers approach rap battles) demonstrates an unhealthy attempt to build their own sense of value and self-worth based on their ability to beat down another person.  
+  * However, Lecrae did express his concern that the way Kendrick and Drake approached the rap battle (and to some extent how most rappers approach rap battles) demonstrates an unhealthy attempt to build their own sense of value and self-worth based on their ability to beat down another person.  
 
 {{< /details >}}
 
@@ -2600,7 +2600,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### ""Fuck these niggas up or show 'em just what prayer do?" > Prayer
 
-* Prayer was a major motif within *DAMN.*. Throughout that album, Kendrick repeatedly lamented that fact that no one was praying for him. However, at a pivotal point of the album,  Kendrick's cousin, Carl Duckworth, left a voicemail telling Kendrick that the cursed existence that he was experiencing was not due to a lack of people praying for Kendrick but due to a lack of Kendrick following God's commandments.  
+* Prayer is a major motif within *DAMN.* Throughout that album, Kendrick repeatedly laments the fact that no one is praying for him. However, at a pivotal point of the album, Kendrick's cousin, Carl Duckworth, leaves a voicemail telling Kendrick that the cursed existence he is experiencing is not due to a lack of people praying for him but due to his own lack of following God's commandments.  
 
   * *New Kung Fu Kenny  
   **Ain't nobody prayin' for me**  
@@ -2628,7 +2628,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Verse 2 says, "You only have I known of all the families of the Earth, therefore I will punish you for all your iniquities". So **until we come back to these commandments, until you come back to these commandments we gonna feel this way, we gonna be under this curse**, because He said He's gonna punish us. The so-called Blacks, Hispanics, and Native American Indians are the true children of Israel. We are the Israelites, according to the Bible. The children of Israel - He's gonna punish us for our iniquities, for our disobedience, because we chose to follow other gods. "That man chastens his son, so the Lord, thy God, chasten thee." So, just like you chasten your own son, He's gonna chasten you, because He loves you. So that's why we get chastised. That's why we're in the position that we're in. **Until we come back to these laws, statutes, and commandments and do what the Lord says, these curses is gonna be upon us. We gonna be at a lower state in this life that we live, here, in today, in the United States of America**. I love you, family, and I pray for you. God bless you. Shalom.*  
   -"FEAR."
 
-* *DAMN.* thus conveys the idea that prayer is insufficient if individual do not change the way that they live and begin to follow God's commandments. This idea about the need to follow God's commandments and help other to follow God's commandments might thus present a third way as opposed to exclusively praying or exclusively “fucking these niggas up.”  
+* *DAMN.* thus conveys the idea that prayer is insufficient if individuals do not change the way they live and begin to follow God's commandments. This idea about the need to follow God's commandments and help others to follow God's commandments might thus present a third way, as opposed to exclusively praying or exclusively “fucking these niggas up.”  
 
 {{< /details >}}
 
@@ -2640,11 +2640,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I want to be empathetic, my heart like Dee-1" > Dee-1 exposes the satanic music industry
 
-* Dee-1 is another Christian hip hop artist whose career has run in paralle to Lecrae's. Dee-1's first mixtape was released in 2004, the same year that Lecrae released his first album. However, Dee-1 has not come close to acheiving the level success or influence that Lecrae has had throughout his career.  
+* Dee-1 is another Christian hip hop artist whose career has run in parallel to Lecrae's. Dee-1's first mixtape was released in 2004, the same year that Lecrae released his first album. However, Dee-1 has not come close to achieving the level of success or influence that Lecrae has had throughout his career.  
  
-* Part of this gap in success could be attributed to skill level and artistic choices. However, from Dee-1's perspective a big part of the gap in success is due to the fact that Dee-1 has been uncompromising in his commitment to deliver music with a clear Christian message and a willingness to call out issues in hip hop culture and the music industry that he sees as being misaligned with Jesus's teaching.  
+* Part of this gap in success could be attributed to skill level and artistic choices. However, from Dee-1's perspective, a big part of the gap in success is due to the fact that Dee-1 has been uncompromising in his commitment to delivering music with a clear Christian message and a willingness to call out issues in hip hop culture and the music industry that he sees as being misaligned with Jesus's teaching.  
  
-* With a timing and perspective that runs almost parallel to Katt Williams, Dee-1 gave given an [interview](https://www.youtube.com/watch?v=L9subKGoAz8) in January of 2024 where he discussed how he has been denied opportunities from entertainment industry "gatekeepers" because he wouldn't compromize his own integrity. Most notably, Dee-1 talked about haveing to say "no" to powerful men in the entertainment industry who tried to coerce him into performing oral sex or receiving anal sex in order to receive a record deal.  
+* With a timing and perspective that runs almost parallel to Katt Williams, Dee-1 gave an [interview](https://www.youtube.com/watch?v=L9subKGoAz8) in January of 2024 where he discussed how he has been denied opportunities from entertainment industry "gatekeepers" because he wouldn't compromise his own integrity. Most notably, Dee-1 talked about having to say "no" to powerful men in the entertainment industry who tried to coerce him into performing oral sex or receiving anal sex in order to receive a record deal.  
      
   * *There's gatekeepers. So **if you're trying to get signed to a major label, there's gatekeepers. If you're trying to get on certain media platforms to get interviewed, there's gatekeepers. If you trying to get on the mainstream radio, urban radio, there's gatekeepers**. Yes. Yes. Yes.  
      
@@ -2654,7 +2654,7 @@ You'll get a better sense of the context and progression of thought if you go th
      
   You also got people—**this a different type of gatekeeper—the gatekeepers who will say, "Hey you making too much righteous noise right now. If you just tone that righteousness down a little bit then we'll allow you into these doors, but you got to tone that down. You got to becomea little more vanilla, a little more lukewarm, a little more bland and you'll fit in with us. That's the slick gatekeeping. It ain't telling you to all the way, you know, bend over or or open your mouth or something like that. It ain't that, but it's telling you like dim your light.** And what ends up happening is you got so many people that's like, "Well that's not that bad. They not asking me to do nothing super crazy I just got to dim my light." That's the scariest kind right there 'cause a lot of people will be like, "Wait I just got to turn it from level 10 to level 5? Man, bet. I could do that. Bro, all right, bet. Now I get accepted. Cool." **Next thing, you know you got a whole industry that's lukewarm—whole industry lukewarm, so that when somebody that's on fire come along they looking at it like, "Whoa, you crazy! Hold on. You shining too bright**. Hold on. Hold on. Chill out, man. You doing the most. You messing up, man. Stop man."*
 
-* As mentioned in that interview, back in 2017, Dee-1 released a track called "The Devil's Playground" in which he mentioned having to say no to powerful man in music industry who offered to manage Dee-1 if Dee-1 would have sex with him. Dee-1 highlighted this experience as an example of how the entire music industry is under the control of Lucifer (aka the "devil" / "satan" / "false accuser" / "diabolical one").  
+* As mentioned in that interview, back in 2017, Dee-1 released a track called "The Devil's Playground," in which he mentioned having to say no to a powerful man in the music industry who offered to manage Dee-1 if Dee-1 would have sex with him. Dee-1 highlighted this experience as an example of how the entire music industry is under the control of Lucifer (aka the "devil" / "satan" / "false accuser" / "diabolical one").  
 
   * ***Lucifer laughs when he listens to the radio  
   Enjoyin' all the hate blastin' through the stereo  
@@ -2720,7 +2720,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I want to be empathetic, my heart like Dee-1" > Kendrick exposes the satanic music industry
 
-* Dee-1's claim that the music industry is under the control of Lucifer / the "devil" is a view that Kendrick has also expressed going back to 2015 with the tracks "Alright" and "For Sale? (Interlude)" from *To Pimp a Butterfuly". In those tracks, Kendrick rapped from the perspective of a music industry leader named "Lucy", short for Lucifer, who approach Kendrick and offered Kendrick wealth, success, and material possessions if Kendrick would sell his soul to her.  
+* Dee-1's claim that the music industry is under the control of Lucifer / the "devil" is a view that Kendrick has also expressed going back to 2015 with the tracks "Alright" and "For Sale? (Interlude)" from *To Pimp a Butterfly.* In those tracks, Kendrick rapped from the perspective of a music industry leader named "Lucy," short for Lucifer, who approached Kendrick and offered him wealth, success, and material possessions if Kendrick would sell his soul to her.  
 
   * ***What you want you, a house? You, a car?  
   Forty acres and a mule? A piano, a guitar?  
@@ -2774,7 +2774,7 @@ You'll get a better sense of the context and progression of thought if you go th
   And now you all grown up to sign this contract, if that's possible"***  
   -"For Sale (Interlude)"  
 
-* Moreover, a few months after the release of "Watch the Party Die", Kendrick released the album *GNX* which centers around the track "reincarnated" where Kendrick retells the biblical narrative pattern of "Lucifer". In Kendrick's retelling, Lucifer is a fallen angel who has been reincarnated numerous times in the form of various musicians whose gluttony led them to use their musical skills and influence to deceive the masses and mentally enslave them under Lucifer's control.  
+* Moreover, a few months after the release of "Watch the Party Die," Kendrick released the album *GNX*, which centers around the track "reincarnated," where Kendrick retells the biblical narrative pattern of "Lucifer." In Kendrick's retelling, Lucifer is a fallen angel who has been reincarnated numerous times in the form of various musicians whose gluttony led them to use their musical skills and influence to deceive the masses and mentally enslave them under Lucifer's control.  
 
   * *I did **past life regression** last year and it fucked me up  
   **Reincarnated on this earth for a hundred plus  
@@ -2872,13 +2872,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I want to be empathetic, my heart like Dee-1" > Call It Like It Is
 
-* Prior to the release of “Watch the Party Die”, Dee-1 released a podcast episode which discussed the battle between Kendrick and Drake. In comparison to Lecrae's podcast, Dee-1 was much more willing to directly criticize Drake, Kendrick and the culture of rap battles as a whole.  
-
+* Prior to the release of “Watch the Party Die,” Dee-1 released a podcast episode discussing the battle between Kendrick and Drake. In comparison to Lecrae's podcast, Dee-1 was much more willing to directly criticize Drake, Kendrick, and the culture of rap battles as a whole.  
+ 
 * From Dee-1's uncompromising perspective, the entire battle between Kendrick and Drake has glorified negative examples of hatred and unrighteous relationships that are a detriment to the Black community and misaligned with Jesus's teaching.  
+ 
+* Dee-1 also released an uncompromising response to “Watch the Party Die” in the form of a track titled “Call It Like It Is.”  
 
-* Dee-1 also released an uncompromising response to “Watch the Party Die” in the form a track titled “Call It Like It Is”.  
-
-  * I want to be empathetic, my heart like Dee-1  
+  * *I want to be empathetic, my heart like Dee-1  
   But I will—  
   **Yeah, I don't care what these people think, I'm trying to make these people think  
   What's up, Kendrick?** We flippin' tables, man, (Call it like it is), alright  
@@ -2924,9 +2924,9 @@ You'll get a better sense of the context and progression of thought if you go th
   (So call it like it is) **Y'all just sold us all with your foolery  
   And that dollar bill got y 'all whipped**, that's dead, man, it's the eulogy  
   And **whoever said what they gon' do to me?  
-  Man, I hit your whole block up with prayers, man, y'all ain't used to me**  
+  Man, I hit your whole block up with prayers, man, y'all ain't used to me** * 
 
-* It is notable that Kendrick does not ask what Dee-1 would do. Given Dee-1's consistent, uncompromising commitment to Jesus's teaching above Black identity, hip hop culture, personal grievances or revolutionary philosophies, Kendrick probably knows that Dee-1 would "show 'em just what prayer do" without a second thought.  
+* It is notable that Kendrick does not ask what Dee-1 would do. Given Dee-1's consistent, uncompromising commitment to Jesus's teaching above Black identity, hip hop culture, personal grievances, or revolutionary philosophies, Kendrick probably knows that Dee-1 would "show 'em just what prayer do" without a second thought.  
 
 {{< /details >}}
 
@@ -2934,9 +2934,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I want to be empathetic, my heart like Dee-1" > Kendrick's contradictions
 
-* Kendrick sees within Dee-1 an empathetic, Christ-centered heart that Kendrick has deep inside of himself even while his hardened exterior has led him to advocate for killing the killers, burning the whole village, mortifying family members, cracking skulls, imposing agony, decapitating those who oppose him.  
+* Kendrick sees within Dee-1 an empathetic, Christ-centered heart that Kendrick has deep inside of himself even while his hardened exterior has led him to advocate for killing the killers, burning the whole village, mortifying family members, cracking skulls, imposing agony, and decapitating those who oppose him.  
  
-* This contradiction between Kendricks Christian-leaning heart and his tendencies towards violence (or at least existing in an environment of violence) is a major theme of Kendrick's work throughout his discography.  
+* This contradiction between Kendrick’s Christian-leaning heart and his tendencies towards violence (or at least existing in an environment of violence) is a major theme of Kendrick's work throughout his discography.  
 
   * *Smokin' on the finest dope, ayy-ayy-ayy-ah  
   Drank until I can't no mo', ayy-ayy-ayy-ah  
@@ -3036,21 +3036,21 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I want to be empathetic, my heart like Dee-1" > Speaking from the heart
 
-* It is worth noting that according to Jesus's teaching, it is not possible for someone to have a truly empathetic heart if that persons words and actions are not consistently empathetic.  
+* It is worth noting that according to Jesus's teaching, it is not possible for someone to have a truly empathetic heart if that person's words and actions are not consistently empathetic.  
  
-* In the same speech from St. Matthew's account of the Gospel where Jesus taught his disciples the Lord's Prayer, Jesus used a metaphor of trees and fruit to teach his disciples that people who have good in their heart will produce good words and actions and anyone who had evil in their heartwill produce evil words and actions. By contrast, anyone who produces evil words and actions does not truly have good in their hearts.  
+* In the same speech from St. Matthew's account of the Gospel where Jesus taught his disciples the Lord's Prayer, Jesus used a metaphor of trees and fruit to teach his disciples that people who have good in their heart will produce good words and actions, and anyone who has evil in their heart will produce evil words and actions. By contrast, anyone who produces evil words and actions does not truly have good in their hearts.  
 
   * ***Beware of false prophets**, who come to you **in sheep's clothing, but inwardly are greedy wolves**. **By their fruits you will know them**. Can you gather grapes from thorns or figs from thistles? Even so, **every good tree produces good fruit, but the corrupt tree produces evil fruit. A good tree cannot produce evil fruit, neither can a corrupt tree produce good fruit**. Every tree that doesn't grow good fruit is cut down and thrown into the fire. Therefore by their fruits you will know them.*  
   -Matthew 7:15-20  
 
-* In a parallel speech in St. Lluke's account of the Gospel according, Jesus gives the same teaching while specifically using the word heart.
+* In a parallel speech in St. Luke's account of the Gospel, Jesus gives the same teaching while specifically using the word "heart."  
 
   * ***The good person out of the good treasure of his heart brings forth what is good; and the evil person out of the evil treasure brings forth what is evil; for his mouth speaks from the abundance that fills a person's heart.***  
   -Luke 6:43-45  
 
-* Jesus's warning against false, corrupt prophets is particularly notable given that on “Mortal Man”, throughout “DAMN.” and on “Worldwide Steppers” Kendrick has spoken about how he is prophet to the Black community in America.  
+* Jesus's warning against false, corrupt prophets is particularly notable given that on “Mortal Man,” throughout *DAMN.*, and on “Worldwide Steppers,” Kendrick has spoken about how he is a prophet to the Black community in America.  
  
-* Hence, from the perspective of Jesus's teaching, Kendrick's inconsistent actions and words—particularly within "Watch the Party Die"—would seem to indicate that there is a deep inconsistency within Kendrick's heart as Kendrick's heart seems to contain both empathy and a pathological desire for ruthless vigilante retribution.  
+* Hence, from the perspective of Jesus's teaching, Kendrick's inconsistent actions and words—particularly within "Watch the Party Die"—would seem to indicate that there is a deep inconsistency within Kendrick's heart, as Kendrick's heart seems to contain both empathy and a pathological desire for ruthless vigilante retribution.  
 
 {{< /details >}}
 
@@ -3064,21 +3064,20 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * Unexpectedly, Kendrick never finishes this line. He seems to be censoring himself. We are thus left to guess what Kendrick intended to say (“Dee-1” could be rhymed with “gun”).  
  
-* That being said, the specifics of what the uncensored line might not be that important. Thus far, all the lines on the verses have been advocating for the use of violence to execute people who Kendrick judges to be detrimental to society. Almost surely, the uncensored line would have continued the same trend. The more interesting question is why amongst all the lines that contained profanity and violence, Kendrick picked this line to censor.  
+* That being said, the specifics of what the uncensored line might have been are not that important. Thus far, all the lines in the verses have been advocating for the use of violence to execute people whom Kendrick judges to be detrimental to society. Almost surely, the uncensored line would have continued the same trend. The more interesting question is why, among all the lines that contained profanity and violence, Kendrick picked this line to censor.  
  
-* The censorship here could convey the idea that the uncensored line would have been so extremely violent and direct that it would make the song “X-rated”.  
+* The censorship here could convey the idea that the uncensored line would have been so extremely violent and direct that it would make the song “X-rated.”  
  
-* The previous time that Kendrick got so specific about the way that he would kill killer was on the track “XXX.” where Kendrick rapped:
+* The previous time that Kendrick got so specific about the way that he would kill a killer was on the track “XXX.,” where Kendrick rapped:  
 
   * *I chip a nigga lil' bit of nothin'  
   I chip a nigga lil' bit of nothin'  
   I chip a nigga lil' bit of nothin'  
   I chip a nigga, then throw the blower in his lap  
-  Walk myself to the court like, "Bitch, I did that”*  
-  **X-rated**  
+  Walk myself to the court like, "Bitch, I did that"  
+  **X-rated***  
 
-* Given that Dee-1 does not use profanity or advocate for people to commit acts of violence, Kendrick's tendency towards X-rated content again positions Kendrick as someone who is in many ways the exact opposite of Dee-1.  
-
+* Given that Dee-1 does not use profanity or advocate for people to commit acts of violence, Kendrick's tendency toward X-rated content again positions Kendrick as someone who is in many ways the exact opposite of Dee-1.  
 
 {{< /details >}}
 
@@ -3092,11 +3091,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "It's time to get these devils out the way, heavy metals on my sword" > Heavy metals
 
-* After previously referring to his execution targets as “degenerates” Kendrick continues to escalate his rhetoric by seemingly referring to them as “devils”. Labeling his execution targets as "devils" again seems to be an attempt to justify certain groups of people with a sword, potentially involving more decapitations.  
+* After previously referring to his execution targets as “degenerates,” Kendrick continues to escalate his rhetoric by seemingly referring to them as “devils.” Labeling his execution targets as "devils" again seems to be an attempt to justify eliminating certain groups of people with a sword, potentially involving more decapitations.  
  
-* “Heavy metal” is a subgenre of rock music which tends to feature violent and spiritually dark imagery in the song lyrics and band names.  
+* “Heavy metal” is a subgenre of rock music that tends to feature violent and spiritually dark imagery in song lyrics and band names.  
  
-* The original meaning of “heavy metals” refers to a category of chemical elements from the periodic table of elements. Kendrick thus seems to be making a subtle reference to his song “ELEMENT.” where he justified and glorified using violence to take revenge and fight against his enemies.  
+* The original meaning of “heavy metals” refers to a category of chemical elements from the periodic table. Kendrick thus seems to be making a subtle reference to his song “ELEMENT.,” where he justified and glorified using violence to take revenge and fight against his enemies.  
 
   * *I'm willin' to die for this shit  
   I done cried for this shit, **might take a life for this shit  
@@ -3133,28 +3132,28 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "It's time to get these devils out the way, heavy metals on my sword" > Spiritual swordfights
 
-* It is notable that in St. Paul's letter to the Church in Ephesus, St. Paul uses the imagery of armor, swords and warfare as a metaphor to describe how Christians should fight against spiritual forces including the "devi" \(aka "satan" / “false accuser” / “diabolical one”\) and the “element” forces of the world.  
+* It is notable that in St. Paul's letter to the Church in Ephesus, St. Paul uses the imagery of armor, swords, and warfare as a metaphor to describe how Christians should fight against spiritual forces, including the "devil" (aka "satan" / “false accuser” / “diabolical one”) and the “element” forces of the world.  
 
-  * *Finally, be strong in the Lord, and in the strength of his might. **Put on the whole armor of God, that you may be able to stand against the methodology of the \["devil" / "satan" / “false accuser” / “diabolical one”\]**. For our wrestling is not against flesh and blood, but **against the element**, against the powers, **against the world's rulers of the darkness of this age**, and **against the spiritual forces of wickedness** in the heavenly places.  
+  * *Finally, be strong in the Lord, and in the strength of his might. **Put on the whole armor of God, that you may be able to stand against the methodology of the ["devil" / "satan" / “false accuser” / “diabolical one”]**. For our wrestling is not against flesh and blood, but **against the element**, against the powers, **against the world's rulers of the darkness of this age**, and **against the spiritual forces of wickedness** in the heavenly places.  
      
   Therefore **put on the whole armor of God**, that you may be able to withstand in the evil day, and having done all, to stand Stand therefore, having the utility belt of truth buckled around your waist, and having put on the breastplate of right relationships, and having fitted your feet with the preparation of the Good News \(aka Gospel\) of peace, above all, taking up the shield of faith, with which you will be able to **quench all the fiery darts of the evil one**. And take the helmet of salvation, and **the sword of the Spirit, which is the word of God**; with all prayer and requests, **praying at all times in the Spirit**, and being watchful to this end in all perseverance and requests for all the saints.*  
      
   -Ephesians 6:10-18
 
-* In that passage, St. Paul makes it clear that Christians are not meant to be fighting or killing other humans (or as St. Paul says “flesh and blood”), because other humans are never the real enemy. Instead, St. Paul instructs the member of the church to go to war against “spiritual forces of wickedness”, not the humans who are doing things that are “too wicked to apologize”.  
+* In that passage, St. Paul makes it clear that Christians are not meant to be fighting or killing other humans (or as St. Paul says, “flesh and blood”), because other humans are never the real enemy. Instead, St. Paul instructs the members of the church to go to war against “spiritual forces of wickedness,” not the humans who are doing things that are “too wicked to apologize.”  
  
-* In order to defend against “spiritual forces”, St. Paul tells Christians to put on “spiritual armor” which refers to virtues such as truth, right relationships, peace derived from Jesus's Good News, faith, salvation.  
+* In order to defend against “spiritual forces,” St. Paul tells Christians to put on “spiritual armor,” which refers to virtues such as truth, right relationships, and peace derived from Jesus's Good News, faith, and salvation.  
  
-* In order to fight offensively against “spiritual forces”, St. Paul tells Christians to wield “the sword of the Spirit” which is a metaphor for the “word of God” that is conveyed though Jesus's teachings as told in the texts of Bible.  
+* In order to fight offensively against “spiritual forces,” St. Paul tells Christians to wield “the sword of the Spirit,” which is a metaphor for the “word of God” that is conveyed through Jesus's teachings as told in the texts of the Bible.  
  
 * St. Paul also instructs Christians to fight the spiritual war “with all prayer and requests, praying at all times in the Spirit.”  
  
-* Similarly, in St. Paul's second letter to the Corinthians, St. Paul made it clear that Christians are not meant to use physical weapons to fight against human enemies but spiritual weapons to fight against prideful patterns and thoughts and arguments which attempt to exalt themselves to make mak humans act according to those prideful patterns of thoughts and arguments instead of obeying Jesus's commandments.  
+* Similarly, in St. Paul's second letter to the Corinthians, St. Paul makes it clear that Christians are not meant to use physical weapons to fight against human enemies but spiritual weapons to fight against prideful patterns of thought and arguments that attempt to exalt themselves and make humans act according to those prideful patterns instead of obeying Jesus's commandments.  
 
   * For though we walk in the [flesh / body], **we do not wage battle according to the [flesh / bodily desires]**, for the weapons of our warfare are not of the [flesh / bodily desires], but are divinely powerful for the destruction of fortresses. **We are destroying arguments and all pride that exalts itself against the knowledge of God**, and we are **taking every thought captive to make those thoughts obedient to Christ**.  
   -2 Corinthians 10:3-5  
 
-* Hence, St. Paul clearly teaches Christians to “show 'em what prayer do”. Moreover, St. Paul also instructs Christians to be transformed by Jesus's teaching so that they can develop the kinds of virtues that will allow them to fight against prideful thoughts and arguments that would justify wickedness, including any acuments that would justify brutally killing other humans.  
+* Hence, St. Paul clearly teaches Christians to “show 'em what prayer do.” Moreover, St. Paul also instructs Christians to be transformed by Jesus's teaching so that they can develop the kinds of virtues that will allow them to fight against prideful thoughts and arguments that would justify wickedness, including any arguments that would justify brutally killing other humans.  
 
 {{< /details >}}
 
@@ -3166,13 +3165,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "We settle hard disputes today, the ghetto Hollywood divorce" > Hollywood divorce
 
-* “Hard” seems to be connected to the idea of “heavy metal” on the previous line. These “hard disputes” seem to be part of some unresolvable marital conflict that will eventually end in divorce. Based on the context of the song, it would seem that Kendrick plans to settle these “hard disputes” by killing the people with whom he has a dispute.  
+* “Hard” seems to be connected to the idea of “heavy metals” from the previous line. These “hard disputes” seem to be part of some unresolvable marital conflict that will eventually end in divorce. Based on the context of the song, it would seem that Kendrick plans to settle these “hard disputes” by killing the people with whom he has a dispute.  
  
-* Additionally, the reference to a “ghetto Hollywood divorce”, suggests that the dispute could be “contract dispute” between Black artists and an entertainment industry company.  
+* Additionally, the reference to a “ghetto Hollywood divorce” suggests that the dispute could be a “contract dispute” between Black artists and an entertainment industry company.  
  
-* Here Kendrick seems to be commenting on the relationship that “corporate guys” and “rappers who tell the lies” have forged to profit from distributing fabricated stories about being “street niggas just like Hollywood has profited from distributing fabricated stories.  
+* Here, Kendrick seems to be commenting on the relationship that “corporate guys” and “rappers who tell the lies” have forged to profit from distributing fabricated stories about being “street niggas,” just like Hollywood has profited from distributing fabricated stories.  
  
-* Kendrick also seems to be alluding to the Outkast song “Hollywood Divorce”, in which Outkast, Lil Wayne and Snoop Dogg used the image of a volatile Hollywood celebrity marriage as an extended metaphor for how entertainment industries appropriate Black culture only to later divorce themselves from the Black artists while holding on to the profits and intellectual property.  
+* Kendrick also seems to be alluding to the OutKast song “Hollywood Divorce,” in which OutKast, Lil Wayne, and Snoop Dogg used the image of a volatile Hollywood celebrity marriage as an extended metaphor for how entertainment industries appropriate Black culture only to later divorce themselves from the Black artists while holding on to the profits and intellectual property.  
 
   * ***Starts off like a small town marriage**  
   Lovely wife and life, baby carriage  
@@ -3253,7 +3252,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Say hello to your future fate, the culture bred with carnivores" > Culture vultures
 
-* With the line, “the culture bred with carnivores”, Kendrick seems to be alluding to the famously influential lines from Jay-Z's 2001 song “Izzo” in which Jay-Z describe corporate leaders in the music industry as “vultures” who scavenge off Black culture
+* With the line, “the culture bred with carnivores,” Kendrick seems to be alluding to the famously influential lines from Jay-Z's 2001 song “Izzo,” in which Jay-Z describes corporate leaders in the music industry as “vultures” who scavenge off Black culture.  
 
   * **I do this for my culture**, to let 'em know  
   What a nigga look like when a nigga in a roadster  
@@ -3264,16 +3263,16 @@ You'll get a better sense of the context and progression of thought if you go th
   **Pay us like you owe us for all the years that you hoed us**  
   We can talk, but money talks, so talk more bucks  
 
-* More recently in Migos's 2017 track, “T-Shirt” from their album “Culture”, Migos member, Quavo, referenced those lines from “Izzo” while discussing how "vultures" will "bite", which is slang for stealing.
+* More recently, in Migos's 2017 track “T-Shirt” from their album *Culture*, Migos member Quavo referenced those lines from “Izzo” while discussing how "vultures" will "bite," which is slang for stealing.  
 
-  * Do it for the culture (Culture)  
-  They gon' bite like vultures (Vultures)  
+  * ***Do it for the culture (Culture)  
+  They gon' bite like vultures (Vultures)***  
 
-* The carnivores that Kendrick mention here thus seem to be culture vultures who will eat artists for a snack. Kendrick specifically mentions that the carnivores will "eat your face", which conveys the idea that cultures vultures seek to erase an artist's identity along with any associate or credit that the artist would have to their work.
+* The carnivores that Kendrick mentions here thus seem to be culture vultures who will eat artists for a snack. Kendrick specifically mentions that the carnivores will "eat your face," which conveys the idea that culture vultures seek to erase an artist's identity along with any association or credit that the artist would have for their work.  
  
-* In the phrase “bred with carnivores”, the word "bred" primarily refers to the reproduction of vulture from one generation to the next. However, "bred" is also a double entendre for the food item “bread” which connects to the idea of vulture eating. This line then turns into a triple entendre when we realize that “bread” is also slang for “money” which would indicate that the "corporate guys" from the entertainment industry are eating up all the money that rightfully belongs to the artist.  
+* In the phrase “bred with carnivores,” the word "bred" primarily refers to the reproduction of vultures from one generation to the next. However, "bred" is also a double entendre for the food item “bread,” which connects to the idea of vultures eating. This line then turns into a triple entendre when we realize that “bread” is also slang for “money,” indicating that the "corporate guys" from the entertainment industry are eating up all the money that rightfully belongs to the artist.  
  
-* By saying "Say hello to your future fate", Kendrick seems to be asserting that getting eaten and erased by culture vultures is guaranteed to be the fate of any artist who remains trapped in the grip of the entertainment industry for any substatial amount of time.
+* By saying "Say hello to your future fate," Kendrick seems to be asserting that getting eaten and erased by culture vultures is guaranteed to be the fate of any artist who remains trapped in the grip of the entertainment industry for any substantial amount of time.  
 
 {{< /details >}}
 
@@ -3285,13 +3284,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "the signatures is bein' forged" > Forged signatures
 
-* Kendrick seems to be warning other hip hop artists about the hard disputes and metaphorical divorce that will happen to them in the future if they sign a contract with an exploitative entertainment company.  
+* Kendrick seems to be warning other hip-hop artists about the hard disputes and metaphorical divorce that will happen to them in the future if they sign a contract with an exploitative entertainment company.  
  
-* The word "forged" refers to a fake signature that is used to establihs a fraudulent legal agreement but is also double entendre referring to the process of shaping metal into a weapon, tool or object. This connects back to previous line about “heavy metals on my sword” that was used to "get these devils out the way".  
+* The word "forged" refers to a fake signature that is used to establish a fraudulent legal agreement but is also a double entendre referring to the process of shaping metal into a weapon, tool, or object. This connects back to the previous line about “heavy metals on my sword” that was used to "get these devils out the way."  
  
 * The idea that the signatures are being “forged” indicates that the "corporate guys" in the entertainment industry are actually committing acts of fraud to illegally profit from "rappers that report the lies" and use the leverage of paid lawyers and the legal system against Black artists.  
  
-* The imagery of signatures from the entertainment industry also brings to mind the *To Pimp a Butterfly* track “For Sale? (Interlude)” in which Lucifer (aka the "devil" / "satan" / “false accuser” / “diabolical one”) comes to Kendrick in the form of a music industry executive named Lucy. Lucy tries to get Kendrick to sign a contract to sell his soul to her in exchange for wealth, possessions and an agreement that Kendrick will stop praying and abandon his loving relationship with God the Father.  
+* The imagery of signatures from the entertainment industry also brings to mind the *To Pimp a Butterfly* track “For Sale? (Interlude),” in which Lucifer (aka the "devil" / "satan" / “false accuser” / “diabolical one”) comes to Kendrick in the form of a music industry executive named Lucy. Lucy tries to get Kendrick to sign a contract to sell his soul to her in exchange for wealth, possessions, and an agreement that Kendrick will stop praying and abandon his loving relationship with God the Father.  
 
   * ***My name is Lucy, Kendrick**, you introduced me, Kendrick  
   Usually I don't do this but I see you and me, Kendrick  
@@ -3323,11 +3322,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "They wonder why I'm not enthused to drop" > Drop
 
-* The word "drop" refers to Kendrick releasing or “dropping” a new album, which is something that had been heavily anticipated during and after the battle with Drake.  
+* The word "drop" refers to Kendrick releasing or “dropping” a new album, which was something heavily anticipated during and after the battle with Drake.  
  
-* After hearing about sexual predators, unfaithful corporate partners, fraudulent devils and culture vultures in the entertainment industry it is no wonder that Kendrick is unenthusiastic about dropping a new album.  
+* After hearing about sexual predators, unfaithful corporate partners, fraudulent devils, and culture vultures in the entertainment industry, it is no wonder that Kendrick is unenthusiastic about dropping a new album.  
  
-* A few months after the release of "Watch the Party Die", Kendrick would release his next full length album, *GNX*. Throughout *GNX* Kendrick discusse the challenges of navigating through the evil, satanic control of the entertainment industry, particular on the track "reincarnated".  
+* A few months after the release of "Watch the Party Die," Kendrick would release his next full-length album, *GNX*. Throughout *GNX*, Kendrick discusses the challenges of navigating through the evil, satanic control of the entertainment industry, particularly on the track "reincarnated."  
 
 {{< /details >}}
 
@@ -3343,19 +3342,30 @@ You'll get a better sense of the context and progression of thought if you go th
  
 * Kendrick seems to be expressing the idea that he and other true artists face increasingly difficult struggles and trials as they become increasingly famous and visible to the public.  
  
-* This line expresses a similar idea and ethos to the Notorious B.I.G., Ma$e and Diddy’s famous song “Mo’ Money, Mo’ Problems”  
+* This line expresses a similar idea and ethos to The Notorious B.I.G., Ma$e, and Diddy’s famous song “Mo’ Money, Mo’ Problems.”  
 
   * *I don't know what they want from me  
   It's like **the more money we come across  
   The more problems we see***  
 
-* The challenge of being tried spiritually seems to be one of the main reasons that Kendrick is "not enthused to drop" a new album, since droping a new album will only increase his visibility and his trials.
+* The challenge of being tried spiritually seems to be one of the main reasons that Kendrick is "not enthused to drop" a new album since dropping a new album will only increase his visibility and his trials.  
  
-* The idea of increased spiritually trials coming after increased visibility is also illustrated in Gospel accounts which describe how Jesus was tried by the ["devil" / "satan" / "false accusers" / "diabolical one"] immediately after God the Father opened the skies, spoke audibly to declare that Jesus was his "beloved son" and  sent the Holy Spirit in the visible form of a dove to show that Jesus is the anointed king (aka the Christ) over God's people.  
+* The idea of increased spiritual trials coming after increased visibility is also illustrated in Gospel accounts, which describe how Jesus was led into the desert wilderness to be tested and tried by the ["devil" / "satan" / "false accuser" / "diabolical one"] immediately after God the Father opened the skies, spoke audibly to declare that Jesus was his "beloved son," and sent the Holy Spirit in the visible form of a dove to show that Jesus is the anointed king (aka the Christ) over God's people.  
 
-  * ***After Jesus was baptized**, he came up immediately from the water; and behold, the **skies were opened**, and he **saw the Spirit of God descending as a dove and settling on Him**, and behold, a voice from the skies said, “This is My beloved Son, with whom I am well pleased.” **Then Jesus was led up by the Spirit into the wilderness to be tested by the devil**.*  
-  -Matthew 3:16-4:1
+  * ***After Jesus was baptized**, he came up immediately from the water; and behold, the **skies were opened**, and he **saw the Spirit of God descending as a dove and settling on Him**, and behold, a voice from the skies said, “This is My beloved Son, with whom I am well pleased.” **Then Jesus was led up by the Spirit into the wilderness to be tested by the devil**. When he had **fasted forty days and forty nights, he was hungry** afterward. **The tester came and said to him**, “If you are the Son of God, command that these stones become bread.”*  
+  -Matthew 3:16-4:2
 
+* The New Testament story of Jesus being spiritually tried and tested in the desert wilderness for forty days after passing through the waters of baptism intentionally mirrors the Old Testament story of the Israelites, who were tried and tested in the desert wilderness for forty years after passing through the waters of the Red Sea during their escape from slavery.  
+ 
+* In his farewell speech to the Israelites in Deuteronomy, Moses specifically reminds the Israelites that God was the one who defeated Pharaoh, freed the Israelites from slavery, and led them into the wilderness in order to test them so that they would remain humble and not become proud even when they became successful.  
+     
+  * *You shall remember all the way which **the LORD your God has led you in the wilderness these forty years, in order to humble you, putting you to the test, to know what was in your heart, whether you would keep His commandments or not**. And He humbled you and let you go hungry, and fed you with the manna which you did not know, nor did your fathers know, **in order to make you understand that man shall not live on bread alone, but man shall live on everything that comes out of the mouth of the Lord**. Your clothing did not wear out on you, nor did your foot swell these forty years. So you are to **know in your heart that the Lord your God was disciplining you just as a man disciplines his son**. Therefore, you shall keep the commandments of the Lord your God, to walk in His ways and to fear Him. **For the LORD your God is bringing you into a good land**, a land of streams of water, of fountains and springs, flowing out in valleys and hills; a land of wheat and barley, of vines, fig trees, and pomegranates, a land of olive oil and honey; a land where you will eat food without shortage, in which you will not lack anything; a land whose stones are iron, and out of whose hills you can dig copper. When you have eaten and are satisfied, you shall bless the Lord your God for the good land which He has given you.  
+     
+  Be careful that you do not forget the Lord your God by failing to keep His commandments, His ordinances, and His statutes which I am commanding you today; **otherwise, when you eat and are satisfied**, and you build good houses and live in them, and when your herds and your flocks increase, and your silver and gold increase, and everything that you have increases, **then your heart will become proud and you will forget the LORD your God who brought you out of the land of Egypt, out of the house of slavery; He who led you through the great and terrible wilderness**, with its fiery serpents and scorpions, and its thirsty ground where there was no water; He who brought water for you out of the rock of flint. **In the wilderness it was He who fed you manna** which your fathers did not know, **in order to humble you and in order to put you to the test, to do good for you in the end**. Otherwise, you may say in your heart, ‘My power and the strength of my hand made me this wealth.’ But you are to **remember the LORD your God, for it is He who is giving you power to make wealth**, in order to confirm His covenant which He swore to your fathers, as it is this day.*  
+     
+  -Deuteronomy 8:2-18
+
+* In the case of both Jesus and the Israelites, the visibility of being uplifted by God led directly to spiritual trials that were meant to prepare them to have the right attitude and mindset about any future exaltation.  
 
 {{< /details >}}
 
@@ -3367,18 +3377,18 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "It's cynical to say I know these artists petrified" > Petrified
 
-* For the last few lines Kendrick has been shown himself to be very cynical about the entertainment industry, which gobbles up artists like vultures. Artists who recognize the dangers of the entertainment industry are understandably afraid and even “petrified”.  
+* For the last few lines, Kendrick has shown himself to be very cynical about the entertainment industry, which gobbles up artists like vultures. Artists who recognize the dangers of the entertainment industry are understandably afraid and even “petrified.”  
  
-* While the word "petrified" can be used as a synonym for "afraid", the most concreate meaning of “petrified” refers to any kind of organic plant or animal material that is turned into stone. Organic material is petrified when water brings small minerals into the formerly living plant or animal and slowly replaces all of the organic flesh with rock-hard material.  
+* While the word "petrified" can be used as a synonym for "afraid," the most concrete meaning of “petrified” refers to any kind of organic plant or animal material that is turned into stone. Organic material is petrified when water brings small minerals into the formerly living plant or animal and slowly replaces all of the organic flesh with rock-hard material.  
  
-* Becoming “petrified” actually serves as a great metaphor for hip hop as a living, flexible, organic culture being infiltrated by slick corporate guys and entertainment companies who kill hip hop artists (or more specifically kill hip hop artists consciousness as Kendrick mentioned in “Worldwide Steppers”) then seek to replace the flexible, organic culture of hip hop with a rock hard, inflexible, inorganic focus on making profit. This process eventually turns Black artists into hard-hearted individuals who are deadened to the world and can no longer grow.  
+* Becoming “petrified” actually serves as a great metaphor for hip-hop as a living, flexible, organic culture being infiltrated by slick corporate guys and entertainment companies who kill hip-hop artists (or more specifically, kill hip-hop artists' consciousness, as Kendrick mentioned in “Worldwide Steppers”) then seek to replace the flexible, organic culture of hip-hop with a rock-hard, inflexible, inorganic focus on making a profit. This process eventually turns Black artists into hard-hearted individuals who are deadened to the world and can no longer grow.  
  
-* It is notable that the within the Old Testament, the Prophet Ezekiel explained that God had allowed the Israelites to be defeated, dispursed and enslaved because of they had hearts of stone which did not desire God or the justice that comes from God. However, Ezekiel also prophesied about a day in the future when God would free them from slavery, bring them back to their own land and transform their old hearts of stone into new hearts of flesh which would truly desire God and be able to act with justice.  
+* It is notable that within the Old Testament, the Prophet Ezekiel explained that God had allowed the Israelites to be defeated, dispersed, and enslaved because they had hearts of stone that did not desire God or the justice that comes from God. However, Ezekiel also prophesied about a day in the future when God would free them from slavery, bring them back to their own land, and transform their old hearts of stone into new hearts of flesh that would truly desire God and be able to act with justice.  
  
   * *For **I will** take you from among the nations and **gather you** out of all the countries, and will **bring you into your own land**. I will sprinkle clean water on you, and you will be clean. I will cleanse you from all your filthiness, and **from all your idols**. I will also **give you a new heart**, and I will put a new spirit within you. I will **take away the heart of stone** out of your bodies, and I will **give you a heart of flesh**. I will put my Spirit within you, and **cause you to walk in my prescriptions**. You will **obey my justice and do just acts**. You will reside in the land that I gave to your fathers. **You will be my people, and I will be your God**.*  
   -Ezekiel 36:24-28
 
-* From a biblical pespective, becoming "petrified" is thus equivalent to being enslaved or imprisoned by an oppressor due to idolatrous desire for material possessions.
+* From a biblical perspective, becoming "petrified" is thus equivalent to being enslaved or imprisoned by an oppressor due to an idolatrous desire for material possessions.  
 
 {{< /details >}}
 
@@ -3390,7 +3400,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The end result, in jail by Jezebel or drugged up full of lies" > End result
 
-* Kendrick suggests that dealing with the evils of the entertainment industry can only lead to two possible end results for artists: Either the artist will be locked up "in jail by Jezebel" or "drugged up full of lies".  
+* Kendrick suggests that dealing with the evils of the entertainment industry can only lead to two possible end results for artists: Either the artist will be locked up "in jail by Jezebel" or "drugged up full of lies."  
  
 * With either of these results, the artist will lose the freedom to create truthful works of art.  
 
@@ -3400,15 +3410,15 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The end result, in jail by Jezebel or drugged up full of lies" > Jezebel
 
-* As mentioned in the analysis of the line ["Burn the whole village, we start over, it’s really that time"](#burn-the-whole-village-we-start-over-its-really-that-time--reqesting-fire-from-heaven-in-the-old-testament), Jezebel was a wicked woman who became queen of the Northern Kingdom of Israel after she married a wicked king named Ahab.After becoming queen, Jezebel replaced the worship of Yahweh, the God of Israel, with the worship of the fertility god name Ba’al. Queen Jezebel then either killed or imprisoned most of the true prophets of God, while a hundred of God's prophets escaped to hide in caves.  
+* As mentioned in the analysis of the line ["Burn the whole village, we start over, it’s really that time"](#burn-the-whole-village-we-start-over-its-really-that-time--requesting-fire-from-heaven-in-the-old-testament), Jezebel was a wicked woman who became queen of the Northern Kingdom of Israel after she married a wicked king named Ahab. After becoming queen, Jezebel replaced the worship of Yahweh, the God of Israel, with the worship of the fertility god named Ba’al. Queen Jezebel then either killed or imprisoned most of the true prophets of God, while a hundred of God's prophets escaped to hide in caves.  
      
-  * The prophet Elijah was the only prophet who was protected and empowered to openly confront Queen Jezebel and King Ahab. Elijah challenged the prophets of the fertility Ba’al to a competition to in which the prophets of Yahweh, the God of Israel, and Ba’al, the fertility god, would each ask the deity whom they worshiped to send down fire from the skies to burn up a sacrifice on an altar.  
+  * The prophet Elijah was the only prophet who was protected and empowered to openly confront Queen Jezebel and King Ahab. Elijah challenged the prophets of the fertility god Ba’al to a competition in which the prophets of Yahweh, the God of Israel, and Ba’al, the fertility god, would each ask the deity whom they worshiped to send down fire from the skies to burn up a sacrifice on an altar.  
      
   * After Yahweh, the God of Israel, proved to be the only deity capable of sending down fire from the skies, Elijah compelled the Israelites to round up the prophets of Ba’al and kill them.  
      
-  * The death of Ba'al's prophets enraged Queen Jezebel. Shen then swore that she would kill Elijah, which caused Elijah to run for his life.  
+  * The death of Ba'al's prophets enraged Queen Jezebel. She then swore that she would kill Elijah, which caused Elijah to run for his life.  
 
-* Kendrick has repeatedly depicted himself as a prophet on “Mortal Man”, throughout DAMN. and at severl moments on other tracks. Here in "Watch the Party Die" Kendrick the seems see himself as the modern equivalent of the prophet Elijah who is at risk of having his artistic output locked up by the wicked leaders of the entertainment industry.  
+* Kendrick has repeatedly depicted himself as a prophet on “Mortal Man,” throughout *DAMN.*, and at several moments on other tracks. Here in "Watch the Party Die," Kendrick seems to see himself as the modern equivalent of the prophet Elijah, who is at risk of having his artistic output locked up by the wicked leaders of the entertainment industry.  
 
 {{< /details >}}
 
@@ -3416,15 +3426,15 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The end result, in jail by Jezebel or drugged up full of lies" > Drugged up
 
-* The term "drugged up" is used to describe a person who is noticeably being under the influence of drugs, whether prescription drugs or recreational drugs.  
+* The term "drugged up" is used to describe a person who is noticeably under the influence of drugs, whether prescription drugs or recreational drugs.  
  
-* In many cases, someone who is "drugged up" may not be fully aware of their surroundings and thus is in a vulernable state in which someone could take advantage of them.  
+* In many cases, someone who is "drugged up" may not be fully aware of their surroundings and thus is in a vulnerable state in which someone could take advantage of them.  
  
-* The idea of being drugged up connects back to the earlier reference to the drug MDMA in the line "Let’s kill the followers that follow up on poppin’ mollies".  
+* The idea of being drugged up connects back to the earlier reference to the drug MDMA in the line "Let’s kill the followers that follow up on poppin’ mollies."  
  
-* In the current line, Kendrick seems to imply that artists who are have succumbed to their desires from pleasure and the exploitation of the entertainment industry will be drugged up with "lies".  
+* In the current line, Kendrick seems to imply that artists who have succumbed to their desires for pleasure and the exploitation of the entertainment industry will be drugged up with "lies."  
  
-* The idea of artists being under the influence of lies also connects back to earlier lines where Kendrick ordered the execution of those who told lies or failed to provide truth to their young audience.
+* The idea of artists being under the influence of lies also connects back to earlier lines where Kendrick ordered the execution of those who told lies or failed to provide truth to their young audience.  
 
   * *If you parade in gluttony **without givin' truth to the youth**  
   The graveyard is company, just tell us what casket to choose  
@@ -3433,13 +3443,13 @@ You'll get a better sense of the context and progression of thought if you go th
   Street niggas and the corporate guys  
   the **rappers that report the lies***  
 
-* In the current line, Kendrick seems to suggest that the minds of "rappers that report the lies" eventually become altered and distorted as they become intoxicated by the lies that they have consumed and are not regurgitating to the masses.  
+* In the current line, Kendrick seems to suggest that the minds of "rappers that report the lies" eventually become altered and distorted as they become intoxicated by the lies that they have consumed and are now regurgitating to the masses.  
  
 * Being "drugged up" may also lead a person to lose consciousness.  
  
-* Fittingly, since the 1990s the word “conscious” has been used to describe hip hop artists such as Common, Mos Def, Talib Kweli, and Lupe Fiasco who do not gloryify violence, drugs, sexual misbehavior, gluttony, jewelry, poor financial decisions, or any other form of ignorance that might be common in commercialized, mainstream hip hop. Instead, these artists focused on positive messages that would uplift the Black community. "Conscious" hip hop artists are thus the exact opposite of the "rappers that report the lies" and become "drugged up full of lies"  
+* Fittingly, since the 1990s the word “conscious” has been used to describe hip-hop artists such as Common, Mos Def, Talib Kweli, and Lupe Fiasco, who do not glorify violence, drugs, sexual misbehavior, gluttony, jewelry, poor financial decisions, or any other form of ignorance that might be common in commercialized, mainstream hip-hop. Instead, these artists focus on positive messages that uplift the Black community. "Conscious" hip-hop artists are thus the exact opposite of the "rappers that report the lies" and become "drugged up full of lies."  
  
-* Throughout *Mr. Morale & the Big Stepper* Kendrick also discussed the concept of "conciousness" as being free from ego, aware, present in "now", and connected to the universal or "collective consciousness" as described in the New Age teachings of Eckhart Tolle.  
+* Throughout *Mr. Morale & the Big Steppers*, Kendrick also discussed the concept of "consciousness" as being free from ego, aware, present in "now," and connected to the universal or "collective consciousness" as described in the New Age teachings of Eckhart Tolle.  
 
   * *The **media**'s the new religion, you **killed the consciousness***
   -“Worldwide Steppers”  
@@ -3460,9 +3470,9 @@ You'll get a better sense of the context and progression of thought if you go th
   Euphoria is glorified and made His*  
   -“The Heart Part 5”  
 
-* In some cases the term, "drugged up" or just "drugged" may also be used to describe women (or sometimes men) who have unknowingly consumed a drug that was given to them by a sexual predator who intends to sexually assault or abuse the "drugged" person once they lose awareness or consciousness.  
+* In some cases, the term "drugged up" or just "drugged" may also be used to describe women (or sometimes men) who have unknowingly consumed a drug that was given to them by a sexual predator who intends to sexually assault or abuse the "drugged" person once they lose awareness or consciousness.  
 
-* The idea of sexual assault could imply that rappers and artists are being "drugged up full of lies" because they are being "fucked over" by the predatory leaders of the entertainment industry. Kendrick previously asserted that artists are getting duped into unfaithful relationships, "fucked over", and killed by the entertainment industry on the track "N95" from *Mr. Morale & the Big Stepper*.  
+* The idea of sexual assault could imply that rappers and artists are being "drugged up full of lies" because they are being "fucked over" by the predatory leaders of the entertainment industry. Kendrick previously asserted that artists are getting duped into unfaithful relationships, "fucked over," and killed by the entertainment industry on the track "N95" from *Mr. Morale & the Big Steppers.*  
 
   * ***The industry wants  
   Niggas and bitches to sleep in a box**  
@@ -3472,7 +3482,7 @@ You'll get a better sense of the context and progression of thought if you go th
   **This ain't monogamy  
   Y'all gettin' fucked***  
 
-* The idea of sexual assault could also connect back to Kendrick allegagions of Drake and his crew being sexual predators who traffic girls to sex parties at Drake's mansion.   
+* The idea of sexual assault could also connect back to Kendrick’s allegations of Drake and his crew being sexual predators who traffic girls to sex parties at Drake's mansion.  
 
 {{< /details >}}
 
@@ -3485,7 +3495,26 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Critical, I know my physical is tested all the time" > Tested
 
-* In addition to being spiritually tried, Kendrick is know that he must endure being physically tested.  
+* As can be seen in the examples presented in the analysis of ["The more visible you get, the more your spiritual is tried"](#the-more-visible-you-get-the-more-your-spiritual-is-tried--more-visible-more-tried), spiritual trials often come along with physical tests. For instance, both Jesus and the Israelites endured the test of extreme physical hunger as they were being spiritually tried and tested in the desert wilderness.  
+ 
+* Kendrick has explored the concept of God allowing a person's faith to be tested on the track "Faith" from *The Kendrick Lamar EP*.  
+
+  * ***This for my people that stressing whenever times is hard  
+  Your mind's slipping, wondering, "Is there really a God?"**  
+  Knowing you shouldn't think that way and trying to freeze your brain  
+  But **whenever there's pain, that feeling forever remains**  
+  We can't believe what we can't see and reality seems stronger than prayer  
+  **'Cause you tried to change your life, and now you live in a wheelchair  
+  And your son was born with cancer and he live in urgent care  
+  At the tender age of twelve, and you feel that no one cares  
+  Searching for answers**, that's human nature, you ain't in the wrong  
+  Just know when you feeling that way His Spirit's in the room  
+  I watched people I know pray and catch the Holy Ghost  
+  And wonder why I ain't ever caught that feeling before  
+  Maybe they know Him better, or I don't know no better  
+  But what I do know, is that He's real and He lives forever  
+  **So the next time you feel like your world's about to end  
+  I hope you studied because He's testing your faith again***  
 
 {{< /details >}}
 
@@ -3498,41 +3527,39 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm pitiful, sunken place soon as I'm question in' my pride" > The "Sunken Place"
 
-* Here Kendrick talks about being pitiful and in the “Sunken Place”, which is a reference to the movie **Get Out**.  
+* Here Kendrick talks about being pitiful and in the “Sunken Place,” which is a reference to the movie *Get Out.*  
     
-  * In *Get Out* a Black male protagonist named Chris goes to visit his white girlfriend's wealthy family at a secluded estate. Although the family is very friendly—actually too friendly—he begins to notice strange behavior, particularly from the Black woman who serves as housekeeper and the Black man who serves as a groundskeeper.  
+  * In *Get Out*, a Black male protagonist named Chris goes to visit his white girlfriend's wealthy family at a secluded estate. Although the family is very friendly—actually too friendly—he begins to notice strange behavior, particularly from the Black woman who serves as a housekeeper and the Black man who serves as a groundskeeper.  
      
   * One evening, the Black protagonist has a private conversation with his white girlfriend’s mother. The mother starts asking very probing questions about his personal trauma while using the sound of a spoon stirring around a teacup to hypnotize the Black protagonist.  
      
-  * As he talks about his traumatic life experiences the Black protagonist feels pitiful and soon becomes paralyzed and cannot move even though he is still awake. However, then the mother says “Now sink into the floor. Sink!”  
+  * As he talks about his traumatic life experiences, the Black protagonist feels pitiful and soon becomes paralyzed and cannot move even though he is still awake. However, then the mother says, “Now sink into the floor. Sink!”  
      
-  * At that point the Black protagonist’s consciousness becomes totally disconnected or dissociated from his body and sent down to what the mother calls “the sunken place”. In the “sunken place” he faintly see what’s going on around him but is unable to move his body or do anything about it.  
+  * At that point, the Black protagonist’s consciousness becomes totally disconnected or dissociated from his body and sent down to what the mother calls “the Sunken Place.” In the “Sunken Place,” he can faintly see what’s going on around him but is unable to move his body or do anything about it.  
      
-  * Later on the White mother keeps the Black protagonist in the hypnotized state long enough to strap him to a restraining chair in the basement. The Black protagonist then learns that the family uses the daughter to attract black people and bring them to her family’s estate where they are hypnotized with the consciousness sent to the sunken place. The family then takes over the Black person’s body and transfers the consciousness of older, “degenerate” White person into the Black person’s stolen body stolen body.  
+  * Later on, the White mother keeps the Black protagonist in the hypnotized state long enough to strap him to a restraining chair in the basement. The Black protagonist then learns that the family uses the daughter to attract Black people and bring them to her family’s estate, where they are hypnotized, with their consciousness sent to the Sunken Place. The family then takes over the Black person’s body and transfers the consciousness of an older, “degenerate” White person into the Black person’s stolen body.  
      
-  * The protagonists learns that Black woman who is serving as the housekeeper and the Black man who is serving as the groundskeeper are Black people whose bodies were previously stolen so that their consciousness could be replaced by the consciousness of the girlfriend’s grandmother and grandfather respectively.  
+  * The protagonist learns that the Black woman who is serving as the housekeeper and the Black man who is serving as the groundskeeper are Black people whose bodies were previously stolen so that their consciousness could be replaced by the consciousness of the girlfriend’s grandmother and grandfather, respectively.  
      
-  * The Black protagonist refuses to be a victim of this plot. He manages to free himself from the restraining chair before his body is stolen and kill several members of the family before escaping from the estate with the help of his Black friend.  
+  * The Black protagonist refuses to be a victim of this plot. He manages to free himself from the restraining chair before his body is stolen and kills several members of the family before escaping from the estate with the help of his Black friend.  
 
 * Kendrick seems to be referencing the plot of *Get Out* as a metaphor for what the White-owned entertainment industry is doing to Black artists and Black culture.  
  
-* The White owned entertainment industry is sending out corporate White folks to attract Black artists to come join the the White entertainment industry.  
+* The White-owned entertainment industry is sending out corporate White folks to attract Black artists to join the White entertainment industry.  
  
 * Once the Black artist is in the building, the White industry folks hypnotize and paralyze Black artists by getting them to keep talking about their traumatic life experiences until they feel pitiful.  
    
   * This is similar to the experiences that Kendrick alluded to on “Mother I Sober” when he rapped:  
 
-    * “Traded in my tears for a Range Rover”  
+    * “Traded in my tears for a Range Rover.”  
 
-* The White industry folk then forces the Black artist into a state of unconsciousness (aka the "Sunken Place") where they become disconnected and dissociated from what’s going on around them.  
+* The White industry folk then force the Black artist into a state of unconsciousness (aka the "Sunken Place") where they become disconnected and dissociated from what’s going on around them.  
  
-* After forcing the Black artist into a state of unconsciousness, the White corporate industry folk can then steal the Black artist’s body of work (e.g. the master recording of a music artist) and give it to a degenerate White person to own as his or her own body of work while the Black artist is still trapped in the “Sunken Place”.  
+* After forcing the Black artist into a state of unconsciousness, the White corporate industry folk can then steal the Black artist’s body of work (e.g., the master recordings of a music artist) and give it to a degenerate White person to own as their own body of work while the Black artist is still trapped in the “Sunken Place.”  
    
-  * It is notable that the word “corporate” comes from the Latin word “corporātiō” which literally means “the assumption or taking on of a body”  
-     
-  * This idea of stealing a Black artist's body (of work) also mirrors the metaphor of petrification where White corporate industry folk kill the Black artist’s consciousness, penetrate into their body of work, and slowly replace the flexible, organic flesh with rock hard, inflexible, inorganic minerals until the body is just a hard relic of a past life.  
+  * It is notable that the word “corporate” comes from the Latin word “corporātiō,” which literally means “the assumption or taking on of a body.”  
 
-* Kendrick, like the protagonists of Get Out is one of the few Black artists who has been able to regain consciousness, free himself from the restraints of his original contract, and now seems poised to kill the White industry folk so that he can escape before they try to send his consciousness back to the "Sunken Place."  
+* Kendrick, like the protagonist of *Get Out*, is one of the few Black artists who has been able to regain consciousness, free himself from the restraints of his original contract, and now seems poised to kill the White industry folk before they try to send his consciousness back to the "Sunken Place."  
 
 {{< /details >}}
 
