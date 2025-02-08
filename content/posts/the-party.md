@@ -3567,9 +3567,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm pitiful, sunken place soon as I'm question in' my pride" > Pride
 
-* It is notable that Kendrick finds himself in the "Sunken Place" whenever he “questions his pride”. The might convey the idea that the entertainment industry wants Kendrick to remain under the influence of his own pride, so that he will make bad decisions and be easier to control.  
+* It is notable that Kendrick finds himself in the "Sunken Place" whenever he “questions his pride.” This might convey the idea that the entertainment industry wants Kendrick to remain under the influence of his own pride so that he will make bad decisions and be easier to control.  
  
-* Kendrick has discussed his internal struggle between pride and humility throughout much of his work.
+* Kendrick has discussed his internal struggle between pride and humility throughout much of his work.  
 
   * *The days I tried to cover up and conceal  
   **My pride, it only made it harder for me to deal**  
@@ -3620,9 +3620,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm seein' ghosts, blackin' out, relapsin' one thought at a time" > Seeing ghosts
 
-* Kendricks spiritual trials and physical tests seem to push him to the point where he is "seeing ghosts."  
+* Kendrick's spiritual trials and physical tests seem to push him to the point where he is "seeing ghosts."  
  
-* On “Mother I Sober”, the pivotal track from *Mr. Morale & the Big Steppers*, Kendrick mentioned seeing the ghost of his maternal grandmother as he struggled to break a generation curse through therapy.
+* On “Mother I Sober,” the pivotal track from *Mr. Morale & the Big Steppers*, Kendrick mentioned seeing the ghost of his maternal grandmother as he struggled to break a generational curse through therapy.  
 
   * ***My mother's mother followed me for years in her afterlife  
   Starin' at me on back of some buses**, I wake up at night  
@@ -3634,7 +3634,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm seein' ghosts, blackin' out, relapsin' one thought at a time" > Blacking out
 
-* The term “blacking out” typically refers to the experience of going into a state of unconsciousness. The idea of unconscioussness connects back to the idea of artists being "drugged up full of lies" as discussed in a previous line.  
+* The term “blacking out” typically refers to the experience of going into a state of unconsciousness. The idea of unconsciousness connects back to the idea of artists being "drugged up full of lies," as discussed in a previous line.  
 
 {{< /details >}}
 
@@ -3642,11 +3642,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm seein' ghosts, blackin' out, relapsin' one thought at a time" > Relapsing
 
-* A "relapse" is a setback in deteriation in someone's health after previous improvement. The term is most often used to describe the experience in which someone who had previously broken free from an addiction to a drug or stimulating activity returns to their addiction.  
+* A "relapse" is a setback or deterioration in someone's health after previous improvement. The term is most often used to describe the experience in which someone who had previously broken free from an addiction to a drug or stimulating activity returns to their addiction.  
  
-* Within the context of "Watch the Party Die" a "relapsin' one thought at a time" might imply that the spiritual and physical struggles with the entertainment industry are causing Kendrick to fall back into destructive ways of thought after previously being "drugged up full of lies."  
+* Within the context of "Watch the Party Die," a "relapsin' one thought at a time" might imply that the spiritual and physical struggles with the entertainment industry are causing Kendrick to fall back into destructive ways of thought after previously being "drugged up full of lies."  
  
-* It is notable that throughout *Mr. Morale & the Big Steppers*, Kendrick reveals his struggle with sex addition that was exacerbated by being a famous touring artist in the entertainment industry.  
+* It is notable that throughout *Mr. Morale & the Big Steppers*, Kendrick reveals his struggle with sex addiction that was exacerbated by being a famous touring artist in the entertainment industry.  
 
   * ***I met her on the third night of Chicago  
   North America tour**, my eyes closed  
@@ -3721,7 +3721,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm seein' ghosts, blackin' out, relapsin' one thought at a time" > One thought at a time
 
-* Kendrick seems to realize that his susceptibility to addition is fueled by his own pattern of thoughts. This echoes St. Paul’s second letter to the Corinthians in which he told Chrsitians that they are not fighting a physical battle against other humans but a spiritual battle against arrogant thoughts and arguments that lead to prideful exaltation and prevent humans from knowing God in a loving relationship.  
+* Kendrick seems to realize that his susceptibility to addiction is fueled by his own pattern of thoughts. This echoes St. Paul’s second letter to the Corinthians, in which he told Christians that they are not fighting a physical battle against other humans but a spiritual battle against arrogant thoughts and arguments that lead to prideful exaltation and prevent humans from knowing God in a loving relationship.  
 
   * *For though we walk in the [flesh / body], **we do not wage battle according to the [flesh / bodily desires]**, for the weapons of our warfare are not of the [flesh / bodily desires], but are divinely powerful for the destruction of fortresses. **We are destroying arguments and all arrogance that exalts itself against the knowledge of God**, and we are **taking every thought captive to make those thoughts obedient to Christ**.*  
   -2 Corinthians 10:3-5  
@@ -3736,11 +3736,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I spare no feelings that ain't mine" > Spare no feeling
 
-* The phrase “spare no feelings” describes someone who is acting without any concern of how his or her actions could hurt someone else’s feelings.  
+* The phrase “spare no feelings” describes someone who is acting without any concern for how his or her actions could hurt someone else’s feelings.  
  
-* Kendrick’s relapse seems to have put him into a mental state where he only cares about his own feelings and no longer cares about the feelings of others. Such a state of mind is the exact opposite of empathy and thus undermines the earlier line when he said “I want to be empathetic, my heart like Dee-1”  
+* Kendrick’s relapse seems to have put him into a mental state where he only cares about his own feelings and no longer cares about the feelings of others. Such a state of mind is the exact opposite of empathy and thus undermines the earlier line when he said, “I want to be empathetic, my heart like Dee-1.”  
  
-* Kendrick previously expressed his paranoid, troubled and unempathetic state of mind when he was overwhelmed by his feelings on the track “FEEL.” from *DAMN.*.  
+* Kendrick previously expressed his paranoid, troubled, and unempathetic state of mind when he was overwhelmed by his feelings on the track “FEEL.” from *DAMN.*  
 
   * *I feel like a chip on my shoulders  
   I feel like I'm losin' my focus  
@@ -3815,15 +3815,15 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm in my feelings when I slide, I mean" > In my feelings
 
-* To be “in one’s feelings” refers to a mental state in which someone is so emotionally dysregulated, overwhelmed or affected that they can no longer think rationally, strategically, objectively or empathetically.  
+* To be “in one’s feelings” refers to a mental state in which someone is so emotionally dysregulated, overwhelmed, or affected that they can no longer think rationally, strategically, objectively, or empathetically.  
  
-* It is notable that “In My Feelings” is also the title of Drake's record-breaking number one single from his 2018 album, *Scorpion*. On the track, Drake sings and raps about many of his typical themes including his feelings and sexual desire for numerous women.  
+* It is notable that “In My Feelings” is also the title of Drake's record-breaking number one single from his 2018 album, *Scorpion*. On the track, Drake sings and raps about many of his typical themes, including his feelings and sexual desire for numerous women.  
 
-  * Trap, TrapMoneyBenny  
-  **This shit got me in my feelings***  
+  * *Trap, TrapMoneyBenny  
+  **This shit got me in my feelings**  
   Gotta be real with it, yeah  
      
-  ***Kiki, do you love me?** Are you riding?  
+  **Kiki, do you love me?** Are you riding?  
   Say you'll never ever leave from beside me  
   **'Cause I want ya, and I need ya**  
   And I'm down for you always  
@@ -3832,7 +3832,7 @@ You'll get a better sense of the context and progression of thought if you go th
   **'Cause I want ya, and I need ya**  
   And I'm down for you always*  
 
-* "In My Feelings" also exemplifies how Drake has used social media, influencers and corporate marketing tactics to significantly increase his commercial success. On the same day that the album Scorpion was released, a social media comedian named Shiggy posted a video of him dancing to this chorus. This video soon went viral and was then turned into a the social media #InMyFeelingsChallenge and #KikiChallenge which later added riskier elements like dancing outside of moving cars. These viral trends helped to elevate the track to number one on the Billboard Hot 100 chart giving Drake the record for most number one hits of rapper in the history of the Billboard Hot 100 chart.  
+* "In My Feelings" also exemplifies how Drake has used social media, influencers, and corporate marketing tactics to significantly increase his commercial success. On the same day that *Scorpion* was released, a social media comedian named Shiggy posted a video of himself dancing to the chorus. This video soon went viral and was then turned into the social media #InMyFeelingsChallenge and #KikiChallenge, which later added riskier elements like dancing outside of moving cars. These viral trends helped to elevate the track to number one on the Billboard Hot 100 chart, giving Drake the record for most number-one hits by a rapper in the history of the Billboard Hot 100 chart.  
 
 {{< /details >}}
 
@@ -3840,7 +3840,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm in my feelings when I slide, I mean" > Slide
 
-* Within the context Kendrick’s lyrics “slide” is usually slang for the act of killing someone. 
+* Within the context of Kendrick’s lyrics, “slide” is usually slang for the act of killing someone.  
 
   * *I said, tell me who you loyal to  
   Is it anybody that you would lie for?  
@@ -3856,13 +3856,13 @@ You'll get a better sense of the context and progression of thought if you go th
   But **because the high blood pressure flooded the caterin'***  
   -"Worldwide Steppers"  
 
-* By saing "I'm in my feelings when I slide", Kendrick seems to be suggesting that whenever he tries to kill (aka slide) people, he is only doing so because he is emotionally dysregulated and unable to think rationally, strategically, objectively or empathetically.  
+* By saying "I'm in my feelings when I slide," Kendrick seems to be suggesting that whenever he tries to kill (aka slide) people, he is only doing so because he is emotionally dysregulated and unable to think rationally, strategically, objectively, or empathetically.  
  
-* This line thus gives a whole new perspective and context to "Watch the Party Die". The whole time that he has been advocating to kill the killers and commit acts of unspeakable violence may really just be evidence that Kendrick is emotionally dysregulated and unable to consider the ramifications or consequences of his words and actions. He seems to have been in a totally "unconscious"  state throughout this track.  
+* This line thus gives a whole new perspective and context to "Watch the Party Die." The whole time that he has been advocating to kill the killers and commit acts of unspeakable violence may really just be evidence that Kendrick is emotionally dysregulated and unable to consider the ramifications or consequences of his words and actions. He seems to have been in a totally "unconscious" state throughout this track.  
  
 * By the same logic, one could also conclude that throughout the battle tracks where Kendrick seemingly tried to kill Drake's career, Kendrick was "in his feelings" and unable to be empathetic towards Drake.  
  
-* A few months after the release of "Watch the Party Die" when Kendrick released the track "reincarnated" as the centerpiece of the album *GNX* , Kendrick seemed to confirm that his actions during the battle with Drake were largely a result of Kendrick being "in his feelings". On "reincarnated" Kendrick rapped from the perspective of God the Father who told Kendrick that he was a reincarnated version of Lucifer (aka the "devil" / "satan" / "false accusers" / "diabolical one") who "loved war" and and was kicked out of heaven because his feelings of anxiety led him to do evil. In response, Kendrick acknowledged that all he ever really wanted was to feel "love and approval".
+* A few months after the release of "Watch the Party Die," when Kendrick released the track "reincarnated" as the centerpiece of the album *GNX*, Kendrick seemed to confirm that his actions during the battle with Drake were largely a result of Kendrick being "in his feelings." On "reincarnated," Kendrick rapped from the perspective of God the Father, who told Kendrick that he was a reincarnated version of Lucifer (aka the "devil" / "satan" / "false accuser" / "diabolical one") who "loved war" and was kicked out of heaven because his feelings of anxiety led him to do evil. In response, Kendrick acknowledged that all he ever really wanted was to feel "love and approval."  
 
   * *"**Son you do well but your heart is closed**  
   I can tell residue that linger from your past creates itself"  
@@ -3906,7 +3906,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm in my feelings when I slide, I mean" > Toosie Slide
 
-* In addition to using the word "slide" to refer to killing, on the battle track, "6:16 in LA", Kendrick used the word "slide" in reference to "Toosie Slide", Drake's number one hit and accompanying viral dance trend from 2020.  
+* In addition to using the word "slide" to refer to killing, on the battle track "6:16 in LA," Kendrick used the word "slide" in reference to "Toosie Slide," Drake's number one hit and accompanying viral dance trend from 2020.  
 
   * *Fake bully, I hate bullies, you must be a terrible person  
   Everyone inside your team is whispering that you deserve it  
@@ -3915,13 +3915,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * It is notable that Drake used influencers and viral social media trends to significantly increase the commercial success of "Toosie Slide" in a more enhanced version of his strategy for "In My Feelings" four years earlier.  
  
-* “Toosie Slide” was released as a single in April, 2020, during the height of the COVID-19 lockdowns and named after a then 23 year old named Toosie.  
+* “Toosie Slide” was released as a single in April 2020, during the height of the COVID-19 lockdowns, and named after a then 23-year-old named Toosie.  
  
-* Toosie is a Black social media dancer and influencer from Atlanta who had a big break into the music industry when he linked up with fellow Atlanta-native and rapper Future eventually joining Future on the Summer Sixteen Tour with Future, a tour which also features Drake.  
+* Toosie is a Black social media dancer and influencer from Atlanta who had a big break into the music industry when he linked up with fellow Atlanta-native rapper Future, eventually joining Future on the Summer Sixteen Tour with Future, a tour that also featured Drake.  
  
-* When Drake needed another social media dance trend to popularize a new song, he direct messaged Toosie on social media and asked Toosie to make up a dance based on the hook of an unfinished song. That request turned into a modern “Cha Cha Slide”-style dance and viral social media video which featured the song’s hook.  
+* When Drake needed another social media dance trend to popularize a new song, he direct messaged Toosie on social media and asked Toosie to make up a dance based on the hook of an unfinished song. That request turned into a modern “Cha Cha Slide”-style dance and viral social media video featuring the song’s hook.  
    
-  * The fact that Drake used his connection with Atlanta native rapper, Future, and Future’s Atlanta native dancer, Toosie, also highlights the criticism that Kendrick made on “Not Like Us”. Throughout the third verse of "Not Like Us" Kendrick accused Drake of colonizing Black culture particularly by using Atlanta-based artists to make commercialized hits that could make Drake rich.  
+  * The fact that Drake used his connection with Atlanta-native rapper Future and Future’s Atlanta-native dancer Toosie also highlights the criticism that Kendrick made on “Not Like Us.” Throughout the third verse of "Not Like Us," Kendrick accused Drake of colonizing Black culture, particularly by using Atlanta-based artists to make commercialized hits that could make Drake rich.  
 
     * *Once upon a time, all of us was in chains  
     Homie still doubled down callin' us some slaves  
@@ -3940,7 +3940,7 @@ You'll get a better sense of the context and progression of thought if you go th
     You run to Atlanta when you need a few dollars  
     No, you not a colleague, you a fuckin' colonizer***  
 
-* After Toosie’s video had already gone viral Drake released the official music video for the full song which was now titled “Toosie Slide”. The video showed Drake wearing an all black shirt, pants, shoes, jacket, gloves and a black ski mask and doing Toosi’s dance while going through a tour of his mansion during the COVID lockdown.  
+* After Toosie’s video had already gone viral, Drake released the official music video for the full song, now titled “Toosie Slide.” The video showed Drake wearing an all-black shirt, pants, shoes, jacket, gloves, and a black ski mask, doing Toosie’s dance while giving a tour of his mansion during the COVID lockdown.  
  
 * On the surface, “Toosie Slide” seems like just a dance song with melodies.  
 
@@ -3955,7 +3955,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Basically, I'm sayin', **either way, we 'bout to slide**, ayy  
   **Can't let this one slide**, ayy (Who's bad?)*  
 
-* However, if one pays close attention to the lyrics one can hear that Drake is actually trying to “act tough” and portay himself as a "street nigga" as he uses the word “slide” to simultaneously refer to the dance and to the act of vengefully killing his enemies.  
+* However, if one pays close attention to the lyrics, one can hear that Drake is actually trying to “act tough” and portray himself as a "street nigga" as he uses the word “slide” to simultaneously refer to the dance and the act of vengefully killing his enemies.  
 
   * **Got so many opps**, I be mistakin' opps for other opps  
   Got so many people that I love out of troubled spots  
@@ -3970,23 +3970,23 @@ You'll get a better sense of the context and progression of thought if you go th
   Got a dance, but it's really on some street shit**  
   I'ma show you how to get it*  
 
-* It is notable that on the battle track "euphoria" Kendrick says that he would like Drake to keep making songs with catchy melodies that make everyone dance instead of trying to "act tough". Kendrick even implied that if Drake focused on making dance songs, Kendrick would have no reason to threaten Drake with diss songs.    
+* It is notable that on the battle track "euphoria," Kendrick says that he would like Drake to keep making songs with catchy melodies that make everyone dance instead of trying to "act tough." Kendrick even implied that if Drake focused on making dance songs, Kendrick would have no reason to threaten Drake with diss songs.  
 
   * **I like Drake with the melodies, I don't like Drake when he act tough**  
   ...  
   Still love when you see success, everything with me is blessed  
   **Keep makin' me dance, wavin' my hand, and it won't be no threat**  
 
-* At the end of the battle track "Not Like Us", Kendrick also seems to mock Drake’s attempt to make viral dance hits like “Toosie Slide” by chanting the following dance instructions:
+* At the end of the battle track "Not Like Us," Kendrick also seems to mock Drake’s attempt to make viral dance hits like “Toosie Slide” by chanting the following dance instructions:  
 
   * *Let me hear you say, "OV-ho" (OV-ho)  
   Say, "OV-ho" (OV-ho)  
   **Then step this way, step that way  
   Then step this way, step that way***  
 
-* Also on the video for “Not Like Us”, there is scene where Kendrick is standing on a dark street. Just behinda Kendrick, a menacing man approaches wearing an all black shirt, pants, shoes, jacket, gloves and a black ski mask just like Drake did in the “Toosie Slide” video. However, before the man has a chance to put a hand on Kendrick the man is suddenly thrown backwards almost as if there was some kind of supernatural force protecting Kendrick.  
+* Also, in the video for “Not Like Us,” there is a scene where Kendrick is standing on a dark street. Just behind Kendrick, a menacing man approaches wearing an all-black shirt, pants, shoes, jacket, gloves, and a black ski mask—just like Drake did in the “Toosie Slide” video. However, before the man has a chance to put a hand on Kendrick, he is suddenly thrown backward, almost as if there were some kind of supernatural force protecting Kendrick.  
  
-* All of these references to "Toosie Slide" along with the slang meaning of "slide" seem to suggest that Drake's actions over a number of years are the exact things that Kendrick has judged to be punishable by execution throughout "Watch the Party Die".  
+* All of these references to "Toosie Slide," along with the slang meaning of "slide," seem to suggest that Drake's actions over several years are the exact things that Kendrick has judged to be punishable by execution throughout "Watch the Party Die."  
 
 {{< /details >}}
 
@@ -3999,13 +3999,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "A nigga wonder what Lecrae would do" > Lecrae
 
-* Kendrick transitions away from discussion on his spiritual, physical and emotional trials withing the entertainment industry and once again wonders out loud what Lecrae would do as a Black man and a hip hop artist who has faced many similar trials and challenges.  
+* Kendrick transitions away from discussion on his spiritual, physical, and emotional trials within the entertainment industry and once again wonders out loud what Lecrae would do as a Black man and a hip-hop artist who has faced many similar trials and challenges.  
  
-* It is notable that instead of saying “***I*** wonder what Lecrae would do", he now says “***a nigga*** wonder what Lecrae would do", almost as if it is a question that any Black person should be wondering.  
+* It is notable that instead of saying “*I* wonder what Lecrae would do," he now says “*a nigga* wonder what Lecrae would do," almost as if it is a question that any Black person should be wondering.  
  
-* For context, Lecrae has had to deal with his fair share of public controversy and conflict with White Christians who began to take offense at Lecrae when after Lecdrated started speaking about racial justice issues that were affecting the Black community.  
+* For context, Lecrae has had to deal with his fair share of public controversy and conflict with White Christians who began to take offense at Lecrae when after Lecrae started speaking about racial justice issues that were affecting the Black community.  
  
-* Because White (Evangelical) Christians represent the largest consumer demographic for Christian hip hop, speaking out about racial justice put Lecrae at odds with the White -wned entertainment industry who wanted to co-opt his music and act like they owned him. Lecraes details these dynamics on several tracks on Lecrae’s 2017 album *All Things Work Together for Good*.  
+* Because White (Evangelical) Christians represent the largest consumer demographic for Christian hip-hop, speaking out about racial justice put Lecrae at odds with the White-owned entertainment industry, who wanted to co-opt his music and act like they owned him. Lecrae details these dynamics on several tracks from his 2017 album *All Things Work Together for Good*.  
 
   * *Learned a lot over these last few years  
   **Industry people ain't friends, just peers**  
@@ -4020,7 +4020,7 @@ You'll get a better sense of the context and progression of thought if you go th
   **Contradictory, nah, it's complimentary**  
   Understanding me ain't for the simple and elementary, oh*  
   -“Always Knew”  
-
+     
   ***People wonder, "Is he woke or just a new slave?"**  
   Old religion, he just covered it with new chains  
   **Choppin' out the church, he ain't real, he fake  
@@ -4067,7 +4067,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Been in the 'burbs for quite some time  
   But I still might hit the gas station for the Lemonheads and the pork rinds*  
   -“Facts”  
-
+     
   *Twenty-four years old, **my momma** brought me to the globe  
   Tried to tell me it was cold and taught me how to keep the coat  
   Now, now, now she **told me to go to school and get my education  
@@ -4087,12 +4087,12 @@ You'll get a better sense of the context and progression of thought if you go th
   First of all, let me be clear one time  
   Let me be real one time  
   **If you want a religious puppet you gon' have to hang this guy**  
-  ...
+  ...  
   **Crooked cops done pulled me over, treated me like I ain't made  
-  In the image of God** and that's so odd**  
-  -“Come and Get Me”
-
-  * *Last year I was feeling hopeless  
+  In the image of God** and that's so odd*  
+  -“Come and Get Me”  
+     
+  *Last year I was feeling hopeless  
   I just wanted it to end  
   People stealing money from me, man  
   I swear I thought that we was friends  
@@ -4133,7 +4133,7 @@ You'll get a better sense of the context and progression of thought if you go th
   For the death and blood that we spill***  
   -“Can’t Stop Me Now (Destination)”  
 
-* Given all of the hostility and backlash that Lecrae has faced from White audiences and the White-owned entertainment industry, it makes sense that “a nigga" would want to know what Lecrae would do if he was in the same position as Kendrick.  
+* Given all of the hostility and backlash that Lecrae has faced from White audiences and the White-owned entertainment industry, it makes sense that “a nigga" would want to know what Lecrae would do if he were in the same position as Kendrick.  
 
 {{< /details >}}
 
@@ -4145,9 +4145,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Terrace Martin said I'm mentally with layers, true" > Terrance Martin
 
-* Terrace Martin is a hip hop producer who has worked with Kendrick to produce numerous tracks including "Ab-Soul's Outro", "m.A.A.d city", "Real", "For Free? (Interlude)", "King Kunta", "These Walls", "For Sale?”, "Complexion (A Zulu Love)", "Complexion (A Zulu Love)", “untitled 05|09.21.2014”, and "Loyalty".  
+* Terrace Martin is a hip-hop producer who has worked with Kendrick to produce numerous tracks including "Ab-Soul's Outro," "m.A.A.d city," "Real," "For Free? (Interlude)," "King Kunta," "These Walls," "For Sale?," "Complexion (A Zulu Love)," “untitled 05|09.21.2014,” and "Loyalty."  
 
-* Given how much he has witnessed Kendrick creative process up close over multiple years and projects, Terrance Martin would know more than most people that Kendrick’s mind is always thinking on multiple layers while trying to give truth to the youth.  
+* Given how much he has witnessed Kendrick’s creative process up close over multiple years and projects, Terrace Martin would know more than most people that Kendrick’s mind is always thinking on multiple layers while trying to give truth to the youth.  
 
 {{< /details >}}
 
@@ -4159,9 +4159,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I flood the market with my best regards, I paid your dues" > Flood the market
 
-* “Flooding the market” refers to the act of releasing a large quantity of a particular product into the a particular market in a short period of time.  
+* “Flooding the market” refers to the act of releasing a large quantity of a particular product into a particular market in a short period of time.  
  
-* For Kendrick, flooding the market could refer to the release of the current track and a subsequent album which would flood the music market with sales and streams. The idea of "streaming" music also connects to the theme of water introduced by the word "flood".  
+* For Kendrick, flooding the market could refer to the release of the current track and a subsequent album, which would flood the music market with sales and streams. The idea of "streaming" music also connects to the theme of water introduced by the word "flood."  
 
 {{< /details >}}
 
@@ -4169,17 +4169,17 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I flood the market with my best regards, I paid your dues" > I paid your dues
 
-* The idea of a market where people pay for goods and services also connects to the idea of “paying dues”. "Paying dues" a phrase that refers working hard with a great deal of patience, endurance and commitment to the little things in order to earn respect and an opportunity to take on a much larger or more visible role.  
+* The idea of a market where people pay for goods and services also connects to the idea of “paying dues.” "Paying dues" is a phrase that refers to working hard with a great deal of patience, endurance, and commitment to the little things in order to earn respect and an opportunity to take on a much larger or more visible role.  
  
-* While rapping from Nispey’s perspective on “The Heart Part 5”, Kendrick uses the phrase “paid dues” to describe the hard work that Nipsey Hussle put into the rap game  by releasing 13 mixtapes in 12 years from 2005 to 2017 before releasing his only studio album in 2018.  
+* While rapping from Nipsey’s perspective on “The Heart Part 5,” Kendrick uses the phrase “paid dues” to describe the hard work that Nipsey Hussle put into the rap game by releasing 13 mixtapes in 12 years from 2005 to 2017 before releasing his only studio album in 2018.  
 
   * *Reflectin' on my life and what I done  
   **Paid dues**, made rules, change outta love  
   Them same views made schools change curriculums*  
 
-* By saying “I paid your dues”, Kendrick would seem to be talking to someone who did not work hard to earn respect. This could be a reference to Drake, whom Kendrick has repeatedly criticized for using ghostwriters to write his rap lyrics instead of putting in the work to write his own lyrics.  
+* By saying “I paid your dues,” Kendrick would seem to be talking to someone who did not work hard to earn respect. This could be a reference to Drake, whom Kendrick has repeatedly criticized for using ghostwriters to write his rap lyrics instead of putting in the work to write his own lyrics.  
 
-* Similarly , on “euphoria” and “meet the grahams”, Kendrick criticized Drake for receiving Ozempic weight loss injection, having abdominal surgery to improve his appearance without needing to pay his dues by working out.  
+* Similarly, on “euphoria” and “meet the grahams,” Kendrick criticized Drake for receiving Ozempic weight loss injections and having abdominal surgery to improve his appearance without needing to pay his dues by working out.  
 
   * *Yeah, my first one like my last one, it's a classic, you don't have one  
   Let your core audience **stomach that, then tell 'em where you get your abs from***  
@@ -4190,7 +4190,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Don't pay to play with them Brazilians, get a gym membership***  
   -“meet the grahams”
 
-* By saying “paid your dues”, Kendrick could also be saying that Drake never did the hard, therapeutic work of self-examination to understand how he needs to grow and mature. This lack of self-examination left Kendrick to do the examination work for Drake, which resulted in the astute criticisms that Kendrick made throughout all the battle tracks.  
+* By saying “paid your dues,” Kendrick could also be saying that Drake never did the hard, therapeutic work of self-examination to understand how he needs to grow and mature. This lack of self-examination left Kendrick to do the examination work for Drake, which resulted in the astute criticisms that Kendrick made throughout all the battle tracks.  
 
 {{< /details >}}
 
@@ -4202,11 +4202,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "And so it's up, if you ain't one of ours, it's bad news" > Ain't one of ours
 
-* By saying “it’s up”, Kendrick could be indicating that the “time is up”, which would connect back to the first line of each verse which said “It’s time to watch the party die”.  
+* By saying “it’s up,” Kendrick could be indicating that the “time is up,” which would connect back to the first line of each verse that said, “It’s time to watch the party die.”  
  
-* Kendrick asserts that the death of "the party" will be bad news to those who "ain't one of ours".  
+* Kendrick asserts that the death of "the party" will be bad news to those who "ain't one of ours."  
  
-* Using the phrase "ain't one of ours" to refer to people outside of the community or outside of the circle of trust mirrors the core mesage of the battle track "Not Like Us" where Kendrick mentions Drake and the members of Drake's crew by name prior to the chorus where Kenrick repeatedly said "They not like us."  
+* Using the phrase "ain't one of ours" to refer to people outside of the community or outside of the circle of trust mirrors the core message of the battle track "Not Like Us," where Kendrick mentions Drake and the members of Drake's crew by name prior to the chorus where Kendrick repeatedly said, "They not like us."  
 
 {{< /details >}}
 
@@ -4218,17 +4218,17 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "My nigga Jay Estrada said I gotta burn it down to build it up" > Jay Estrada fitness
 
-* Kendrick’s hometown friend, Jay (or Jason) Estrada is Compton-native athletic fitness trainer who worked as a strength trainer for the 2016 U.S.A. Olympic basketball teams. Additionally, Jay Estrada has also trained other NBA players including Compton-native DeMar Derozan, who made a guest appearance in the “Not Like Us” video after Kendrick name dropped him in the second verse of “Not Like Us”.  
+* Kendrick’s hometown friend, Jay (or Jason) Estrada, is a Compton-native athletic fitness trainer who worked as a strength trainer for the 2016 U.S.A. Olympic basketball teams. Additionally, Jay Estrada has also trained other NBA players, including Compton-native DeMar DeRozan, who made a guest appearance in the “Not Like Us” video after Kendrick name-dropped him in the second verse of “Not Like Us.”  
  
-* By working out with Jay Estrada, Kendrick is again showing himself to be someone who pays his own dues in contrast to Drake who allegedly paid for for the shortcut of Ozempic and abdominal surgery based on Kendrick's words to Drake's son on "meet the grahams".  
+* By working out with Jay Estrada, Kendrick is again showing himself to be someone who pays his own dues in contrast to Drake, who allegedly paid for the shortcut of Ozempic and abdominal surgery based on Kendrick's words to Drake's son on "meet the grahams."  
 
   * *Even if it don't benefit your goals, **do some push-ups, get some discipline  
   Don't cut them corners like your daddy did, fuck what Ozempic did**  
   Don't pay to play with them Brazilians, **get a gym membership***  
 
-*  It is notable, that Kendrick’s advice to Drake’s son to “do some push-ups” is a direct response to “Push Ups”, Drake’s initial diss track where Drake mocked Kendrick for a viral social media video which shoed Kendrick doing push-ups in a park.
+* It is notable that Kendrick’s advice to Drake’s son to “do some push-ups” is a direct response to “Push Ups,” Drake’s initial diss track where Drake mocked Kendrick for a viral social media video that showed Kendrick doing push-ups in a park.  
  
-* Drake used the image of Kendrick doing push-ups as a metaphor for Kendrick getting coerced into a disadvantageous financial situation by Top Dawg, the Black owner of Kendrick’s former label Top Dawg Entertainment (TDE). Drake asserted that every time Top Dawg told Kendrick to “drop” (i.e. drop to the ground as a metaphor for dropping an album), Kendrick had to give Top Dawg “fifty” (i.e. fifty push ups as a metaphor for 50% of the royalties from Kedrick’s music releases).  
+* Drake used the image of Kendrick doing push-ups as a metaphor for Kendrick getting coerced into a disadvantageous financial situation by Top Dawg, the Black owner of Kendrick’s former label, Top Dawg Entertainment (TDE). Drake asserted that every time Top Dawg told Kendrick to “drop” (i.e., drop to the ground as a metaphor for dropping an album), Kendrick had to give Top Dawg “fifty” (i.e., fifty push-ups as a metaphor for 50% of the royalties from Kendrick’s music releases).  
 
   * ***Extortion baby, whole career, you been shook up  
   'Cause Top told you, "Drop and give me fifty," like some push-ups**, huh  
@@ -4243,9 +4243,9 @@ You'll get a better sense of the context and progression of thought if you go th
   Ayy, **better drop and give me fifty, ayy  
   Drop and give me fifty, drop and give me fifty**, ayy*  
 
-* From Kendrick’s perspective, by choosing to mock Kendrick for doing push up exercise and working hard for Top Dawg, Drake is exposing himself as someone who would rather cheat and sell himself to the White owned entertainment industry instead of working hard to pay his dues.
+* From Kendrick’s perspective, by choosing to mock Kendrick for doing push-up exercises and working hard for Top Dawg, Drake is exposing himself as someone who would rather cheat and sell himself to the White-owned entertainment industry instead of working hard to pay his dues.  
  
-* In Katt William's viral Club Shay Shay interview that Kendrick alluded to on “meet the grahams”, Katt Wiliams made the exact same point against comics and entertainers who sold out to the White owned entertainment industry used ghostwriters and did not pay their dues or otherwise gave up on working hard. Katt Williams compared these people to athletes or body builders who use performance enhancing drugs to avoid putting in the hard work of exercising but still want people to impressed with their bodies.  
+* In Katt Williams' viral Club Shay Shay interview that Kendrick alluded to on “meet the grahams,” Katt Williams made the exact same point against comics and entertainers who sold out to the White-owned entertainment industry, used ghostwriters, and did not pay their dues or otherwise gave up on working hard. Katt Williams compared these people to athletes or bodybuilders who use performance-enhancing drugs to avoid putting in the hard work of exercising but still want people to be impressed with their bodies.  
 
   * *I'm a standup comedian. This is my nineteenth one-hundred city tour. **I'm not going to have a conversation with these lazy bums that'll take a shortcut at any point. Yes, it's easier for you to juice than to get in the gym, but you don't get to bring that body in here talking crazy talk about how good you look.***  
 
@@ -4257,13 +4257,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * “You gotta burn it down to build it up” would seem to be a statement that Jay Estrada would make in the context of strength and fitness training.  
  
-* In order to build stronger muscles, an athlete first has to break down the existing muscle by lifting, pressing or pulling weights or some other kind of resistance. These kinds of exercises create tiny microtears in muscle fibers that are accompanied by a burning sensation in the muscles. This burning sensation is what is being referred to by the exercise term “feel the burn”.  
+* In order to build stronger muscles, an athlete first has to break down the existing muscle by lifting, pressing, or pulling weights or some other kind of resistance. These kinds of exercises create tiny microtears in muscle fibers that are accompanied by a burning sensation in the muscles. This burning sensation is what is being referred to by the exercise term “feel the burn.”  
  
-* The idea of “burn it down to build it up” could be applied to much of the violent language that Kendrick has used when acting like a totalitarian dictator who is trying to purge society and “burn the whole village” so “we can start over” with the hope of building a “new earth”.  
+* The idea of “burn it down to build it up” could be applied to much of the violent language that Kendrick has used when acting like a totalitarian dictator who is trying to purge society and “burn the whole village” so “we can start over” with the hope of building a “new earth.”  
  
-* At the same time, if we see Kendrick’s fierce criticism and exposure of Drake as a way to “burn it down to build it up”, the natural conclusion is that Kendrick actually wants Drake to be built up into a better person.  
+* At the same time, if we see Kendrick’s fierce criticism and exposure of Drake as a way to “burn it down to build it up,” the natural conclusion is that Kendrick actually wants Drake to be built up into a better person.  
  
-* This act of “tough love” is consistent with Kendrick’s words on “meet the grahams” where he explained his motives for engaging in a rap battle with Drake.  
+* This act of “tough love” is consistent with Kendrick’s words on “meet the grahams,” where he explained his motives for engaging in a rap battle with Drake.  
 
   * ***Dear Aubrey  
   I know you probably thinkin' I wanted to crash your party**  
@@ -4305,11 +4305,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Lockin' in to what I trust, lookin' outside" > Trust
 
-* The phrase “locked in” is most often used to describe someone who is focused on their goal, which connects to the themes of paying dues and working out in the previous lines. Here Kendrick says he is focused on (i.e. locked in to) “what he trusts”.  
+* The phrase “locked in” is most often used to describe someone who is focused on their goal, which connects to the themes of paying dues and working out in the previous lines. Here, Kendrick says he is focused on (i.e., locked into) “what he trusts.”  
  
-* It is notable that Kendrick’s rap battle with Drake started when Kendrick was featured on the song “Like That” on Future and Metro Boomin’s album titled, *We Don’t Trust You*. That album title seems to have been a statement about Drake, who the two Atlanta-native artists had previously worked with but no longer trusted.  
+* It is notable that Kendrick’s rap battle with Drake started when Kendrick was featured on the song “Like That” on Future and Metro Boomin’s album titled *We Don’t Trust You*. That album title seems to have been a statement about Drake, who the two Atlanta-native artists had previously worked with but no longer trusted.  
  
-* Throughout the battle, Kendrick repeatedly accused Drake of being an actor, manipulator and liar who cannot be trusted.
+* Throughout the battle, Kendrick repeatedly accused Drake of being an actor, manipulator, and liar who cannot be trusted.  
 
   * ***The famous actor** we once knew is lookin' paranoid and now spiralin'  
   You're movin' just like a degenerate, every antic is feelin' distasteful  
@@ -4367,16 +4367,16 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Lockin' in to what I trust, lookin' outside" > Outside
 
-* Since Kendrick does trust Drake he looks “outside” to find what he does trust. Here “outside” seems to refer to the world around Kendrick, or maybe more specifically the city around him—the city of Compton.  
+* Since Kendrick does not trust Drake, he looks “outside” to find what he does trust. Here, “outside” seems to refer to the world around Kendrick, or maybe more specifically the city around him—the city of Compton.  
  
-* The association with the city of Compton being “outside” seems to be highlighted on “Not Like Us” where in quick succession Kendrick mentions Drake—the liar and false god, who need to be locked inside (a jail cell)—in contrast to the city that is free to be outside.  
+* The association with the city of Compton being “outside” seems to be highlighted on “Not Like Us,” where in quick succession Kendrick mentions Drake—the liar and false god, who needs to be locked inside (a jail cell)—in contrast to the city that is free to be outside.  
 
   * ***Devil is a lie, he a 69 God**, ayy  
   **Freaky-ass niggas need to stay they ass inside**, ayy  
   Roll they ass up like a fresh pack of 'za, ayy  
   **City is back up, it's a must, we outside**, ayy*  
 
-* The music video of "Not Like Us" further emphisizes the contrast between the city of Compton being free outside with numerous shots of large crowds filling the plaza of the Compton City Hall and Civic Center while Drake's OVO owl is locked up inside a birdcage. Notably, the owl in the birdcage is shown in the second to last shot right before the video cuts back a final shot of the large crowd dancing at the Compton City Hall and Civic Center under a sculture dedicated to Martin Luther King, Jr..  
+* The music video of "Not Like Us" further emphasizes the contrast between the city of Compton being free outside, with numerous shots of large crowds filling the plaza of the Compton City Hall and Civic Center, while Drake's OVO owl is locked up inside a birdcage. Notably, the owl in the birdcage is shown in the second-to-last shot, right before the video cuts back to a final shot of the large crowd dancing at the Compton City Hall and Civic Center under a sculpture dedicated to Martin Luther King, Jr.  
 
 
 {{< /details >}}
@@ -4389,13 +4389,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The kids live tomorrow 'cause today, the party just died" > Kids
 
-* Kendrick ends that song by declaring that at some point between the beginning and end of this song, Kendrick has watched the party die, likely as a result of Kendrick's execution orders.  
+* Kendrick ends the song by declaring that at some point between the beginning and end of this song, he has watched the party die, likely as a result of Kendrick's execution orders.  
  
-* In contrast to the party—which will not go on tomorrow—,Kendrick highlights the kids who are now able to live tomorrow.  
+* In contrast to the party—which will not go on tomorrow—Kendrick highlights the kids who are now able to live tomorrow.  
  
-* The mention of kids is likely a reference to Kendrick’s allegation that Drake and his crew were trafficking underaged girls to for Drake and his crew to have sex with at parities. At the same time, uncompromising artists such as Katt Williams has sought to expose that powerful men engaging in predatory sexual behavior is a widespread, endemic problem throughout the entertainment industry.  
+* The mention of kids is likely a reference to Kendrick’s allegations that Drake and his crew were trafficking underage girls for sex parties. At the same time, uncompromising artists such as Katt Williams have sought to expose that powerful men engaging in predatory sexual behavior is a widespread, endemic problem throughout the entertainment industry.  
  
-* The future for kids has been a central focus for Kendrick since he became a father as can be seen throughout *Mr. Morale and the Big Stepper*’s theme of breaking generational curses - particularly curses that related to sexual abuse.  
+* The future for kids has been a central focus for Kendrick since he became a father, as can be seen throughout *Mr. Morale and the Big Steppers*’s theme of breaking generational curses—particularly curses related to sexual abuse.  
 
   * ***Playin' "Baby Shark" with my daughter  
   Watchin' for sharks outside at the same time  
@@ -4445,7 +4445,7 @@ You'll get a better sense of the context and progression of thought if you go th
   So I set free our children, may good karma keep them with God  
   So I set free the hearts filled with hatred, keep our bodies sacred  
   As I set free all you abusers, this is transformation  
-  ...
+  ...  
   [Whitney Alford]  
   **You did it, I'm proud of you  
   You broke a generational curse  
@@ -4467,7 +4467,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I was wrestlin' like, should I write a verse?" > Should I write a verse?
 
-* Lecrae's track “Die for the Party” features the exact same beat as Kendrick Lamar's “Watch the Party Die”. As Lecrae mentions here, “Die for the Party” is meant to serve as an additional verse for “Watch the Party Die”.  
+* Throughout “Die for the Party”, Lecrae raps over a modified version of the beat used Kendrick Lamar's “Watch the Party Die”. As Lecrae mentions here, “Die for the Party” is meant to serve as an additional verse for “Watch the Party Die”.  
  
 * Lecrae decided to release this verse on his own rather than Kendrick inviting him to do so as part of a remix or extended version. That being said, on two separate lines within the third verse of “Watch the Party Die”, Kendrick did say that he wondered “what Lecrae would do”.
 
