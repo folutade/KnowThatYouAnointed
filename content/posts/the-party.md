@@ -4467,16 +4467,16 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I was wrestlin' like, should I write a verse?" > Should I write a verse?
 
-* Throughout “Die for the Party”, Lecrae raps over a modified version of the beat used Kendrick Lamar's “Watch the Party Die”. As Lecrae mentions here, “Die for the Party” is meant to serve as an additional verse for “Watch the Party Die”.  
+* Throughout “Die for the Party,” Lecrae raps over a modified version of the beat used in Kendrick Lamar's “Watch the Party Die.” As Lecrae mentions here, “Die for the Party” is meant to serve as an additional verse for “Watch the Party Die.”  
  
-* Lecrae decided to release this verse on his own rather than Kendrick inviting him to do so as part of a remix or extended version. That being said, on two separate lines within the third verse of “Watch the Party Die”, Kendrick did say that he wondered “what Lecrae would do”.
+* Lecrae decided to release this verse on his own rather than Kendrick inviting him to do so as part of a remix or extended version. That being said, on two separate lines within the third verse of “Watch the Party Die,” Kendrick did say that he wondered “what Lecrae would do.”  
 
   * *Sometimes **I wonder what Lecrae would do**  
   Fuck these niggas up or show 'em just what prayer do?  
   ...  
   **A nigga wonder what Lecrae would do***  
 
-* Lecrae thus seems to have reasonably concluded that those two lines from “Watch the Party Die” were an open invitation for him to write and release his verse on "Die for the Party".  
+* Lecrae thus seems to have reasonably concluded that those two lines from “Watch the Party Die” were an open invitation for him to write and release his verse on "Die for the Party."  
 
 {{< /details >}}
 
@@ -4488,7 +4488,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The culture got enough clout-chasin' vultures out here tryna prove they worth" > Culture vultures
 
-* Lecrae here makes a reference to the Jay-Z’s classic and often quoted lines from the 2001 track “Izzo (H.O.V.A.)” where Kendricks challenges the status quo of the music industry.    
+* Lecrae here makes a reference to Jay-Z’s classic and often-quoted lines from the 2001 track “Izzo (H.O.V.A.)” where Kendrick challenges the status quo of the music industry.  
 
   * ***I do this for my culture, to let 'em know  
   What a nigga look like when a nigga in a roadster  
@@ -4499,7 +4499,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Pay us like you owe us for &&all the years that you hoed us**  
   We can talk, but money talks, so talk more bucks*  
 
-* Recall that on the third verse of “Watch the Party Die” Kendrick also makes a subtle reference to these exact lines from "Izzo (H.O.V.A.)".  
+* Recall that on the third verse of “Watch the Party Die,” Kendrick also makes a subtle reference to these exact lines from "Izzo (H.O.V.A.)."  
 
   * *Say hello to your future fate, **the culture bred with carnivores  
   You let 'em snack, they eat your face**, the signatures is bein' forged*  
@@ -4510,13 +4510,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The culture got enough clout-chasin' vultures out here tryna prove they worth" > Clout chasing
 
-* In slang, the phrase “clout-chasing” is used to describe a person who seeks attention, fame, or influence, often by engaging in behavior that attracts public interest or aligns that themself with popular trends or influential figures.  
+* In slang, the phrase “clout-chasing” is used to describe a person who seeks attention, fame, or influence, often by engaging in behavior that attracts public interest or aligns themself with popular trends or influential figures.  
  
-* In many cases, rappers are accused of “clout-chasing” when they directly name more famous hip hop artists in order to associate themselves with more famous artist without actually being invited to collaborate with the such famous artist.  
+* In many cases, rappers are accused of “clout-chasing” when they directly name more famous hip-hop artists in order to associate themselves with a more famous artist without actually being invited to collaborate with such an artist.  
  
-* "Clout chasers" can be seen as a form of “culture vulture” since "clout chasers" are metaphorically scavenging off of someone else who has been “killing it” rather than using their own skills, discipline or hard work to eat what they kill. Thus, "clout chasing" is also a way for someone to avoid "paying dues" or working hard, as Kendrick mentioned in the first verse.  
+* "Clout chasers" can be seen as a form of “culture vulture” since "clout chasers" are metaphorically scavenging off of someone else who has been “killing it” rather than using their own skills, discipline, or hard work to eat what they kill. Thus, "clout chasing" is also a way for someone to avoid "paying dues" or working hard, as Kendrick mentioned in the first verse.  
  
-* Kendrick previously described "clout chasing" as a "disease" on "Rich Spirit" from *Mr. Morale & the Big Stepper*.  
+* Kendrick previously described "clout chasing" as a "disease" on "Rich Spirit" from *Mr. Morale & the Big Steppers.*  
 
   * *Frat brother, real nigga, that brother  
   We just upped the score, give me dap, brother  
@@ -4527,7 +4527,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Ayy, **clout chasing hell of a disease**, brother  
   I'm fasting four days out the week, brother*  
 
-* It is also notable that on the battle track "THE HEART PART 6", Drake accused Kendrick of "clout chasing" as Drake denied Kendrick's allegations that Drake was involved in pedophilia and sex trafficing.  
+* It is also notable that on the battle track "THE HEART PART 6," Drake accused Kendrick of "clout chasing" as Drake denied Kendrick's allegations that Drake was involved in pedophilia and sex trafficking.  
 
   * *Album droppin' soon, no wonder **you turn to a clout chaser 'stead of doin' hard labor***  
 
@@ -4541,7 +4541,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The culture got enough clout-chasin' vultures out here tryna prove they worth" > Prove their worth
 
-* Lecrae suggests that “culture vulture” rappers turn to "clout-chasing" in order to “prove their worth”. This psychological need to prove one’s own worth through success as a rapper is a vice with which Lecrae has personally struggled even as he is learning to find his identity in who God made him to be.  
+* Lecrae suggests that “culture vulture” rappers turn to "clout-chasing" in order to “prove their worth.” This psychological need to prove one’s own worth through success as a rapper is a vice with which Lecrae has personally struggled, even as he is learning to find his identity in who God made him to be.  
  
 * During Lecrae’s own [The Deep End](https://youtu.be/y2ZC1FEk87Q?si=-DgVA8e6vesTqSTw&t=1195) podcast episode where he discussed the battle between Kendrick and Drake, Lecrae concluded that the main problem with the battle was that both rappers were trying to tear down their rival in order to obtain a false sense of value and worth.  
 
@@ -4573,9 +4573,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "They need attention. They can't imagine me not tryna make myself look bigger" > Lecrae's intention
 
-* Lecrae continues to explain how "clout-cashing culture vultures" need attention from other people in order to prove their own worth and have a sense of identity.  
+* Lecrae continues to explain how "clout-chasing culture vultures" need attention from other people in order to prove their own worth and have a sense of identity.  
  
-* Lecrae concludes that people who are themselves so consumed with the need to prove their worth and get attention would naturally assume that other people around them are also trying to do the same thing. Such people might jealously assume that Lecrase is “clout-chasing” and trying to make himself look more important by using Kendrick's mention of Lecrae in “Watch the Party Die” as an excuse to verse that associates himself with Kendrick.  
+* Lecrae concludes that people who are themselves so consumed with the need to prove their worth and get attention would naturally assume that other people around them are also trying to do the same thing. Such people might jealously assume that Lecrae is “clout-chasing” and trying to make himself look more important by using Kendrick's mention of him in “Watch the Party Die” as an excuse to release a verse that associates himself with Kendrick.  
 
 {{< /details >}}
 
@@ -4587,11 +4587,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I can't imagine his position" > Can't imagine
 
-* Lecras seems to be empathizing with Kendrick as Lecrae recognizes how difficult it must be for Kendrick to be at the top of the rap game.  
+* Lecrae seems to be empathizing with Kendrick as he recognizes how difficult it must be for Kendrick to be at the top of the rap game.  
  
-* Recall that on the third verse of “Watch the Party Die”, Kendrick said “The more visible you get, the more your spiritual is tried”.  
+* Recall that on the third verse of “Watch the Party Die,” Kendrick said, “The more visible you get, the more your spiritual is tried.”  
  
-* While Kendrick did wonder what Lecrae would do if Lecrae was in Kendrick's position, Lecrae recognizes that his own trials, while certainly challenging, really don’t compare to what Kendrick must face as arguably the most visible hip hop artist in the world. Hence, Lecrae seems to humbly recognize that he really cannot know for sure what he would actually do since he can't even imagine being in such a position.  
+* While Kendrick did wonder what Lecrae would do if Lecrae was in Kendrick's position, Lecrae recognizes that his own trials, while certainly challenging, really don’t compare to what Kendrick must face as arguably the most visible hip-hop artist in the world. Hence, Lecrae seems to humbly recognize that he really cannot know for sure what he would actually do since he can't even imagine being in such a position.  
 
 {{< /details >}}
 
@@ -4603,13 +4603,13 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Before I got on my mission, I was a party victim" > Mission
 
-* The word “mission” in the most general sense can be defined as ”a set of tasks that fulfills a purpose”. The word also tends to imply that the person will need to leave their home and go to a different land, nation or people group in order to fulfill their purpose (e.g. a diplomatic mission or spy mission).  
+* The word “mission” in the most general sense can be defined as “a set of tasks that fulfills a purpose.” The word also tends to imply that the person will need to leave their home and go to a different land, nation, or people group in order to fulfill their purpose (e.g., a diplomatic mission or spy mission).  
  
-* Within this history of Western culture, the word “mission” has most often been used to refer to efforts made by a church or an individual Christian who goes to a foreign country in order to introduce Jesus’s life and teachings to people from that country using language and references that the people can understand within their own cultural context.  
+* Within the history of Western culture, the word “mission” has most often been used to refer to efforts made by a church or an individual Christian who goes to a foreign country in order to introduce Jesus’s life and teachings to people from that country using language and references that the people can understand within their own cultural context.  
  
-* As rappers who became Christians later in their teenage years of early 20s, Lecrae and Kendrick both came to the conclusion that God had sent them on a mission to introduce Jesus’s life and teachings to members of the Black community in America using language and references that Black Americans could understand within their own cultural context.  
+* As rappers who became Christians later in their teenage years or early 20s, Lecrae and Kendrick both came to the conclusion that God had sent them on a mission to introduce Jesus’s life and teachings to members of the Black community in America using language and references that Black Americans could understand within their own cultural context.  
  
-* As a Christian hip hop artist, Lecrase has been very clear and overt about his mission throughout all of his albums. In contrast, Kendrick has not usually been so overt. Most of his albums do have an overarching storyline that communicates central Christian understanding about Jesus and living a Christian life. However, listeners usually have to pay more attention to notice these overarching messages.  
+* As a Christian hip-hop artist, Lecrae has been very clear and overt about his mission throughout all of his albums. In contrast, Kendrick has not usually been so overt. Most of his albums do have an overarching storyline that communicates central Christian understandings about Jesus and living a Christian life. However, listeners usually have to pay more attention to notice these overarching messages.  
  
 * However, on the 2009 track "Faith" from Kendrick's first project released under the stage name Kendrick Lamar, Kendrick openly discussed the moment when he talked to God and accepted his mission.  
 
@@ -4630,11 +4630,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Before I got on my mission, I was a party victim" > Party victim
 
-* Lecrae builds off the “party” metaphor by saying that he was a "party victim". At the most basic level, Lecrae seems to be reflecting on how his life prior to becoming a Christian was undisciplined in his pursuit of temporary pleasure in a way that led him to seek enjoyment in ways that ultimately led to pain and hurt.  
+* Lecrae builds off the “party” metaphor by saying that he was a "party victim." At the most basic level, Lecrae seems to be reflecting on how his life prior to becoming a Christian was undisciplined in his pursuit of temporary pleasure in a way that led him to seek enjoyment in ways that ultimately led to pain and hurt.  
  
-* At the same time, we should recall that in the analysis of the first verse of “Watch the Party Die", “the party” could also be interpreted as a reference to acts of sexual abuse particularly abuse of underage girls and boys.  
+* At the same time, we should recall that in the analysis of the first verse of “Watch the Party Die,” “the party” could also be interpreted as a reference to acts of sexual abuse, particularly abuse of underage girls and boys.  
  
-* It is thus notable that on the track “Good, Bad, Ugly”, Lecrae discussed the trauma he experienced after being a victim of sexual abuse by a baby sitter who performed a sex act on him when he seven years old.  
+* It is thus notable that on the track “Good, Bad, Ugly,” Lecrae discussed the trauma he experienced after being a victim of sexual abuse by a babysitter who performed a sex act on him when he was seven years old.  
 
   * ***Folks workin' late I had a baby sitter**  
   I ain't 'bout to sit here and name her  
@@ -4647,7 +4647,7 @@ You'll get a better sense of the context and progression of thought if you go th
   **Had my innocence just stripped from me  
   And I still don't know how to feel***  
 
-* Lecrae's traumatic experience seems to align with Kendrick's own assessment that "ever other rapper" he knows has been sexually abused and continues to go unaddresed in many Black families which leads many Black people to live as "victims" as Kendrick discussed on the track "Mother I Sober" from *Mr. Morale & the Big Steppers".
+* Lecrae's traumatic experience seems to align with Kendrick's own assessment that "every other rapper" he knows has been sexually abused and that this trauma continues to go unaddressed in many Black families, leading many Black people to live as "victims," as Kendrick discussed on the track "Mother I Sober" from *Mr. Morale & the Big Steppers*.  
 
   * *Family ties, **they accused my cousin, "Did he touch you, Kendrick?"  
   Never lied, but no one believed me when I said "He didn't"**  
@@ -4685,15 +4685,15 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I brought the party favors" > Party favors
 
-* After telling us that he was a “party victim”, Lecrae then says that he “brought the party favors”.  
+* After telling us that he was a “party victim,” Lecrae then says that he “brought the party favors.”  
  
-* "Party favors" are gifts that a party host gives to the party attendees to thank them for coming. This transition seems to suggest that Lecrae went from someone who was forced to be an unwilling participant of "the party" to someone who not only attended and willingly participated but seemingly organized and hosted" the party".  
+* "Party favors" are gifts that a party host gives to the party attendees to thank them for coming. This transition seems to suggest that Lecrae went from someone who was forced to be an unwilling participant of "the party" to someone who not only attended and willingly participated but seemingly organized and hosted "the party."  
  
 * At the most basic level, Lecrae seems to be saying that as someone who became successful in the entertainment industry, he was at the center of groups of people who were also undisciplined in their pursuit of temporary pleasure.  
 
-* At the same time, if we take into account Lecrae’s history of being sexually abused, one could also interpret the line to be a reflection of how Lecrae’s trauma from sexual abuse led him to later to engage in sexual behavior that—while maybe not criminal—was not healthy or loving for himself or for those with whome he was sexually involved.  
+* At the same time, if we take into account Lecrae’s history of being sexually abused, one could also interpret the line as a reflection of how Lecrae’s trauma from sexual abuse led him later to engage in sexual behavior that—while maybe not criminal—was not healthy or loving for himself or for those with whom he was sexually involved.  
 
-* Fittingly, on the same verse of “Good, Bad, Ugly” where Lecrae revealed that he had been sexually abused, Lecrae talked about the connection between his early sexual trauma of and the sexual misbehavior that he engaged in later in life. This sexual misbehavior continued until Lecrae forgave his abuser, received forgiveness and got on his mission.  
+* Fittingly, on the same verse of “Good, Bad, Ugly” where Lecrae revealed that he had been sexually abused, he talked about the connection between his early sexual trauma and the sexual misbehavior that he engaged in later in life. This sexual misbehavior continued until Lecrae forgave his abuser, received forgiveness, and got on his mission.  
 
   * *And **I wonder how to address it**  
   Can't tell my family too messy  
@@ -4715,7 +4715,7 @@ You'll get a better sense of the context and progression of thought if you go th
   The future look bright  
   I see the light on***  
 
-* It is notable that on “Mother I Sober”, Kendrick also wrestled with his own sexual misbehavior and addiction which he saw as one of the effects of the unresolved generation trauma from sexual abuse.  
+* It is notable that on “Mother I Sober,” Kendrick also wrestled with his own sexual misbehavior and addiction, which he saw as one of the effects of the unresolved generational trauma from sexual abuse.  
 
   * ***Intoxicated, there's a lustful nature that I failed to mention  
   Insecurities that I project, sleepin' with other women**  
@@ -4742,11 +4742,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I used my trauma, my single mama, to justify commas" > Trauma
 
-* After acknowledging that he was a “party victim” who later “brought the party favor”, Lecrae goes on to explain that he had money to buy the party favors after he used his own trauma—including the trauma of growing up without a father and being a “party victim”—as a justification for having an unhealthy focus on wealth.  
+* After acknowledging that he was a “party victim” who later “brought the party favors,” Lecrae goes on to explain that he had money to buy the party favors after he used his own trauma—including the trauma of growing up without a father and being a “party victim”—as a justification for having an unhealthy focus on wealth.  
  
-* Here “commas” refers to a large amount of money that needs a comma to separate the hundreds digit from thousands digit and the ten thousands digit from the millions digit.  
+* Here, “commas” refers to a large amount of money that needs a comma to separate the hundreds digit from the thousands digit and the ten-thousands digit from the millions digit.  
  
-* Througout *Mr. Morale & the Big Steppers* Kendrick also talked about the unhealthy pattern of hip hop artists trying to profit by making music about their trauma.  
+* Throughout *Mr. Morale & the Big Steppers*, Kendrick also talked about the unhealthy pattern of hip-hop artists trying to profit by making music about their trauma.  
 
   * *So what? Paralyzed, **the county building controlled us**  
   **I bought a Rolex watch**, I only wore it once  
@@ -4792,12 +4792,12 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "to pay the devil's wages, woo, huh" > Devil's wages
 
-* Lecrae describes the large amounts of money as the “devil’s wages”. The use of the word "devil" connects to the third verse of “Watch the Party Die” where Kendrick rapped.  
+* Lecrae describes the large amounts of money as the “devil’s wages.” The use of the word "devil" connects to the third verse of “Watch the Party Die,” where Kendrick rapped:  
 
   * *It's time to **get these devils out the way**, heavy metals on my sword  
   We settle hard disputes today, the ghetto Hollywood divorce*  
 
-* It’s also notable that in St. Paul’s letter to the Church in Rome, St. Paul says "The wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord." The idea that the wages of the ["devil" / "satan" / "false accuser" / "diabolical one"] are closely associated with death also connects to the titles of "Watch the Party Die" and "Die for the Party".  
+* It’s also notable that in St. Paul’s letter to the Church in Rome, he says, "The wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord." The idea that the wages of the ["devil" / "satan" / "false accuser" / "diabolical one"] are closely associated with death also connects to the titles of "Watch the Party Die" and "Die for the Party."  
 
 {{< /details >}}
 
@@ -4815,9 +4815,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * The phrase “went over their head” refers to a situation in which a speaker says something that the listener does not understand, usually because what the speaker said was too complex or because the listener is not refined or thoughtful enough to understand.  
  
-* On the surface it seems that Lecrae is saying that many of his listeners will probably not understand all the terminology or references in the previous lines.  
+* On the surface, it seems that Lecrae is saying that many of his listeners will probably not understand all the terminology or references in the previous lines.  
  
-* At the same time, Lecrae is also recycling lines from “Always Knew”, the opening track to Lecrae’s 2017 album, *All Things Work Together*.
+* At the same time, Lecrae is also recycling lines from “Always Knew,” the opening track to Lecrae’s 2017 album, *All Things Work Together*.  
 
   * *I know **this might go over some heads**  
   But I come from being *government fed**  
@@ -4825,7 +4825,7 @@ You'll get a better sense of the context and progression of thought if you go th
   But now I **give the government bread**  
   'Cause you playin' back **the words that I said***  
 
-* Here on “Die for the Party”, Lecrae essentially flips those lines to from “Always Knew” by using many of the same words but slightly tweaking their presentation or meaning.  
+* Here on “Die for the Party,” Lecrae essentially flips those lines from “Always Knew” by using many of the same words but slightly tweaking their presentation or meaning.  
 
 {{< /details >}}
 
@@ -4833,9 +4833,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Basically what I said is I was government fed" > Government fed
 
-* On both “Die for the Party” and “Always Knew”, being “government fed”, refers to a state of poverty in which the parents of a family do not make enough money to feed the family and thus rely on the government to provide a significant amount of the family’s food.  
-   
-* In the United States, food was may be provided in the form of monetary assistance such as Supplemental Nutrition Assistance Program (SNAP) benefits (aka food stamps) or direct distribution of food items though the Temporary Emergency Food Assistance Program (TEFAP), which provides things like canned meat, canned vegetables, rice pasta, and cheese that has commonly been referred to as “government cheese”.  
+* On both “Die for the Party” and “Always Knew,” being “government fed” refers to a state of poverty in which the parents of a family do not make enough money to feed the family and thus rely on the government to provide a significant amount of the family’s food.  
+ 
+* In the United States, food may be provided in the form of monetary assistance such as Supplemental Nutrition Assistance Program (SNAP) benefits (aka food stamps) or direct distribution of food items through the Temporary Emergency Food Assistance Program (TEFAP), which provides things like canned meat, canned vegetables, rice, pasta, and cheese that has commonly been referred to as “government cheese.”  
 
 {{< /details >}}
 
@@ -4843,19 +4843,19 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Bred for doin' time in the feds, but Jesus bled" > Bred for doin' time in the feds
 
-* In the phrase “bred for doing time in the feds”, bred is the past tense of “breed” referring to the way that genetics and environment or experience influences reproduction and the traits of subsequent generations.  
+* In the phrase “bred for doing time in the feds,” bred is the past tense of “breed,” referring to the way that genetics and environment or experience influence reproduction and the traits of subsequent generations.  
  
-* “Bred” is also used as a double entendre to refer to the homophone food item “bread” (i.e. a loaf of bread) which is something that Lecrae’s family or other families in poverty may purchased with SNAP benefits when they were "government fed".  
+* “Bred” is also used as a double entendre to refer to the homophone food item “bread” (i.e., a loaf of bread), which is something that Lecrae’s family or other families in poverty may have purchased with SNAP benefits when they were "government fed."  
  
-* Moreover, we find a triple entendre when we recognize that the food item “bread” is also used as slang for money, as it used in “Always Knew” where Lecrae talks about giving “the government bread” in reference to paying taxes on the money that he has earned as a grammy0winning Christian hip hop artist.  
+* Moreover, we find a triple entendre when we recognize that the food item “bread” is also used as slang for money, as it is used in “Always Knew,” where Lecrae talks about giving “the government bread” in reference to paying taxes on the money that he has earned as a Grammy-winning Christian hip-hop artist.  
  
-* However, prior to being a grammy winning Christian hip hop artist, Lecrae was “bred” (i.e. born and raised) in an environment where men and women would often try to get “bread” (both money and food) by committing federal crimes such as selling drugs, gang-banging, robberies, or scamming.  
+* However, prior to being a Grammy-winning Christian hip-hop artist, Lecrae was “bred” (i.e., born and raised) in an environment where men and women would often try to get “bread” (both money and food) by committing federal crimes such as selling drugs, gang-banging, robberies, or scamming.  
  
-* In hip hop terminology, the word “federal” is often shortened to “fed” or “feds” which makes it a homophone for the word “fed” (i.e. the past tense of “feed”). On “Always Knew” Lecrae used the terms “government fed” and “running from the feds” as double entendre to refer peoplw who rely on food benefits from the federal government while simultaneously trying to evade arrest from federal agents after committing a federal crime.  
+* In hip-hop terminology, the word “federal” is often shortened to “fed” or “feds,” which makes it a homophone for the word “fed” (i.e., the past tense of “feed”). On “Always Knew,” Lecrae used the terms “government fed” and “running from the feds” as a double entendre to refer to people who rely on food benefits from the federal government while simultaneously trying to evade arrest from federal agents after committing a federal crime.  
  
-* Here in “Die for the Party”, Lecrae says that he was bred (i.e. born and raised) to do “time in the fed” which refers to time spent in a federal penitentiary or prison after being convicted and sentences for a federal crime.  
+* Here in “Die for the Party,” Lecrae says that he was bred (i.e., born and raised) to do “time in the fed,” which refers to time spent in a federal penitentiary or prison after being convicted and sentenced for a federal crime.  
  
-* The point here seems to be that based on the long history of slavery, sexual abuse, segregation, lack of education, racial inequality, poverty and other forms of generation trauma, the genetics and the environment that Lecrae received from his parents made Lecrae statistically more likely to commit federal crimes and be sentenced to time in the federal prison as punishment for his crimes.  
+* The point here seems to be that, based on the long history of slavery, sexual abuse, segregation, lack of education, racial inequality, poverty, and other forms of generational trauma, the genetics and the environment that Lecrae received from his parents made him statistically more likely to commit federal crimes and be sentenced to time in federal prison as punishment for his crimes.  
 
 {{< /details >}}
 
@@ -4863,11 +4863,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Bred for doin' time in the feds, but Jesus bled" > Jesus bled
 
-* After describing himself as being "bred for doin' time in the feds", Lecrae then says “Jesus bled”. Here "Jesus bled" is a reference to the scene in all four Gospel accounts in which Jesus’s blood spilled out of his body when Roman soldiers whipped Jesus, forced a crown of thorns onto Jesu's head, and hammered nails through Jesus's hands and feet to attach him to the wooden beams of an execution cross.  
+* After describing himself as being "bred for doin' time in the feds," Lecrae then says, “Jesus bled.” Here, "Jesus bled" is a reference to the scene in all four Gospel accounts in which Jesus’s blood spilled out of his body when Roman soldiers whipped him, forced a crown of thorns onto his head, and hammered nails through his hands and feet to attach him to the wooden beams of an execution cross.  
  
-* It is notable that Lecrae uses the word “but” between “bred for doin time in the feds” and “Jesus bled”, which seems to imply a contrast. In particular, the punishment of a federal prison sentence that guilty people receive for committing federal crimes is contrasted with the punishment of beatings, whipping, torture, and crucifixion that an innocent Jesus received for a crime that he did not commit. Moreover, all four Gospel accounts make it clear that as the only truly innocent man, Jesus died on behalf of and in place of those who were actually guilty.  
- 
-* This idea of an innocent Jesus being executed in place of the guilty is most clearly highlighted in a scene in which the Judeans who were jealous of Jesus asked the Roman governor to free a criminal who was convicted of murderer and leading of an armed revolt and to crucify Jesus in place of this criminal.  
+* It is notable that Lecrae uses the word “but” between “bred for doin' time in the feds” and “Jesus bled,” which seems to imply a contrast. In particular, the punishment of a federal prison sentence that guilty people receive for committing federal crimes is contrasted with the punishment of beatings, whipping, torture, and crucifixion that an innocent Jesus received for a crime that he did not commit. Moreover, all four Gospel accounts make it clear that as the only truly innocent man, Jesus died on behalf of and in place of those who were actually guilty.  
      
   * *Now at the Passover feast **the Roman governor was accustomed to release to the crown one prisoner whom they desired. At the time, they had a notorious prisoner called Barabbas (one who was thrown into prison for a certain revolt in the city, and for murder)**. When therefore they were gathered together, **Pilate said to them, “Whom do you want me to release to you? Barabbas, or Jesus who is called Christ?”**  
      
@@ -4891,7 +4889,7 @@ You'll get a better sense of the context and progression of thought if you go th
      
   -Matthew 27:15-26
 
-* Additionally, as we already pointed out, the word “bred” (i.e. past tense of “breed”) is a homophone with the food item “bread” and also rhymes with “bled”. In another famous scene that is often referred to as the “Last Supper” or “Lord’s Supper”, Jesus shares broken pieces of bread and a cup of wine with his disciples and declares that the broken bread is actually Jesus’s body which is broken during Jesus’s crucifixion and the wine is actually Jesus’s blood which is shed during Jesus’s crucifixion. By giving his disciples his body and blood to eat and drink, Jesus promises to use this meal to help the disciples find freedom from their sins and transform the disciple to be more like Jesus.  
+* Additionally, as we already pointed out, the word “bred” (i.e., past tense of “breed”) is a homophone with the food item “bread” and also rhymes with “bled.” In another famous scene that is often referred to as the “Last Supper” or “Lord’s Supper,” Jesus shares broken pieces of bread and a cup of wine with his disciples and declares that the broken bread is actually Jesus’s body, which is broken during Jesus’s crucifixion, and the wine is actually Jesus’s blood, which is shed during Jesus’s crucifixion. By giving his disciples his body and blood to eat and drink, Jesus promises to use this meal to help the disciples find freedom from their sins and transform them to be more like Jesus.  
      
   * *As they were eating, **Jesus took bread, gave thanks (Greek: eucharisteō) for it, and broke it. He gave to the disciples and said, “Take, eat; this is my body.”  
      
@@ -4899,15 +4897,15 @@ You'll get a better sense of the context and progression of thought if you go th
      
   -Matthew 26:26-28
 
-* This “Last Supper” or “Lord’s Supper” was later instituted as a Christian ritual called “communion” referring to the idea of the church community forming a union with God. The ritual is alternatively known as the “eucharist” referring to the Greek word for “give thanks”. For most of church history, communion / the eucharist has been the central component of church services and of Christian life as a whole.  
+* This “Last Supper” or “Lord’s Supper” was later instituted as a Christian ritual called “communion,” referring to the idea of the church community forming a union with God. The ritual is alternatively known as the “Eucharist,” referring to the Greek word for “give thanks.” For most of church history, communion/the Eucharist has been the central component of church services and of Christian life as a whole.  
  
-* Hence, we now recognize that the word “bred” is actually a quadruple entendre which refers to:
-  * “Bred” as in breeding offspring
-  * “Bread” as in a loaf of bread
-  * “Bread” as in money
-  * “Bread” as in Jesus’s body
-
-* This quadruple entendre probably went over almost everyone’s head  
+* Hence, we now recognize that the word “bred” is actually a quadruple entendre, which refers to:
+  * “Bred” as in breeding offspring  
+  * “Bread” as in a loaf of bread  
+  * “Bread” as in money  
+  * “Bread” as in Jesus’s body  
+ 
+* This quadruple entendre probably went over almost everyone’s head.  
 
 {{< /details >}}
 
