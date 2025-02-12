@@ -4917,16 +4917,16 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Instead of puttin' dents in they head, He turned His" > Putting dents in their heads
 
-* “Put a dent in their head” is a slang phrase that is normally said by someone who is annoyed or angry with another person and wants to threaten that they will violently hurt that person by striking the person on the head.  
-
-* This phrase "puttin' dents in they head" mirrors the second verse of “Watch the Party Die” where Kendrick said “I want his head cracked before he's back home”.  
-
-* As Lecrae points out, unlike Kendrick and others who might want to put a dent in the heads of their enemies, Jesus turned his head. Here the phrase “turned his” is a reference to Jesus’s teaching that instead of using violence to oppose and hurt an evil person in the same way that the evil person hurt one of Jesus’s disciple, it would be better for the disciple to “turn the other cheek” when they are slapped in the face or otherwise insulted.  
+* “Put a dent in their head” is a slang phrase that is normally said by someone who is annoyed or angry with another person and wants to threaten that they will violently hurt that person by striking them on the head.  
+ 
+* The phrase "puttin' dents in they head" mirrors the second verse of “Watch the Party Die,” where Kendrick said, “I want his head cracked before he's back home.”  
+ 
+* As Lecrae points out, unlike Kendrick and others who might want to put a dent in the heads of their enemies, Jesus turned his head. Here, the phrase “turned his” is a reference to Jesus’s teaching that instead of using violence to oppose and hurt an evil person in the same way that the evil person hurt one of Jesus’s disciples, it would be better for the disciple to “turn the other cheek” when they are slapped in the face or otherwise insulted.  
 
   * “You have heard that it was said, ‘Eye for eye, and tooth for tooth.’ But I say to you, **do not show opposition in the same way as an evil person; but whoever slaps you on your right cheek, turn the other cheek toward him also**.  
   -Matthew 5:38-39  
 
-* Jesus exemplified his own teaching after he was arrested and one of the officers slapped Jesus on the face.
+* Jesus exemplified his own teaching after he was arrested and one of the officers slapped Jesus on the face.  
      
   * *The high priest therefore asked Jesus about his disciples and about his teaching. Jesus answered him, “I spoke openly to the world. I always taught in synagogues, and in the temple, where the Judeans always meet. I said nothing in secret. Why do you ask me? Ask those who have heard me what I said to them. Behold, they know the things which I said.”
      
@@ -4934,7 +4934,7 @@ You'll get a better sense of the context and progression of thought if you go th
      
   **Jesus answered him, “If I have spoken wrongly, confirm the wrong; but if I spoke rightly, why do you beat me?”***
 
-    * It is notable that when Jesus was slapped in the face he did speak against the wrong that was being done to him but he did not add another wrong to the situation but using his power to slap the officer in response.  
+    * It is notable that when Jesus was slapped in the face, he did speak against the wrong that was being done to him, but he did not add another wrong to the situation by using his power to slap the officer in response.  
 
 {{< /details >}}
 
@@ -4946,23 +4946,23 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "My cup runneth over with nonsense" > subsection
 
-* The phrase “my cup runneth over” is a reference to a poem called Psalm 23 in which King David reflects on how the Lord takes care of him, provides what he needs, and keeps him safe from danger even in the “presence of his enemies.”  
+* The phrase “my cup runneth over” is a reference to a poem called Psalm 23, in which King David reflects on how the Lord takes care of him, provides what he needs, and keeps him safe from danger even in the “presence of his enemies.”  
 
-  * ***You prepare a table before me
-    in the presence of my enemies.**
-  You anoint my head with oil.
-    **My cup runs over**.
-  Surely goodness and loyal love will follow me all the days of my life,
-    and **I will live** in the house of the LORD **forever**.*
-  -Psalm 23:4-6
+  * ***You prepare a table before me  
+  in the presence of my enemies.**  
+  You anoint my head with oil.  
+  **My cup runs over**.  
+  Surely goodness and loyal love will follow me all the days of my life,  
+  and **I will live** in the house of the LORD **forever**.*  
+  -Psalm 23:4-6  
 
-* In Psalm 23, King David expresses a deep trust in God’s protection which allows him to sit at a table and drink wine from a cup even while his enemies are around him. This trust in God’s protection leads David to a peaceful disposition which is a clear contrast with Kendrick who seems convinced the he must deal with his enemies himself throughout “Watch the Party Die” and throughout the battle with Drake.  
+* In Psalm 23, King David expresses a deep trust in God’s protection, which allows him to sit at a table and drink wine from a cup even while his enemies are around him. This trust in God’s protection leads David to a peaceful disposition, which is a clear contrast with Kendrick, who seems convinced that he must deal with his enemies himself throughout “Watch the Party Die” and throughout the battle with Drake.  
  
-* The fact that Lecrae says his cup “runs over with nonsense” puts an interesting twist on Psalm 23. This twist seems to suggest a very different dynamic where he does not have the sense to trust the Lord in the presence of his enemies.  
+* The fact that Lecrae says his cup “runs over with nonsense” puts an interesting twist on Psalm 23. This twist seems to suggest a very different dynamic, where he does not have the sense to trust the Lord in the presence of his enemies.  
  
-* The lack of sense might be due to Lecrae being emotionally dysregulated, not being able to think clearly or making bad decisions after drinking alcohol. Lecrae has more recently quit drinking alcohol for his own health and well being, which is something that he has talked about openly in a few interviews and podcast episodes.  
+* The lack of sense might be due to Lecrae being emotionally dysregulated, not being able to think clearly, or making bad decisions after drinking alcohol. Lecrae has more recently quit drinking alcohol for his own health and well-being, which is something that he has talked about openly in a few interviews and podcast episodes.  
  
-* Given that Lecrae already mentioned how he used his trauma to "pay the wages", Lecrae could also be building on this idea of using alcohol as an unhealthy way to deal with personal pain.  
+* Given that Lecrae already mentioned how he used his trauma to "pay the wages," Lecrae could also be building on this idea of using alcohol as an unhealthy way to deal with personal pain.  
 
 {{< /details >}}
 
@@ -5046,12 +5046,12 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * The wicked choices that allowed Lecrae’s cousin to take fentanyl leads Lecrae to say “I want the dealer’s head”. This statement seems to apply that somewhere inside his heart, Lecreae would like the dealer to be murdered, maybe even decapitated so the head can be brought back to Lecrae for inspection.  
  
-* This line directly mirror Kendrick’s line from the second verse of “Watch the Party Die” where Kendrick said:  
+* This line directly mirrors Kendrick’s line from the second verse of “Watch the Party Die” where Kendrick said:  
 
   * *If I'm not his vote  
   **Then you need to bring his fuckin' head, or film that shit in hi-res***  
 
-* Given that Lecrae has been a Chrisitan hip hop artists for almost two decades, it might be surprising to hear him express this desire to take revenge for his cousin through a vicious murder.  
+* Given that Lecrae has been a Chrisitan hip hop artist for almost two decades, it might be surprising to hear him express this desire to take revenge for his cousin through a vicious murder.  
  
 * However, this honest confession highlights the fact that even after “getting on his mission” Lecrae still faces spiritual, mental, and emotional tests which causes him to wrestle with faith and really decide if he wants to follow Jesus’s teachings and example. Lecrae’s honest wrestling is likely one of the main reasons that Kendrick wanted to know “what Lecrae would do”.  
 
@@ -5133,7 +5133,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Last album had it boomin' somethin' vicious, ya know?**  
   And ya know I need ya back in my life*  
 
-* The idea of corporate guys from the entertainment industry using hip hop music like an addictive substance is also something that Kendrick alluded to on the third verse of “Watch the Party Die” when Kendrick rapped 
+* The idea of corporate guys from the entertainment industry using hip hop music like an addictive substance is also something that Kendrick alluded to on the third verse of “Watch the Party Die” when Kendrick rapped  
 
   * *It's cynical to say I know these **artists** petrified  
   The end result, in jail by Jezebel or **drugged up full of lies***  
