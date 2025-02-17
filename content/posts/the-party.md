@@ -4516,8 +4516,22 @@ You'll get a better sense of the context and progression of thought if you go th
  
 * "Clout chasers" can be seen as a form of “culture vulture” since "clout chasers" are metaphorically scavenging off of someone else who has been “killing it” rather than using their own skills, discipline, or hard work to eat what they kill. Thus, "clout chasing" is also a way for someone to avoid "paying dues" or working hard, as Kendrick mentioned in the first verse.  
  
-* Kendrick previously described "clout chasing" as a "disease" on "Rich Spirit" from *Mr. Morale & the Big Steppers.*  
+* Kendrick previously described "clout chasing" as kind of mask on "N95 and as a disease on "Rich Spirit" from *Mr. Morale & the Big Steppers.*  
 
+  * *Take off the foo-foo  
+  **Take off the clout chase**  
+  Take off the Wi-Fi  
+  Take off the money phone  
+  Take off the car loan  
+  Take off the flex and the white lies  
+  Take off the weird-ass jewelry  
+  I'ma take ten steps  
+  Then I'm takin' off top five  
+  Take off them fabricated streams  
+  And them microwave memes  
+  It's a real world outside (take that shit off)*  
+  -"N95"  
+     
   * *Frat brother, real nigga, that brother  
   We just upped the score, give me dap, brother  
   Spirit medium, I don't rap, brother  
@@ -4526,6 +4540,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Ayy, gotta watch your homies and police, brother  
   Ayy, **clout chasing hell of a disease**, brother  
   I'm fasting four days out the week, brother*  
+  -"Rich Spirit"  
 
 * It is also notable that on the battle track "THE HEART PART 6," Drake accused Kendrick of "clout chasing" as Drake denied Kendrick's allegations that Drake was involved in pedophilia and sex trafficking.  
 
@@ -4976,7 +4991,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "They hearts grow colder, they love to do evil, they burn they conscience" > Hearts grow cold
 
-* “The hearts grow cold” seems to be a reference to Jesus’s prophecy about a pattern of destructive circumstances in which various individuals and false prophets will misrepresent Jesus and claim to be anointed leaders while leading many people away from Jesus. Leading people away from Jesus will eventually lead to wars, betrayal, sin, lawlessness, famine, environmental devastation and eventually to the end of the world as we know it. Within such a pattern of turning from Jesus’s commandments towards chaos, Jesus said that many humans “love will grow cold”.  
+* “The hearts grow cold” seems to be a reference to Jesus’s prophecy about a pattern of destructive circumstances in which various individuals and false prophets will misrepresent Jesus and claim to be anointed leaders while leading many people away from Jesus. Leading people away from Jesus will eventually lead to wars, betrayal, sin, lawlessness, famine, environmental devastation, and eventually to the end of the world as we know it. Within such a pattern of turning from Jesus’s commandments toward chaos, Jesus said that many humans’ “love will grow cold.”  
      
   * *Jesus answered them, “Be careful that no one leads you astray. For **many will come** in my name, saying, ‘I am the Christ (anointed leader),’ and will **lead many astray**. You will hear of wars and rumors of wars. See that you are not troubled, for all this must happen, but the end is not yet. For nation will rise against nation, and kingdom against kingdom; and there will be famines, plagues, and earthquakes in various places. But all these things are the beginning of birth pains.  
      
@@ -4994,7 +5009,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "They hearts grow colder, they love to do evil, they burn they conscience" > Love to do evil
 
-* “They love to do evil” is reminiscent of Jesus’s words to one of the Judean religious leaders where he explained that although God loved the world and had sent Jesus to be the “light of the world” who would rescue people from death and give them a new kind of eternal life, not all humans would receive this eternal life. Jesus said that some humans would be condemned to death not necessarily in a direct form of Jesus condemning them, but in the indirect form of the natural consequences for preferring to do evil in the darkness rather than coming into the light where they would need to stop doing evil.  
+* “They love to do evil” is reminiscent of Jesus’s words to one of the Judean religious leaders, where he explained that although God loved the world and had sent Jesus to be the “light of the world” who would rescue people from death and give them a new kind of eternal life, not all humans would receive this eternal life. Jesus said that some humans would be condemned to death not necessarily in a direct form of Jesus condemning them but in the indirect form of the natural consequences for preferring to do evil in the darkness rather than coming into the light, where they would need to stop doing evil.  
 
   * *For God so loved the world, that he gave his unique and only Son, that whoever believes in him should not perish, but have eternal life. For **God did not send his Son into the world to condemn the world, but that the world should be [saved / rescued] through him**.  
      
@@ -5009,7 +5024,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "They hearts grow colder, they love to do evil, they burn they conscience" > Burn their conscience
 
-* “They burn their conscience” is a reference to St. Paul’s first letter to Timothy, where St. Paul also talks about the pattern leading to the end of the world as we know it. St. Paul says that some people will turn away from Jesus’s teaching and instead listen to the teaching of “deceitful spirits”, “demons”, “liars” and “hypocrites.” St. Paul suggests that these liars and hypocrites can be identified by the fact that they have burned a brand mark into their own conscience which shows that they are owned by the ["devil" / "satan" / “false accuser” / “diabolical one”].  
+* “They burn their conscience” is a reference to St. Paul’s first letter to Timothy, where St. Paul also talks about the pattern leading to the end of the world as we know it. St. Paul says that some people will turn away from Jesus’s teaching and instead listen to the teaching of “deceitful spirits,” “demons,” “liars,” and “hypocrites.” St. Paul suggests that these liars and hypocrites can be identified by the fact that they have burned a brand mark into their own conscience, which shows that they are owned by the ["devil" / "satan" / “false accuser” / “diabolical one”].  
 
   * *The Spirit explicitly says that in later times some will fall away from the faith, **paying attention to deceitful spirits and teachings of demons, under the influence of liars and hypocrites who have burned their own conscience as with a branding iron**.*  
   -1 Timothy 4:1-2  
@@ -5024,19 +5039,19 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I want the dealer's head who gave my cousin fentanyl" > Fentanyl
 
-* After talking about cold-hearted liars and hypocrites who love to do evil, Lecrae seems to give us an example of one such person: the drug dealer who sold fentanyl to Lecrae’s cousin  
+* After talking about cold-hearted liars and hypocrites who love to do evil, Lecrae seems to give us an example of one such person: the drug dealer who sold fentanyl to Lecrae’s cousin.  
  
-* Fentanyl is a powerful, unnatural, man-made opioid that was initially used in the 1990s to relieve pain for patrons with severe pain, such as cancer. However, in the 2000s fentanyl began to be used illegally as a recreational drug. The recreational form of fentanyl is often mixed with other hard drugs like heroin or cocaine—often without the user’s knowledge—which made it very likely to make users overdose even with small amounts of fentanyl.  
+* Fentanyl is a powerful, unnatural, man-made opioid that was initially used in the 1990s to relieve pain for patients with severe conditions, such as cancer. However, in the 2000s, fentanyl began to be used illegally as a recreational drug. The recreational form of fentanyl is often mixed with other hard drugs like heroin or cocaine—often without the user’s knowledge—which made it very likely to cause overdoses even with small amounts.  
  
-* Fentanyl overdoses became an epidemic after illegal, irresponsible and greedy actions by some pharmaceutical companies and doctors led to a sharp increase in the number of opioid addictions throughout North America.  
+* Fentanyl overdoses became an epidemic after illegal, irresponsible, and greedy actions by some pharmaceutical companies and doctors led to a sharp increase in the number of opioid addictions throughout North America.  
  
-* Gangs in Mexico exploited this widespread increase in additions, importanting chemical precursors from China, producing fentanyl cheaply in Mexico and then smuggling fentanyl laced pills across the border into America.  
+* Gangs in Mexico exploited this widespread increase in addictions, importing chemical precursors from China, producing fentanyl cheaply in Mexico, and then smuggling fentanyl-laced pills across the border into America.  
  
-* By the mid 2010s, many of these fentanyl laced pills ended up in the hands of teenagers who bought what they thought they were buying prescription pills such as oxycodone/percocets, xanax, adderall, or vicodin but ended up ingesting lethal doses of fentanyl.  
+* By the mid-2010s, many of these fentanyl-laced pills ended up in the hands of teenagers who thought they were buying prescription pills such as oxycodone/Percocet, Xanax, Adderall, or Vicodin but ended up ingesting lethal doses of fentanyl.  
  
-* In many cases, teenagers bought these fentanyl laced pills through social media apps, particularly snapchat which offered the useful feature of disappearing messages.  
+* In many cases, teenagers bought these fentanyl-laced pills through social media apps, particularly Snapchat, which offered the useful feature of disappearing messages.  
  
-* The details of the fentanyl epidemic highlight how a pursuit of person profit or national gross domestic profit by stock market investors, drug dealers, gangs, pharmaceutical corporations, tech companies and governments can inspire killers to adopt evil, wicked business practices which lead to increased addictions and deaths of countless men, women and children, including Lecrae’s cousin.  
+* The details of the fentanyl epidemic highlight how the pursuit of personal profit or national gross domestic profit by stock market investors, drug dealers, gangs, pharmaceutical corporations, tech companies, and governments can inspire killers to adopt evil, wicked business practices that lead to increased addictions and deaths of countless men, women, and children, including Lecrae’s cousin.  
 
 {{< /details >}}
 
@@ -5044,16 +5059,16 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I want the dealer's head who gave my cousin fentanyl" > Want the dealer's head
 
-* The wicked choices that allowed Lecrae’s cousin to take fentanyl leads Lecrae to say “I want the dealer’s head”. This statement seems to apply that somewhere inside his heart, Lecreae would like the dealer to be murdered, maybe even decapitated so the head can be brought back to Lecrae for inspection.  
+* The wicked choices that allowed Lecrae’s cousin to take fentanyl lead Lecrae to say, “I want the dealer’s head.” This statement seems to imply that somewhere inside his heart, Lecrae would like the dealer to be murdered—maybe even decapitated so the head can be brought back to Lecrae for inspection.  
  
-* This line directly mirrors Kendrick’s line from the second verse of “Watch the Party Die” where Kendrick said:  
+* This line directly mirrors Kendrick’s line from the second verse of “Watch the Party Die,” where Kendrick said:  
 
   * *If I'm not his vote  
   **Then you need to bring his fuckin' head, or film that shit in hi-res***  
 
-* Given that Lecrae has been a Chrisitan hip hop artist for almost two decades, it might be surprising to hear him express this desire to take revenge for his cousin through a vicious murder.  
+* Given that Lecrae has been a Christian hip-hop artist for almost two decades, it might be surprising to hear him express this desire to take revenge for his cousin through a vicious murder.  
  
-* However, this honest confession highlights the fact that even after “getting on his mission” Lecrae still faces spiritual, mental, and emotional tests which causes him to wrestle with faith and really decide if he wants to follow Jesus’s teachings and example. Lecrae’s honest wrestling is likely one of the main reasons that Kendrick wanted to know “what Lecrae would do”.  
+* However, this honest confession highlights the fact that even after “getting on his mission,” Lecrae still faces spiritual, mental, and emotional tests that cause him to wrestle with faith and really decide if he wants to follow Jesus’s teachings and example. Lecrae’s honest wrestling is likely one of the main reasons that Kendrick wanted to know “what Lecrae would do.”  
 
 {{< /details >}}
 
@@ -5066,21 +5081,21 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Labels exploitin' rappin' addicts, man, I'm sick of y'all" > Rappin' addicts
 
-* Having just highlighted gangs who profit by exploiting individuals who are addicted to opioids, Lecrae now compares those gangs to music labels who profit from exploiting listeners and rappers who are addicted to hip hop.  
+* Having just highlighted gangs that profit by exploiting individuals addicted to opioids, Lecrae now compares those gangs to music labels that profit from exploiting listeners and rappers addicted to hip-hop.  
  
-* This comparison between selling addictive drugs and selling addictive music is a longstanding motif within hip hop lyrics.  
+* This comparison between selling addictive drugs and selling addictive music is a longstanding motif within hip-hop lyrics.  
    
-  * New York based rap legend Nas largely introduced the motif a single line from the second verse of the track “Represent” from his classic debut album Illmatic released on April 19, 1994.  
+  * New York-based rap legend Nas largely introduced the motif in a single line from the second verse of the track “Represent” from his classic debut album *Illmatic*, released on April 19, 1994.  
 
     * *Somehow the **rap game reminds me of the crack game***  
 
-  * Exactly one week after the release of "Represent", on April 26, 1994 the legendary Atlanta-based duo Outkast released their classic debut album, Southernplayalisticadillacmuzik, whose first full track “Myintrotoletuknow” featured a verse from Andre who further developed the motif.  
+  * Exactly one week after the release of "Represent," on April 26, 1994, the legendary Atlanta-based duo Outkast released their classic debut album, *Southernplayalisticadillacmuzik*, whose first full track, “Myintrotoletuknow,” featured a verse from André that further developed the motif.  
 
     * See, **that rap shit is really just like sellin' smoke  
     If you got some fire shit, your niggas gonna always toke  
     Dope is not what I be slingin' on this track***  
 
-  * Jay-Z then turned the motif into an extended metaphor on an entire song called “Rap Game / Crack Game” which was released on Jay-Z’s 1997 album, *In My Lifetime, Vol. 1*. Notably, the hook for “Rap Game / Crack Game” samples both “Represent” and “Myintrotoletuknow”.  
+  * Jay-Z then turned the motif into an extended metaphor on an entire song called “Rap Game / Crack Game,” which was released on Jay-Z’s 1997 album, *In My Lifetime, Vol. 1*. Notably, the hook for “Rap Game / Crack Game” samples both “Represent” and “Myintrotoletuknow.”  
 
     * *Won't stop niggas  
     **"Somehow the rap game remind me of the crack game"**  
@@ -5133,14 +5148,14 @@ You'll get a better sense of the context and progression of thought if you go th
   Last album had it boomin' somethin' vicious, ya know?**  
   And ya know I need ya back in my life*  
 
-* The idea of corporate guys from the entertainment industry using hip hop music like an addictive substance is also something that Kendrick alluded to on the third verse of “Watch the Party Die” when Kendrick rapped  
+* The idea of corporate figures in the entertainment industry using hip-hop music like an addictive substance is also something that Kendrick alluded to on the third verse of “Watch the Party Die” when Kendrick rapped:  
 
   * *It's cynical to say I know these **artists** petrified  
   The end result, in jail by Jezebel or **drugged up full of lies***  
 
-* Much like Kendrick, Lecrae criticizes the music industry—particularly record labels—for exploiting youth who feel they can’t live without hip hop music. These labels obtain precursor materials from Black artists coming out of poor, urban areas, who then produce music that “parade in gluttony without givin' truth to the youth” and may ultimately lead young people to make choices that lead them directly to a federal prison cell or a casket.  
+* Much like Kendrick, Lecrae criticizes the music industry—particularly record labels—for exploiting youth who feel they can’t live without hip-hop music. These labels obtain precursor materials from Black artists coming out of poor, urban areas, who then produce music that “parade in gluttony without givin' truth to the youth” and may inspire young people to make choices that eventually lead them to a federal prison cell or a casket.  
 
-* Lecrae also seems to acknowledge that we can’t fully blame hip hop addicts for their choices because addiction is a sickness. This acknowledgement leads Lecrae to tell the music labels, “I’m sick of y’all”.  
+* Lecrae also seems to acknowledge that we can’t fully blame hip-hop addicts for their choices because addiction is a sickness. This acknowledgment leads Lecrae to tell the music labels, “I’m sick of y’all.”  
 
 
 {{< /details >}}
@@ -5155,11 +5170,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "My daddy ran with Compton Crips, my uncle's Piru" > Pirus and Crips
 
-* Here, Lecrae notes that his father was a member of the Compton Crips gang and his uncle was a member of the Pirus gang.  Although Lecrae never met his father, knowing that the men in his family chose to be affiliated with gangs still had a deep influence on Lecrae as he was growing up with a single mother in a poor, urban Black neighborhood.  
+* Lecrae notes that his father was a member of the Compton Crips gang and his uncle was a member of the Pirus gang. Although Lecrae never met his father, knowing that the men in his family chose to be affiliated with gangs still had a deep influence on Lecrae as he was growing up with a single mother in a poor, urban Black neighborhood.  
  
-* Once Lecrae became a teenager he faced his own choice about whether to follow in the footsteps of his absent father or uncle and join the Crips or the Pirus— or whether he take a totally different path.  
+* Once Lecrae became a teenager, he faced his own choice about whether to follow in the footsteps of his absent father or uncle and join the Crips or the Pirus—or whether he would take a totally different path.  
  
-* It is notable that Kendrick specifically mentioned the Compton Crips and Pirus when he detailed Compton’s violent environment on  the track “m.A.A.d city” from Kendrick's classic debut album.  
+* It is notable that Kendrick specifically mentioned the Compton Crips and Pirus when he detailed Compton’s violent environment on the track “m.A.A.d city” from Kendrick's classic debut album.  
 
   * *If **Pirus and Crips** all got along  
   They'd probably gun me down by the end of this song  
@@ -5167,7 +5182,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Every time I'm in the street, I hear—  
   Yawk! Yawk! Yawk! Yawk!**  
 
-* Moverover, Lecrae by saying that he is "stuck in the middle of this *madness*" Lecrae might be making another subtly allusion to the “m.A.A.d. City” of Compton, California.  
+* Moreover, by saying that he is "stuck in the middle of this *madness*," Lecrae seems to be making another subtle allusion to the “m.A.A.d city” of Compton, California.  
 
 {{< /details >}}
 
@@ -5179,7 +5194,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I should be choosin' between Howard and Hampton" > Howard and Hampton
 
-* For many Black boys growing up in poor, urban neighborhoods, their only choice seems to be between various gangs like the Crips and Pirus. Lecrae laments the fact that in a truly better world, he and these other young Black boys would have the opportunity to choose between Howard Unversity and Hampton University, which are two of America’s historically Black colleges and universities (aka HBCUs).  
+* For many Black boys growing up in poor, urban neighborhoods, their only choice seems to be between various gangs like the Crips and Pirus. Lecrae laments the fact that in a truly better world, he and these other young Black boys would have the opportunity to choose between Howard University and Hampton University, which are two of America’s historically Black colleges and universities (aka HBCUs).  
 
 {{< /details >}}
 
@@ -5193,9 +5208,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * In contrast to the dealer who sold his cousin fentanyl and the music labels who exploit rap music addicts, Lecrae shows love and empathy for the peers with whom he grew up, even though many of them eventually chose to gang bang, sell drugs, or profit from some other illegal and destructive activity.  
  
-* Despite this love and empathy, Lecrae also seems to be genuinely disturbed as he implores us to “look at the damage” that his peers ccaused throughout their choices to profit from various illegal activity.  
+* Despite this love and empathy, Lecrae also seems to be genuinely disturbed as he implores us to “look at the damage” that his peers caused through their choices to profit from various illegal activities.  
  
-* It’s also notable that the phrase “What’s the damage?” is a way to ask how much someone has to pay for something, particularly for expensive shopping purchases or a restaurant bill. Hence, these peers have been doing physical, emotional, spiritual and financial “damage” to themselves and others so that they can get enough money to pay for the “damage” when they indulge themselves at a store or restaurant.  
+* It’s also notable that the phrase “What’s the damage?” is a way to ask how much someone has to pay for something, particularly for expensive shopping purchases or a restaurant bill. Hence, these peers have been doing physical, emotional, spiritual, and financial “damage” to themselves and others so that they can get enough money to pay for the “damage” when they indulge themselves at a store or restaurant.  
 
 {{< /details >}}
 
@@ -5209,15 +5224,15 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * Lecrae seems to be having a conversation with one of these former peers where he says, “You want me put you on but I know you still with the scammin'”.  
  
-* The phrase “put me on” is a slang way for someone to ask another person to use their position, connections, success or abundance to hook the speaker up, show the speaker undeserved favor, or help the spaker get something that the speaker wants.  
+* The phrase “put me on” is a slang way for someone to ask another person to use their position, connections, success, or abundance to hook the speaker up, show the speaker undeserved favor, or help the speaker get something that the speaker wants.  
  
-* In this case, the request seems to be from a former peer who is asking Lecrae to use his wealth and status as a successful grammy winning hip hop artist to “put him on” with some kind of economic opportunity.  
+* In this case, the request seems to be from a former peer who is asking Lecrae to use his wealth and status as a successful Grammy-winning hip hop artist to “put him on” with some kind of economic opportunity.  
  
 * Lecrae indicates that he is reluctant and will probably refuse to put this former peer on because Lecrae knows that the peer is still involved with illegal activity, particularly scamming people to get money.  
  
-* Recall that Kendrick called out rappers and influencers who “glorify scamming” and threats to execute them by saying “you get chipped over this credit card”.  
+* Recall that Kendrick called out rappers and influencers who “glorify scamming” and threatened to execute them by saying “you get chipped over this credit card.”  
  
-* As we previously noted, Kendrick’s has mentioned the destructive behavior of scammers on several tracks throughout his career.  
+* As we previously noted, Kendrick has mentioned the destructive behavior of scammers on several tracks throughout his career.  
 
   * *Baby wanna go back to school, but she need some help  
   Because it's hard trying to pay the bills when you're by yourself  
@@ -5246,27 +5261,25 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "A crooked doctor took advantage and hooked me on Xanax" > Xanax
 
-* After empathizing with his peers who have profited from illegal activity while also refusing to further enable them, Kendrick calls out the “crooked doctor” who prescribed Xanax to Lecrae, which eventually Lecrae to become addicted.  
+* After empathizing with his peers who have profited from illegal activity while also refusing to further enable them, Lecrae calls out the “crooked doctor” who prescribed Xanax to Lecrae, which eventually led to his addiction.  
  
 * Xanax is the brand name form of a prescription medication named alprazolam that produces a calming effect on a patient and thus is primarily used to treat anxiety disorders. However, that same calming effect makes it very easy for patients to become addicted.  
  
-* Within the medical system of the United States, there have been numerous examples of corrupt doctors who have overprescribed Xanax to patients when there was little to no medical justification for the patient to be taking Xanax who should not have been using Xanax.  
+* Within the medical system of the United States, there have been numerous examples of corrupt doctors who have overprescribed Xanax to patients when there was little to no medical justification for the patient to be taking Xanax.  
  
-* These doctors were often incentivized to over prescribe Xanax because of:
+* These doctors were often incentivized to overprescribe Xanax because of:  
      
   * “Kickback” payments that doctors receive from pharmaceutical companies whenever they prescribe the medication.  
      
-  * Submitting to the pressure of patients who demanded Xanax.
+  * Submitting to the pressure of patients who demanded Xanax.  
      
-  * So called “pill mill” business models where patients can skip insurance coverage and pay cash directly to doctor to obtain Xanax without a justifiable medial reason.  
+  * So-called “pill mill” business models where patients can skip insurance coverage and pay cash directly to doctors to obtain Xanax without a justifiable medical reason.  
 
-* In many cases people who were prescribed Xanax without a justification ended up hospitalized or dead.
-
-* A significant amount of the patient demand for Xanax and the subsequent opportunity for “pill mill” business practices for Xanax can be traced to media influencers and stars including hip hop artists who have released a countless number of songs which glorify taking Xanax, or Xans, similar to the trend of making songs about molly.  
-
-
-
-* These doctors who over prescribed Xanax along with the pharmaceutical corporations who profited from selling Xanax thus seem to illustrate Kendrick’s point from “Worldwide Steppers” that seemingly everyone is a killer or silent murderer, particularly when those are seeking profit  
+* In many cases, people who were prescribed Xanax without justification ended up hospitalized or dead.  
+ 
+* A significant amount of the patient demand for Xanax and the subsequent opportunity for “pill mill” business practices for Xanax can be traced to media influencers and stars, including hip hop artists, who have released a countless number of songs that glorify taking Xanax, or Xans, similar to the trend of making songs about molly.  
+ 
+* These doctors who overprescribed Xanax, along with the pharmaceutical corporations who profited from selling Xanax, thus seem to illustrate Kendrick’s point from “Worldwide Steppers” that seemingly everyone is a killer or silent murderer, particularly when they are seeking profit.  
 
   * ***Eight billion people on Earth, silent murderers**  
   Non-profits, preachers and church? Crooks and burglars (Woo)  
@@ -5274,14 +5287,14 @@ You'll get a better sense of the context and progression of thought if you go th
   You either gon' be dead or in jail, killer psychology  
   **Silent murderer, what's your body count? Who your sponsorship?***  
 
-* Since 2017, Lecrae has been vocal about his own personal struggle and journey with anxiety which included a time when he was taking Xanax as prescribed by a doctor.  
-
-* On the 2017 track “Worth It” Lecrae mentioned that stress had led him to be on Xans for a bit before getting off of them. 
+* Since 2017, Lecrae has been vocal about his own personal struggle and journey with anxiety, which included a time when he was taking Xanax as prescribed by a doctor.  
+ 
+* On the 2017 track “Worth It,” Lecrae mentioned that stress had led him to be on Xans for a bit before getting off of them.  
 
   * *I've been over-stressin', I've been second guessin'  
-  **I was on them Xan's for a second**, I was feelin' so defeated*  
+  **I was on them Xans for a second**, I was feelin' so defeated*  
 
-* On the 2022 track “Deconstruction”, Lecrae went into more details about how his mental, emotional and spiritual struggle led him lose his faith in God and look to Xanax for peace of mind.  
+* On the 2022 track “Deconstruction,” Lecrae went into more detail about how his mental, emotional, and spiritual struggle led him to lose his faith in God and look to Xanax for peace of mind.  
 
   * ***I ain't know if God was real no mo'**  
   Every day we gettin' killed and **I can't deal no mo'**  
@@ -5300,9 +5313,9 @@ You'll get a better sense of the context and progression of thought if you go th
   Heard a faint voice calling me late, I couldn't sleep  
   It said, "'Crae I know you love Me, I need you to feed My sheep"  
   Tears streaming as I weep, felt I heard the Lord speak  
-  I've been running from You, but You never ran away from me  
+  I've been running from You, but You never ran away from me*  
 
-* Later in 2024, Lecrae released a [podcast episode](https://www.youtube.com/watch?v=lTbq5iyB_mI) where he talked at length about his journey with mental health including his diagnosis for ADHD, anxiety and depression along with his positive and negative experiences of take medications.  
+* Later in 2024, Lecrae released a [podcast episode](https://www.youtube.com/watch?v=lTbq5iyB_mI) where he talked at length about his journey with mental health, including his diagnosis for ADHD, anxiety, and depression, along with his positive and negative experiences of taking medications.  
 
 {{< /details >}}
 
@@ -5314,9 +5327,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "It's killers sittin' in they cell for takin' somebody innocent" > Killers taking innocent lives
 
-* Having just called out a crooked doctors who have indirectly killed people by overprescribing Xanax, Lecrae shifts his focus to people who have been found guilty and sentenced to time in a prison cell after directly killing an innocent person.  
+* Having just called out crooked doctors who have indirectly killed people by overprescribing Xanax, Lecrae shifts his focus to people who have been found guilty and sentenced to time in a prison cell after directly killing an innocent person.  
  
-* This line mirrors the first verse from “Watch the Party Die” where Kendrick rapped:
+* This line mirrors the first verse from “Watch the Party Die” where Kendrick rapped:  
 
   * ***We even kill the killers 'cause they like taking innocent lives***
 
@@ -5332,11 +5345,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * At some level, Lecrae seems to feel genuinely surprised and disappointed to know that some of these killers feel no remorse about taking the life of someone innocent. However, at another level, he is probably not surprised at this lack of remorse based on the earlier lines such as "They hearts grow colder, they love to do evil, they burn they conscience."  
 
-* Lecrae also attributes the killers' lack of remorse to them displaying the “worst ignorance”.  
+* Lecrae also attributes the killers' lack of remorse to them displaying the “worst ignorance.”  
  
-* At one level, labeling these killers as “ignorant” in a pejorative sense could be seen as a insult or a justification for them to have an even harsher punishment. However, if you take the word “ignorance” at face value, Lecrae is really just pointing out that these killer are unfortunately lacking in knowledge, education or the ability to comprehend the consequences of their actions.  
+* At one level, labeling these killers as “ignorant” in a pejorative sense could be seen as an insult or a justification for them to have an even harsher punishment. However, if you take the word “ignorance” at face value, Lecrae is really just pointing out that these killers are unfortunately lacking in knowledge, education, or the ability to comprehend the consequences of their actions.  
  
-* If one recognizes that these killer are really lacking in knowledge, education and the ability to comprehend consequence, it becomes possible to begin empathizing with them, particularly since they may never have been able to choose between Howard and Hampton.  
+* If one recognizes that these killers are really lacking in knowledge, education, and the ability to comprehend consequences, it becomes possible to begin empathizing with them, particularly since they may never have been able to choose between Howard and Hampton.  
 
 {{< /details >}}
 
@@ -5350,20 +5363,19 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * After expressing his disdain for crooked doctors and killers who feel no remorse, Lecrae suddenly shifts the focus back to himself as he looks in the mirror.  
  
-* This idea of looking in the mirror to examine oneself—particularly to examine one’s own moral choices virtues and vices—is one of the most common recurring motifs throughout Kendricks albums.  
+* This idea of looking in the mirror to examine oneself—particularly to examine one’s own moral choices, virtues, and vices—is one of the most common recurring motifs throughout Kendrick's albums.  
  
-* On “Bitch, Don’t Kill My Vibe” from *good kid, m.A.A.d city", Kendrick talked about a girl who was scared of dealing with her emotions and lived behind a mirror.
+* On “Bitch, Don’t Kill My Vibe” from *good kid, m.A.A.d city*, Kendrick talked about a girl who was scared of dealing with her emotions and lived behind a mirror.  
 
   * *You live in a world, **you livin' behind the mirror**  
   I know what you're scared of, the feeling of feeling emotions inferior*  
 
-
-* On “Poetic Justice” from *good kid, m.A.A.d city", talked to a girl that he was interested in and told here that authentic loved required an individual to look in the mirror.  
+* On “Poetic Justice” from *good kid, m.A.A.d city*, Kendrick talked to a girl that he was interested in and told her that authentic love required an individual to look in the mirror.  
 
   * ***Love is not just a verb, it's you lookin' in the mirror**  
   Love is not just a verb, it's you lookin' for it, maybe*  
 
-* On “Sing About Me, I’m Dying of Thirst” from *good kid, m.A.A.d city", Kendrick began to face his own mistakes that had led to the death of his friend as he rapped.  
+* On “Sing About Me, I’m Dying of Thirst” from *good kid, m.A.A.d city*, Kendrick began to face his own mistakes that had led to the death of his friend as he rapped.  
 
   * ***Sometimes I look in the mirror**  
   And ask myself am I really scared of passin' away?  
@@ -5378,7 +5390,7 @@ You'll get a better sense of the context and progression of thought if you go th
   And **every day that glass mirror get tougher to watch**  
   I tie my stomach in knots*  
 
-* On “Real” from *good kid, m.A.A.d city", after accepting Jesus as his savior Kendrick was finally able to see himself clearly in the mirror.  
+* On “Real” from *good kid, m.A.A.d city*, after accepting Jesus as his savior, Kendrick was finally able to see himself clearly in the mirror.  
 
   * *I do what I wanna do  
   I say what I wanna say, when I feel, and I  
@@ -5393,7 +5405,6 @@ You'll get a better sense of the context and progression of thought if you go th
   And **if these mirrors could talk it'd say, "You gotta go"**  
   And if I told your secrets the world'll know money can't stop  
   a suicidal weakness*  
-
 
 * On “i” from *To Pimp a Butterfly*, Kendrick declared that he loves himself after looking in a mirror.  
 
@@ -5410,7 +5421,7 @@ You'll get a better sense of the context and progression of thought if you go th
   I love myself  
   One day at a time, huh*  
 
-* On “XXX.” from *DAMN.*, Kendrick detailed the murderous pattern of thoughts that characterize America before looking in the mirror and seeing that he is an reflection of America.  
+* On “XXX.” from *DAMN.*, Kendrick detailed the murderous pattern of thoughts that characterize America before looking in the mirror and seeing that he is a reflection of America.  
 
   * *Hail Mary, Jesus, and Joseph  
   The great American flag is wrapped and dragged with explosives  
@@ -5429,9 +5440,9 @@ You'll get a better sense of the context and progression of thought if you go th
   Gang members or terrorists, et cetera, et cetera  
   **America's reflections of me, that's what a mirror does***  
 
-* The entire *DAMN.* also [seems to be designed so that first half of the album mirrors the latter half of the album](https://medium.com/@folutade/reflections-on-dissections-s5e20-finale-9e733f5e06e1) to form a mirrored literary structure known as a “chiasm”.  
+* The entire *DAMN.* also [seems to be designed so that the first half of the album mirrors the latter half of the album](https://medium.com/@folutade/reflections-on-dissections-s5e20-finale-9e733f5e06e1) to form a mirrored literary structure known as a “chiasm.”  
  
-* On “Rich Spirit” from *Mr. Morale & the Big Steppers*, Kendrick seems to why a particular an keeps looking at the mirror.  
+* On “Rich Spirit” from *Mr. Morale & the Big Steppers*, Kendrick questions why a particular man keeps looking at the mirror.  
 
   * *More power to ya, love 'em from a distance  
   **Why you always in the mirror more than the bitches?***  
@@ -5448,12 +5459,12 @@ You'll get a better sense of the context and progression of thought if you go th
   **3:30 in the mornin'**, scroll through the call log (Huh, huh, huh, huh)  
   **Ain't nobody but the mirror** lookin' for the fall off (Brrrt)*  
 
-* On “Mother I Sober”, Kendrick recalled looking in the mirror as a child recognizing that he was unique and gifted.  
+* On “Mother I Sober,” Kendrick recalled looking in the mirror as a child, recognizing that he was unique and gifted.  
 
   * *I remember **lookin' in the mirror knowin' I was gifted**  
   Only child, me for seven years, everything for Christmas*  
 
-* On “Mirror”, Kedrick personifies “the culture” as a woman as Kendrick tells the personified culture to get a mirror and point it at him to see a reflection of freedom.  
+* On “Mirror,” Kendrick personifies “the culture” as a woman as Kendrick tells the personified culture to get a mirror and point it at him to see a reflection of freedom.  
 
   * *'Cause all of it's toxic  
   Girl, I'm not relevant to givin' on profit  
@@ -5474,7 +5485,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Maybe it's time to break it off  
   Run away from the culture to follow my heart*  
 
-* Still the most famous reference to someone looking in the mirror in a popular music song can be found in Michael Jackson’s hit single “Man in the Mirror”. On that track, Michael Jackson sang about his recognition that there were so many people in need while the systems of the world were not making the changes needed to address their needs. Michael Jackson came to the conclusion that any change would need to start with Michael looking in the mirror to see his own selfishness and start to make change in himself and in the world.  
+* Still, the most famous reference to someone looking in the mirror in a popular music song can be found in Michael Jackson’s hit single “Man in the Mirror.” On that track, Michael Jackson sang about his recognition that there were so many people in need while the systems of the world were not making the changes needed to address their needs. Michael Jackson came to the conclusion that any change would need to start with Michael looking in the mirror to see his own selfishness and start to make change in himself and in the world.  
 
   * ***I'm gonna make a change for once in my life**  
   It's gonna feel real good  
@@ -5506,15 +5517,15 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The blood of Uriah's on my hands 'cause I'm that killer" > Killer
 
-* As Lecrae looks in the mirror as he confesses himself to be a killer.  
+* As Lecrae looks in the mirror, he confesses himself to be a killer.  
  
-* By expressing anger, sadness and criticism of those who unjustly kill others and the suddenly turning to acknowledge that he himself is a killer, Lecrae depicts himself as a hypocrite similar to Kendrick at the end of the track “Blacker the Berry” from *To Pimp a Butterfly"
+* By expressing anger, sadness, and criticism of those who unjustly kill others and then suddenly turning to acknowledge that he himself is a killer, Lecrae depicts himself as a hypocrite similar to Kendrick at the end of the track “Blacker the Berry” from *To Pimp a Butterfly*.  
 
   * *So why did I weep when Trayvon Martin was in the street  
   When **gang-banging make me kill a nigga blacker than me?  
   Hypocrite!***  
 
-* In contrast to the “ignorant” “killers sittin’ in they cell” who “don’t feel no remorse”, Lecrae clearly feels a great amount of remorse for being a killer. This remorse is emphasized by the phrase “blood on my hands” which is usually used to emphasize that a person is responsible for another person's death even if the responsible person did not directly kill them.  
+* In contrast to the “ignorant” “killers sittin’ in they cell” who “don’t feel no remorse,” Lecrae clearly feels a great amount of remorse for being a killer. This remorse is emphasized by the phrase “blood on my hands,” which is usually used to emphasize that a person is responsible for another person's death even if the responsible person did not directly kill them.  
 
 {{< /details >}}
 
@@ -5522,33 +5533,33 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The blood of Uriah's on my hands 'cause I'm that killer who had Bathsheba" > David, Bathsheba and Uriah
 
-* In particular, by saying he is “that killer” with “the blood of Uriah” on his hand after having “Bathsheba in his quarters”, Lecrae is clearly depicting himself as someone who has perpetrated the same evil actions as King David.  
+* In particular, by saying he is “that killer” with “the blood of Uriah” on his hands after having “Bathsheba in his quarters,” Lecrae is clearly depicting himself as someone who has perpetrated the same evil actions as King David.  
  
-* In the Bible, David is an iconic King of Israel who committed adultery with a woman named Bathsheba and then ordered Bathsheba’s husband, Uriah to be killed in order to cover up his adultery.  
+* In the Bible, David is an iconic King of Israel who committed adultery with a woman named Bathsheba and then ordered Bathsheba’s husband, Uriah, to be killed in order to cover up his adultery.  
  
-* As a young boy David was anointed with oil to mark him as the future of Israel. David subsequently displayed a remarkable amount of trust in God, which allowed him to rise up from a small shepherd boy to a boy who defeated a giant soldier named Goliath, and eventually was crowned King over all Israel.  
+* As a young boy, David was anointed with oil to mark him as the future king of Israel. David subsequently displayed a remarkable amount of trust in God, which allowed him to rise up from a small shepherd boy to a boy who defeated a giant soldier named Goliath and eventually was crowned King over all Israel.  
  
-* God blessed King David with tremendous military success due to many loyal soldiers including a man named Uriah who served David even though the man was not an Isralite.  Also,because polygamy was allowed at the time, David was able to marry seven wives who had already given birth to six sons.  
+* God blessed King David with tremendous military success due to many loyal soldiers, including a man named Uriah, who served David even though the man was not an Israelite. Also, because polygamy was allowed at the time, David was able to marry seven wives who had already given birth to six sons.  
  
 * However, even after all of this success and all these women, King David was overcome with sexual desire when one night David went up to his roof and saw a woman naked while she was bathing in a house next to David’s palace. David used his servants to find out that this woman’s name was Bathsheba. They also found that she was the wife of Uriah, one of King David’s most loyal soldiers, who at the time was away from home for months as he was on the battlefield fighting for David’s army.  
  
-* Despite knowing that Bathseba was married to his neighbor and loyal soldier and despite already having seven wives with whom he could have sex as he pleased and the ability to marry additional women who were not yet married, David was overcome by lust and sexual desire. He then used his royal power to order servants to bring Bathsheba to his royal quarters where David then forced her to have sex with him.  
+* Despite knowing that Bathsheba was married to his neighbor and loyal soldier and despite already having seven wives with whom he could have sex as he pleased and the ability to marry additional women who were not yet married, David was overcome by lust and sexual desire. He then used his royal power to order servants to bring Bathsheba to his royal quarters where David then forced her to have sex with him.  
  
-* After some weeks went by, Bathsheba sent a message to King David telling him that she was pregnant. Moreover, since her husband Uriah, her husband was away at war for months, whenever Bathsheba began to be visibly pregnant, everyone would know that she had committed adultery even if they didn’t initially know with whom she had sex. She would thus face punishment, potentially even the death penalty, for adultery even though King David was the one who had forced her to have sex with him and under a strict observance of the laws of Moses should be punished by death.  
+* After some weeks went by, Bathsheba sent a message to King David telling him that she was pregnant. Moreover, since her husband Uriah was away at war for months, whenever Bathsheba began to be visibly pregnant, everyone would know that she had committed adultery even if they didn’t initially know with whom she had sex. She would thus face punishment, potentially even the death penalty, for adultery even though King David was the one who had forced her to have sex with him and who under a strict observance of the laws of Moses should be punished by death.  
  
 * Wanting to continue his sexual relationship with Bathsheba, father an additional child, and avoid the shame and punishment of exposing his own adultery, King David concocted a scheme in which he sent a messenger to bring Uriah back from the battlefield to the palace. Once Uriah got to the palace, David told Uriah to go sleep at his house down the street, thinking that if Uriah went to his house he would have sex with his wife, Bathsheba. Then whenever Uriah and everyone else found out that Bathsheba was pregnant, they would assume Uriah had fathered the child from the night that he came home from the battlefield.  
  
-* However, David’s scheme did not work. Uriah was so loyal to King David and his fellow soldiers that he refused to sleep in his own bed or have sex with his wife while the rest of David’s soldiers were in rough conditions on the battle front. David even tried to get Uriah drunk thinking that this would cause Uriah to have self control over his sexual desire so that he would go home and have sex with Bathsheba. However, Uriah just ended up sleeping at the door of the palace.  
+* However, David’s scheme did not work. Uriah was so loyal to King David and his fellow soldiers that he refused to sleep in his own bed or have sex with his wife while the rest of David’s soldiers were in rough conditions on the battlefront. David even tried to get Uriah drunk, thinking that this would cause Uriah to lose self-control over his sexual desire so that he would go home and have sex with Bathsheba. However, Uriah just ended up sleeping at the door of the palace.  
  
 * After David realized that Uriah was too loyal to go home and have sex with his wife, David decided that he had to kill Uriah immediately so that he could marry Bathsheba and make it look as if the baby was conceived after his marriage to Bathsheba.  
  
-* David then concocted a new scheme in which he wrote a letter to his army general which instructed the general to position Uriah at the most fierce part of the battle front. Then as the enemy attacked the general was to tell all the Israelite soldiers around Uriah to withdraw, leaving Uriah undefended so that he could be killed by enemy soldiers. To make his plan even more diabolical, David gave this letter to take to the general on his way back to the battlefield. Uriah again proved to be so loyal that he did not read the letter, though he was carrying his own execution order back to the general.  
+* David then concocted a new scheme in which he wrote a letter to his army general which instructed the general to position Uriah at the most fierce part of the battlefront. Then as the enemy attacked, the general was to tell all the Israelite soldiers around Uriah to withdraw, leaving Uriah undefended so that he could be killed by enemy soldiers. To make his plan even more diabolical, David gave this letter to Uriah to take to the general on his way back to the battlefield. Uriah again proved to be so loyal that he did not read the letter, though he was carrying his own execution order back to the general.  
  
 * After King David’s murderous scheme worked, David married Uriah’s wife, Bathsheba, who soon gave birth to David’s son without any human knowing that David had committed adultery and murder.  
  
-* However, God knew. God sent a prophet to confront and expose King David for his adultery and murder. King David knew that he was in the wrong, immediately confessed, and repented. Due to this repentance the prophet said that God had forgiven David and would not give David the death penalty.  
+* However, God knew. God sent a prophet to confront and expose King David for his adultery and murder. King David knew that he was in the wrong, immediately confessed, and repented. Due to this repentance, the prophet said that God had forgiven David and would not give David the death penalty.  
  
-* Desipte God forgiving David, the prophet said that the “Uriah’s blood was his hands” and as a natural consequence of David’s adultery and murder, death, bloodshed, and sexual abuse would haunt David’s family, begining with the death of the son that King David had fathered through the act of adultery.  
+* Despite God forgiving David, the prophet said that “Uriah’s blood was on his hands” and as a natural consequence of David’s adultery and murder, death, bloodshed, and sexual abuse would haunt David’s family, beginning with the death of the son that King David had fathered through the act of adultery.  
 
 {{< /details >}}
 
@@ -5556,19 +5567,19 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The blood of Uriah's on my hands 'cause I'm that killer who had Bathsheba" > Kendrick, Sherane and Dave
 
-* Kendrick has clearly reflected on the story of King David and how the lessons from King David's story might apply to Kendrick's own life. Most notably, just a few days before the release of Kendrick's major label debut album "good kid, m.A.A.d city", Kendrick released the track "The Heart Pt. 3" where Kendrick expressed how the pressure he faced as a rising hip hop star made him want pray and read "the Book of David".  
+* Kendrick has clearly reflected on the story of King David and how the lessons from King David's story might apply to Kendrick's own life. Most notably, just a few days before the release of Kendrick's major label debut album *good kid, m.A.A.d city*, Kendrick released the track "The Heart Pt. 3" where Kendrick expresses how the pressure he faced as a rising hip hop star made him want to pray and read "the Book of David".  
 
   * *'Cause when the whole world see you as 'Pac reincarnated  
   **Enough pressure to make you just open the Book of David  
   And pray to God that you make it** or live your life in The Matrix  
   'Cause falling off is a sickness—I heard that it's quite contagious*  
 
-* On "The Heart Pt. 3", Kendrick also mentioned the girl named Sherane who would go on to be a pivotal figure in the storyline of *good kid, m.A.A.d city*
+* On "The Heart Pt. 3", Kendrick also mentions a girl named Sherane who would go on to be a pivotal figure in the storyline of *good kid, m.A.A.d city*.  
 
   * **Thinking 'bout when Sherane tried to set me up  
   Cold game, full circle—they set up her.**  
 
-* On “Sherane a.k.a Master Splinter’s Daughter”, the first track on *good kid, m.A.A.d city*, tells the story of how a 17 year old Kendrick met a girl named Sherane at a house party. Kendrick was immediately overwhelmed by sexual desire for Sherane which caused him to ignore the potential danger that he could get into with Sherane’s male family members who had a history of gang banging. Kendrick thus proceeded to get Sherane's number, start a texting relationships and eventually drive to Sherane's house in hopes of having sex with her.  
+* On “Sherane a.k.a Master Splinter’s Daughter”, the first track on *good kid, m.A.A.d city*, Kendrick tells the story of how a 17-year-old Kendrick met a girl named Sherane at a house party. Kendrick was immediately overwhelmed by sexual desire for Sherane, which caused him to ignore the potential danger that he could get into with Sherane’s male family members who had a history of gang banging. Kendrick thus proceeded to get Sherane's number, start a texting relationship, and eventually drive to Sherane's house in hopes of having sex with her.  
 
   * ***I met her at this house party on El Segundo and Central  
   She had the credentials of strippers in Atlanta  
@@ -5619,7 +5630,7 @@ You'll get a better sense of the context and progression of thought if you go th
   I had a fifth in the trunk like Curtis Jackson for ransom  
   **I'm hopin' to get her loose like an Uncle Luke anthem***  
   
-* However, when Kedrick pulled up to Sherane’s house he was questioned and then beaten up by two young Black men in black hoodies.  
+* However, when Kendrick pulled up to Sherane’s house, he was questioned and then beaten up by two young Black men in black hoodies.  
 
   * *I'm two blocks away, two hundred and fifty feet  
   And six steps from where she stay, **she wavin' me 'cross the street  
@@ -5638,12 +5649,12 @@ You'll get a better sense of the context and progression of thought if you go th
   **"Fuck all this talkin'. As a matter fact, get out the van, homie. Get out the car 'fore I snatch you out that motherfucker, homie***  
   -“Poetic Justice”  
 
-* After getting beaten up Kendrick made it back to his homies. The homies then found out about Sherane had set Kendrick up to get stomped on, just like Kendrick mentioned on "The Heart Pt. 3".  
+* After getting beaten up, Kendrick made it back to his homies. The homies then found out that Sherane had set Kendrick up to get stomped on, just like Kendrick mentioned on "The Heart Pt. 3".  
 
   * **Thinking 'bout when Sherane tried to set me up  
   Cold game, full circle—they set up her.**  
 
-* The homies drove back to Sherane’s neighborhood looking to fire gunshots at the two guys in hoodies who beat Kendrick up. However, this plan for revenge went horribly wrong when the guys in hoodies shot back and killed Kendrick’s friend, Dave as heard during a skit at the end of "Swimming Pools (Drank) - Extended Version".
+* The homies drove back to Sherane’s neighborhood looking to fire gunshots at the two guys in hoodies who beat Kendrick up. However, this plan for revenge went horribly wrong when the guys in hoodies shot back and killed Kendrick’s friend, Dave, as heard during a skit at the end of "Swimming Pools (Drank) - Extended Version".  
 
   * *"**They stomped the homie out over a bitch? K-Dot, you good, blood?** Now we can drop, ye we can drop you back off"
      
@@ -5689,11 +5700,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "The blood of Uriah's on my hands 'cause I'm that killer who had Bathsheba" > Lecrae, a girlfriend and an unborn child
 
-* In contrast to Kendrick, Lecrae has never given any indication that he was significantly involved with any shooting or gang activity that could have led to someone’s death. We may then wonder, why Lecrae claims that he has “blood on his hands”.  
+* In contrast to Kendrick, Lecrae has never given any indication that he was significantly involved with any shooting or gang activity that could have led to someone’s death. We may then wonder why Lecrae claims that he has “blood on his hands”.  
  
-* Given that Lecrae’s confession about being a killer is tied to a confession about having sex with someone who he shouldn’t have been having sex with, it is likely that Lecrae is alluding to an earlier period of his life when he impregnated a woman who later had an abortion.  
+* Given that Lecrae’s confession about being a killer is tied to a confession about having sex with someone with whom he shouldn’t have been having sex, it is likely that Lecrae is alluding to an earlier period of his life when he impregnated a woman who later had an abortion.  
  
-* The choices that led to the abortion happened after Lecrae had already become a Christian and in theory accepted the idea that he shouldn’t have sex outside of marriage. However, like King David, Lecrae’s old habits and desires drove him to remain sexually active with a girlfriend. Like Bathsheba, the girlfriend at some point told Lecrae that she was pregnant.  
+* The choices that led to the abortion happened after Lecrae had already become a Christian and, in theory, accepted the idea that he shouldn’t have sex outside of marriage. However, like King David, Lecrae’s old habits and desires drove him to remain sexually active with a girlfriend. Like Bathsheba, the girlfriend at some point told Lecrae that she was pregnant.  
  
 * Due to the influence of the Christian community that he was part of, Lecrae had theoretically accepted the idea that he should not advocate for an abortion in this particular situation. The girlfriend was also apparently open to the idea of keeping the pregnancy. However, Lecrae was unwilling to take on the responsibility of becoming a father while risking his opportunities and image, so he helped sway the girl towards the decision of having an abortion.  
  
@@ -5729,7 +5740,7 @@ You'll get a better sense of the context and progression of thought if you go th
   So I dropped her off at that clinic  
   That day a part of us died***  
 
-* Since Lecrae has held to the conviction that an unborn child with a heartbeat is a life, when Lecrae looks in the mirror, he sees himself as a killer who took the life of somebody innocent. Rather than taking the life of a loyal neighbor like Uriah, Lecrae likely feels even more guilty about taking the life of what would have been his first born child.  
+* Since Lecrae has held to the conviction that an unborn child with a heartbeat is a life, when Lecrae looks in the mirror, he sees himself as a killer who took the life of somebody innocent. Rather than taking the life of a loyal neighbor like Uriah, Lecrae likely feels even more guilty about taking the life of what would have been his firstborn child.  
 
 {{< /details >}}
 
@@ -5741,14 +5752,14 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm that—" > Censored
 
-* We never actually hear what Lecrae intended to say after “I’m that—”. It seems like Lecrae is censoring his own lyrics similar to how Kendrick censored his own lyrics on the third verse of “Watch the Party Die” when Kendrick menitoned Lecrae by name as he rapped:  
+* We never actually hear what Lecrae intended to say after “I’m that—”. It seems like Lecrae is censoring his own lyrics, similar to how Kendrick censored his own lyrics on the third verse of “Watch the Party Die” when Kendrick mentioned Lecrae by name as he rapped:  
 
   * ***Sometimes I wonder what Lecrae would do**  
   Fuck these niggas up or show 'em just what prayer do?  
   I want to be empathetic, my heart like Dee-1  
   **But I will—***  
 
-* With Kendrick lines from "Watch the Party Die" we didn't arrive at much certainty about what exactly the uncensored line would have been. However, in the case of Lecrae’s censored line we do have some more potential clues. In particular, we can note that the bar before the censored line ends with Lecrae saying “I’m that killer” and the bar after the censored line ends with Lecrae saying “I’m that sinner”. If the censored line is following the pattern of those other two lines, we could expect that the censored part of the line should be a single two-syllable word which has a short “i” in the first syllable and an “er” sound ending the second consonant. Of all words that would fit these requirements the most likely choice would be the word “nigger”, which would mean that the uncensored line is “I’m that nigger”.  
+* With Kendrick's lines from "Watch the Party Die", we didn't arrive at much certainty about what exactly the uncensored line would have been. However, in the case of Lecrae’s censored line, we do have some more potential clues. In particular, we can note that the bar before the censored line ends with Lecrae saying “I’m that killer” and the bar after the censored line ends with Lecrae saying “I’m that sinner”. If the censored line is following the pattern of those other two lines, we could expect that the censored part of the line should be a single two-syllable word which has a short “i” in the first syllable and an “er” sound ending the second syllable. Of all words that would fit these requirements, the most likely choice would be the word “nigger”, which would mean that the uncensored line is “I’m that nigger”.  
  
 * Censoring the word “nigger” would make a lot of sense for Lecrae since Lecrae releases music in the Christian hip hop sub-genre where explicit songs with profanity or racial epithets are not socially acceptable to most of the core audience.  
 
@@ -5758,9 +5769,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm that—" > I'm that nigga
 
-* The phrase “I’m that nigga” is a very popular catchphrase within mainstream hip hop culture and has been used in the lyrics of a countless rappers to depict themselves as strong, proud, hyper-masculine individuals who can get money by any means necessary, intimidate their enemies and have sex with the most attactive women wherever they go.  
+* The phrase “I’m that nigga” is a very popular catchphrase within mainstream hip hop culture and has been used in the lyrics of countless rappers to depict themselves as strong, proud, hyper-masculine individuals who can get money by any means necessary, intimidate their enemies, and have sex with the most attractive women wherever they go.  
  
-* The popularity of the phrase “I’m that nigga” can likely be tracked back to the Soul singer Curtis Mayfield’s 1972 song “Pusherman” which plays during the opening scene of the 1972 black exploitation (aka blaxploitation) film Super Fly. Super Fly glorifies the life of a successful drug dealer who boasts of having lots of money and having sex with lots of women. Within the context of “Pusherman”, this drug dealer refers to himself by saying “I’m that nigga in the alley”.  
+* The popularity of the phrase “I’m that nigga” can likely be traced back to the soul singer Curtis Mayfield’s 1972 song “Pusherman,” which plays during the opening scene of the 1972 blaxploitation film *Super Fly*. *Super Fly* glorifies the life of a successful drug dealer who boasts of having lots of money and having sex with lots of women. Within the context of “Pusherman,” this drug dealer refers to himself by saying, “I’m that nigga in the alley.”  
 
   * *I'm your mama, I'm your daddy  
   **I'm that nigga in the alley**  
@@ -5794,7 +5805,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Ghetto prince is my thing  
   **Makin' love's how I swing***  
 
-* By seemingly alluding to the censored phrase “I’m that nigger”, Lecrae seems to again be examining himself in the mirror and seeing that his past attitudes towards women, sex and success at the expense of others makes him no different than the drug-dealing protagonist of Super Fly or the dealer who sold Lecrae’s cousin fentanyl.  
+* By seemingly alluding to the censored phrase “I’m that nigger,” Lecrae once again examines himself in the mirror and sees that his past attitudes toward women, sex, and success at the expense of others make him no different from the drug-dealing protagonist of *Super Fly* or the dealer who sold Lecrae’s cousin fentanyl.  
 
 {{< /details >}}
 
@@ -5802,7 +5813,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I'm that—" > Uncensored Christian hip hop
 
-* While using prophanity or racial epithets is not socially acceptable to most of Christian hip hop's core audience, one particularly notable and early example of a Christian hip hop artist pushing back against audience excpectations can be found on Sho Baraka’s 2013 track “Chapter 9: Jim Crow” whose hook prominently features the word "nigga".
+* While using profanity or racial epithets is not socially acceptable to most of Christian hip hop’s core audience, one particularly notable and early example of a Christian hip hop artist pushing back against audience expectations can be found on Sho Baraka’s 2013 track “Chapter 9: Jim Crow,” whose hook prominently features the word "nigga."  
   
   * *I feel I'm trapped in a crazy place  
   Asking the Lord for amazing grace  
@@ -5812,7 +5823,7 @@ You'll get a better sense of the context and progression of thought if you go th
   Yeah, where niggas be wylin  
   Yeah, and color is violence***  
     
-* “Chapter 9: Jim Crow” delivers a stinging criticism of the legacy of Jim Crow segregation laws, White supremacy and the exploitation of Black people in America, though as expected, the track was very controversial within the Christian hip hop community.  
+* “Chapter 9: Jim Crow” delivers a stinging criticism of the legacy of Jim Crow segregation laws, white supremacy, and the exploitation of Black people in America, though as expected, the track was very controversial within the Christian hip hop community.  
 
   * *Yeah, I am the invisible man though I have a soul I am from an invisible land  
   **They gave me a slave pen for my freedom of speech**  
@@ -5874,31 +5885,31 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "who let Eve taste the fruit of death" > Adam and Eve
 
-* Following the censored word, Lecrae’s comparative self-examination goes back to the beginning of time as he seems to be saying.  
+* Following the censored word, Lecrae’s comparative self-examination goes back to the beginning of time as he seems to be saying...  
 
   * *I’m that nigger who let Eve taste the forbidden fruit*
 
-* Here Lecrae is comparing himself to Adam, the prototypical first man from the first narrative section in the first book of the Bible.  
+* Here, Lecrae is comparing himself to Adam, the prototypical first man from the first narrative section in the first book of the Bible.  
      
-  * In this first biblical narrative section, God creates humanity and places humanity in a paradise garden in a delightful area called “eden”. God provides humanity with an abundance of delicious fruit trees to eat.  
+  * In this first biblical narrative section, God creates humanity and places humanity in a paradise garden in a delightful area called "Eden". God provides humanity with an abundance of delicious fruit trees to eat.  
      
-  * God splits humanity into a male and a female. The male was later referred to as “Adam” which means “human” while the female was referred to as “Eve” which means “life”.  
+  * God splits humanity into a male and a female. The male was later referred to as “Adam,” which means “human,” while the female was referred to as “Eve,” which means “life.”  
      
-  * God tells Adam and Eve that they can live forever in the delightful garden if they follow God’s one commandment to not eat the fruit from one particular tree. However, if anyone eats the fruit from this particular tree that person will die. This “forbidden” tree was is the Tree of the Knowledge of Good and Evil, and represented the choice to redefine what actions should be considered good and bad without having to listen to God’s instructions.  
+  * God tells Adam and Eve that they can live forever in the delightful garden if they follow God’s one commandment: to not eat the fruit from one particular tree. However, if anyone eats the fruit from this particular tree, that person will die. This “forbidden” tree is the *Tree of the Knowledge of Good and Evil* and represents the choice to redefine what actions should be considered good and bad without having to listen to God’s instructions.  
      
-  * However, one day a spiritual figure speaks to Eve in the form of a snake and suggests that she should eat the fruit from the Tree of the Knowledge of Good and Evil. Initially, Eve restrains herself by recounting God’s instruction that she will die if she eats the fruit. However, the snake convinces Eve that God had not told her the truth and is holding her back from gaining great wisdom and becoming like God.  
+  * However, one day a spiritual figure speaks to Eve in the form of a snake and suggests that she should eat the fruit from the *Tree of the Knowledge of Good and Evil*. Initially, Eve restrains herself by recounting God’s instruction that she will die if she eats the fruit. However, the snake convinces Eve that God had not told her the truth and is holding her back from gaining great wisdom and becoming like God.  
      
-  * Eve then eats the forbidden fruit and also gives some of the fruit to Adam who also eats the fruit despite knowing God’s instructions. Immediately, the two of them realize that they are naked and vulnerable to be taken advantage of by the other. Adam and Eve then make clothes to cover their vulnerability and shame.  
+  * Eve then eats the forbidden fruit and also gives some of the fruit to Adam, who also eats the fruit despite knowing God’s instructions. Immediately, the two of them realize that they are naked and vulnerable to being taken advantage of by the other. Adam and Eve then make clothes to cover their vulnerability and shame.  
      
-  * When God comes to confront Adam and Eve about the decision to eat the forbidden fruit, both of them try to shift blame to the other or to the snake or to God rather than taking responsibility for their own actions.  
+  * When God comes to confront Adam and Eve about the decision to eat the forbidden fruit, both of them try to shift blame—to each other, to the snake, or even to God—rather than taking responsibility for their own actions.  
      
-  * God then forces Adam and Eve into exile outside the delightful paradise garden where they will eventually die without access to the life-giving fruit that God had actually permitted them to eat in the garden.  
+  * God then forces Adam and Eve into exile outside the delightful paradise garden, where they will eventually die without access to the life-giving fruit that God had actually permitted them to eat in the garden.  
 
-* Similar to Adam, Lecrae knew God’s instructions which had forbidden him from having sex outside of lifelong commitment to his partner but due to his own desires and the snake-like influence of peers, music, movies, tv shows, and drugs Lecrae had disregarded God’s instructions thinking that he could decide for himself what sexual behavior should be considered good and bad. Lecrae's decision to disregard God’s instruction ultimately led to the death of his relationship with his girlfriend and the end of what would have been Lecrae’s first born child.  
+* Similar to Adam, Lecrae knew God’s instructions, which forbade him from having sex outside of a lifelong commitment to his partner, but due to his own desires and the snake-like influence of peers, music, movies, TV shows, and drugs, Lecrae disregarded God’s instructions, thinking that he could decide for himself what sexual behavior should be considered good and bad. Lecrae's decision to disregard God’s instruction ultimately led to the death of his relationship with his girlfriend and the end of what would have been Lecrae’s firstborn child.  
  
-* However, now as Lecrae examines himself in the mirror, he takes responsibility for his own actions including his actions that led to the abortion. Lecrae even takes responsibility for some of they choices that his girlfriend might now regret as Lecrae says that he was the one who “let Eve taste the fruit of death.” When applied to Lecrae’s own situation with the abortion, Lecrae seems to be acknowledging that he failed in his responsibility of preventing his girlfriend from facing the tough decision to get an abortion.  
+* However, now, as Lecrae examines himself in the mirror, he takes responsibility for his own actions, including those that led to the abortion. Lecrae even takes responsibility for some of the choices that his girlfriend might now regret, as he says that he was the one who “let Eve taste the fruit of death.” When applied to Lecrae’s own situation with the abortion, Lecrae seems to be acknowledging that he failed in his responsibility to prevent his girlfriend from facing the tough decision of getting an abortion.  
 
-* First and foremost, Lecrae seems to be acknowledging that played a significant role in getting his girlfriend to have sex with him. Moreover, as Lecrae mentioned in “Good, Bad, Ugly”, his girlfriend had such strong feelings for him that she probably would have kept the baby if Lecrae had been willing and supportive. However, from Lecrae’s perspective, his selfish focus on his own pleasure and success placed his girlfriend in a position where having an abortion seemed to be the wisest choice.  
+* First and foremost, Lecrae seems to be acknowledging that he played a significant role in getting his girlfriend to have sex with him. Moreover, as Lecrae mentioned in “Good, Bad, Ugly,” his girlfriend had such strong feelings for him that she probably would have kept the baby if Lecrae had been willing and supportive. However, from Lecrae’s perspective, his selfish focus on his own pleasure and success placed his girlfriend in a position where having an abortion seemed to be the wisest choice.  
 
   * *And **she love and trust me so much  
   That whatever I say she'll probably oblige  
@@ -5930,7 +5941,7 @@ You'll get a better sense of the context and progression of thought if you go th
     to love mercy, and to walk humbly with your God**?*  
     -Micah 6:8  
 
-* Based on the prophet Micah’s summary of God’s directions, humans sin when they act in a way that is unjust, unmerciful or pridefully unconcerned with others. Based on this criteria, Lecrae would likely see his past actions as truly sinful not necessarily because it broke some clearly stated rule about sex or abortions, but because he clearly acted in a way that focused on exalting his own pleasure and pride regardless of whether such actions led to outcomes that were unjust or unmerciful for his girlfriend or for his potential first born child.  
+* Based on the prophet Micah’s summary of God’s directions, humans sin when they act in a way that is unjust, unmerciful or pridefully unconcerned with others. Based on this criteria, Lecrae would likely see his past actions as truly sinful not necessarily because it broke some clearly stated rule about sex or abortions, but because he clearly acted in a way that focused on exalting his own pleasure and pride regardless of whether such actions led to outcomes that were unjust or unmerciful for his girlfriend or for his potential firstborn child.  
 
 {{< /details >}}
 
@@ -5942,18 +5953,18 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I deserve death along with these liars and hypocrites" > Deserve death
 
-* From a modern perspective, it sounds extreme and unreasonable for Lecrae to say that he deserves death for having sex outside of a committed relationship whether or not this led to an abortion. However, within the context of this verse these lines should be understood as part of Lecrae comparing himself to King David and Adam.  
+* From a modern perspective, it sounds extreme and unreasonable for Lecrae to say that he deserves death for having sex outside of a committed relationship, whether or not this led to an abortion. However, within the context of this verse, these lines should be understood as part of Lecrae comparing himself to King David and Adam.  
  
 * Recall that when God sent the prophet Nathan to confront King David for murdering his neighbor after committing adultery with his neighbor’s wife, God acknowledged that David deserved to die for his unjust actions. However, because David repented, God forgave David and did not condemn David to death.  
  
-* Moreover, going back to the beginning of the Bible, God told Adam that if he ate the fruit from the Tree of the Knowledge of Good and Evil, he would die which is what eventually happened after Adam sinned by disobeying God’s commandment.  
+* Moreover, going back to the beginning of the Bible, God told Adam that if he ate the fruit from the Tree of the Knowledge of Good and Evil, he would die, which is what eventually happened after Adam sinned by disobeying God’s commandment.  
  
-* Later in the New Testament section of the Bible, in his letter to the Church in Rome, St. Paul reflects on how the sin of breaking God’s law leads to death for Adam who represents all of humanity.  
+* Later in the New Testament section of the Bible, in his letter to the Church in Rome, St. Paul reflects on how the sin of breaking God’s law leads to death for Adam, who represents all of humanity.  
 
   * *Therefore as **sin entered into the world through one human, and death through sin; so death passed to all humans, because all sinned**...**death reigned from Adam** until Moses, **even over those whose sins were not like the violation of trust from Adam, who is a prototype** of him who was to come*  
   -Romans 5:12-14  
 
-* This idea of sin as a failure to act with justice, love mercy and be humble which ultimately leads to the spread of death to all humans is an idea that Kendrick has explored, most notably in the intro to the track “PRIDE.”.  
+* This idea of sin as a failure to act with justice, love mercy, and be humble, which ultimately leads to the spread of death to all humans, is an idea that Kendrick has explored, most notably in the intro to the track “PRIDE.”.  
 
   * *Love's gonna get you killed  
   But **pride’s gonna be the death of you and you and me  
@@ -5961,7 +5972,7 @@ You'll get a better sense of the context and progression of thought if you go th
   And you and you and you and me  
   And you and you and you and me and—***  
 
-* If Lecrae’s past action are part of the problem that leads to the cycle of sin and death, it follows that Lecrae is thus deserving of death.  
+* If Lecrae’s past actions are part of the problem that leads to the cycle of sin and death, it follows that Lecrae is thus deserving of death.  
 
 {{< /details >}}
 
@@ -5969,7 +5980,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I deserve death along with these liars and hypocrites" > Liars and hypocrites
 
-* Lecrae acknowledge that his past actions have shown him to be a liar and a hypocrite.   
+* Lecrae acknowledges that his past actions have shown him to be a liar and a hypocrite.   
  
 * If Lecrae is a liar, the natural conclusion is that he deserves to die along with the other targets of Kendrick's execution orders on "Watch the Party Die".  
 
@@ -5981,23 +5992,23 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * It is also notable that throughout the battle with Drake, Kendrick repeatedly accused Drake of being a liar, as we discussed in the [analysis](#street-niggas-and-the-corporate-guys-the-rappers-that-report-the-lies--rappers-that-report-the-lies) of the line "the rappers that report the lies".  
  
-* By acknowleding himself as a "liar and hypocrite", Lecrae seems to be saying that he is no better than those who have "burned their own conscience" and negatively influence others as St. Paul discussed in his first letter to Timothy and Lecrae alluded to earlier when he said "They hearts grow colder, they love to do evil, they burn they conscience."  
+* By acknowledging himself as a "liar and hypocrite", Lecrae seems to be saying that he is no better than those who have "burned their own conscience" and negatively influenced others, as St. Paul discussed in his first letter to Timothy and Lecrae alluded to earlier when he said, "They hearts grow colder, they love to do evil, they burn they conscience."  
 
   * *The Spirit explicitly says that in later times some will fall away from the faith, paying attention to deceitful spirits and teachings of demons, under the influence of **liars and hypocrites** who have burned their own conscience as with a branding iron.*  
   -1 Timothy 4:1-2  
 
 * The word "hypocrite" entered into the English language through its use in translations of the original Greek New Testament Gospel accounts. In Greek, the word "hypokritēs" originally referred to a stage actor who wears a mask and assumes a role in a play.  
  
-* In the Gospel accounts, Jesus uses the word "hypocrite" as a pejorative criticism of his people's religious leaders who peformed religious practices such as prayer, fasting and charity primiarly so that they could be seen and honored by other people like an actor looking for applause from an audience. Hence, their religious practices was not rooted in actual love for God or love for other people. Instead, their religious practices were rooted in self-centered focus on their own status, power and fame.  
+* In the Gospel accounts, Jesus uses the word "hypocrite" as a pejorative criticism of his people's religious leaders who performed religious practices such as prayer, fasting, and charity primarily so that they could be seen and honored by other people like an actor looking for applause from an audience. Hence, their religious practices were not rooted in actual love for God or love for other people. Instead, their religious practices were rooted in self-centered focus on their own status, power, and fame.  
  
 * Lecrae seems to recognize that he was clearly being a "hypocrite" or "stage actor" when he publicly claimed to be a Christian who follows God's instructions while privately disobeying God's instructions and leading his girlfriend to have an abortion to selfishly preserve his own dreams of becoming a famous rapper.  
  
-* It is notable that in the first few lines of "euphoria", Kendrick's first battle track that directly aimed at Drake, Kendrick referred to Drake as an "actor"
+* It is notable that in the first few lines of "euphoria", Kendrick's first battle track that directly aimed at Drake, Kendrick referred to Drake as an "actor".  
 
   * *Them super powers gettin' neutralized, I can only watch in silence  
   The **famous actor** we once knew is lookin' paranoid and now is spiralin'*  
 
-* Also, on the battle track "meet the grahams", Kendrick implores Drake to take off the mask that he has been using to play his staged role as he repeated lied everything that was important.  
+* Also, on the battle track "meet the grahams", Kendrick implores Drake to take off the mask that he has been using to play his staged role as he repeatedly lied about everything that was important.  
 
   * ***Take that mask off**, I wanna see what's under them achievements  
   Why believe you? You never gave us nothin' to believe in  
@@ -6009,7 +6020,7 @@ You'll get a better sense of the context and progression of thought if you go th
   **You lied** about them other kids that's out there hopin' that you come  
   **You lied** about the only artist that can offer you some help*  
 
-* However, back in 2015 when Drake and rapper Meek Mill released diss tracks that began over allegations that Drake had used ghostwriters, Kendrick also released the *To Pimp a Butterfly* track "Black the Berry", where Kendrick acknowledge that he was actually the biggest hypocrite of the year when he spoke about bringing peace and unity within the Black community even though he was responsible for killing another young Black man.  
+* However, back in 2015, when Drake and rapper Meek Mill released diss tracks that began over allegations that Drake had used ghostwriters, Kendrick also released the *To Pimp a Butterfly* track "Blacker the Berry", where Kendrick acknowledged that he was actually the biggest hypocrite of the year when he spoke about bringing peace and unity within the Black community even though he was responsible for killing another young Black man.  
 
   * ***I'm the biggest hypocrite of 2015**  
   Once I finish this, witnesses will convey just what I mean  
@@ -6031,7 +6042,7 @@ You'll get a better sense of the context and progression of thought if you go th
   When gang-banging make me kill a nigga blacker than me?  
   Hypocrite!***  
 
-* Now with Kendrick's own battle against Drake in 2024, Kendrick seems to have lost the spiritual clarity that he had back in 2015 when he recognized that he might be the biggest hypocrite.  
+* Now, with Kendrick's own battle against Drake in 2024, Kendrick seems to have lost the spiritual clarity that he had back in 2015 when he recognized that he might be the biggest hypocrite.  
 
 {{< /details >}}
 
@@ -6065,11 +6076,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * In addition to the "fake tough rappers", Lecrae also calls out "fake deep gurus".  
  
-* In contemporary English, the word “guru” is often used to refer to an insightful and influential teacher who has made a career or commercial enterprise out of giving practical advice about how people should think and act in particular environments or roles. These include management gurus, marketing gurus, tech guru, entrepreneurship guru, health gurus, parenting gurus, lifestyle gurus or self-help gurus.  
+* In contemporary English, the word “guru” is often used to refer to an insightful and influential teacher who has made a career or commercial enterprise out of giving practical advice about how people should think and act in particular environments or roles. These include management gurus, marketing gurus, tech gurus, entrepreneurship gurus, health gurus, parenting gurus, lifestyle gurus, or self-help gurus.  
  
-* At the same time, it's important to note that the word guru comes from Hinduism in India where it was originally used to refer to a respected spiritual teacher.  
+* At the same time, it's important to note that the word *guru* comes from Hinduism in India, where it was originally used to refer to a respected spiritual teacher.  
  
-* While it is possible that Lecrae is criticizing a wide variety of commercialized gurus, the description of gurus who are “pushin’ voodoo” and “Tellin' folks that my God ain't real” suggests that Lecrae is very specifically talking about “fake deep” spiritual gurus.  
+* While it is possible that Lecrae is criticizing a wide variety of commercialized gurus, the description of gurus who are “pushin’ voodoo” and “tellin' folks that my God ain't real” suggests that Lecrae is very specifically talking about “fake deep” spiritual gurus.  
 
 {{< /details >}}
 
@@ -6077,37 +6088,37 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Fake deep gurus pushin' voodoo on the people" > Pushin' voodoo on the people
 
-* The term "voodoo" refers to a set spiritual beliefs and practices that mix indigenous forms of West African spirituality with certain aspects of Roman Catholic Christianity. Voodoo develop after enslaved Africans were brought to the Haiti, Louisiana and other French-speaking areas of the Western Hemisphere.  
+* The term "voodoo" refers to a set of spiritual beliefs and practices that mix indigenous forms of West African spirituality with certain aspects of Roman Catholic Christianity. Voodoo developed after enslaved Africans were brought to Haiti, Louisiana, and other French-speaking areas of the Western Hemisphere.  
  
-* While voodoo encorporates aspects of Roman Catholic Christianity, most traditional branches of Christianity have consistently rejected voodoo as satanic or at the very least incompatible with a traditional understanding of Christian belief and practice.  
+* While voodoo incorporates aspects of Roman Catholic Christianity, most traditional branches of Christianity have consistently rejected voodoo as satanic or, at the very least, incompatible with a traditional understanding of Christian belief and practice.  
  
-* As a Christian rapper and one of the most influential Black voices among Millennial and Gen Z Chrisitans, Lecrae’s antagonism towards fake deep spiritual gurus is likely due to the fact that an increasing number of Millenials and Gen Z Americans are drifting far away from churches, Christianity, and “organized religion” while still retain a strong sense of personal spirituality.  
+* As a Christian rapper and one of the most influential Black voices among Millennial and Gen Z Christians, Lecrae’s antagonism toward fake deep spiritual gurus is likely due to the fact that an increasing number of Millennials and Gen Z Americans are drifting far away from churches, Christianity, and “organized religion” while still retaining a strong sense of personal spirituality.  
  
 * This outlook is often referred to as being “spiritual but not religious” and is seen as a way to pick and choose the spiritual practices that a person sees as most appealing or beneficial while being free to reject rules, structure, authority, or beliefs that do not align with a modern, liberal, secular perspective.  
  
-* Individuals who align themselves with the “spiritual but not religious” perspective often are attracted by various Eastern spiritual practices from Hinduism and Buddhism such as meditation, chanting, astrology, burning incense, crystal healing, herbal medicine and certain forms of yoga.  
+* Individuals who align themselves with the “spiritual but not religious” perspective are often attracted to various Eastern spiritual practices from Hinduism and Buddhism such as meditation, chanting, astrology, burning incense, crystal healing, herbal medicine, and certain forms of yoga.  
  
-* These practices were popularized in America after the Counterculture movements of the 1960s which largely rejected existing Western values and beliefs associated with Christianity and paved the way for “New Age” spirituality which adopted the aforementioned Eastern spiritual practices from Hinduism and Buddhism and combined them with some reinterpretations of Christianity and a modern, liberal, secular perspective.  
+* These practices were popularized in America after the counterculture movements of the 1960s, which largely rejected existing Western values and beliefs associated with Christianity and paved the way for “New Age” spirituality. This form of spirituality adopted the aforementioned Eastern spiritual practices from Hinduism and Buddhism and combined them with some reinterpretations of Christianity and a modern, liberal, secular perspective.  
  
 * The growth of the New Age movement in 1960s and 1970s America was aided by several spiritual gurus who came from India or other places in Asia and taught various practices and ways of thought to those who were interested in what would come to be known as New Age spirituality.  
  
-* In order to authenticity transmit ideas and perspectives from Hinduism, Buddhism and other Eastern spiritual tradition to people who are raised in a Western culture that was deeply influenced by Christianity, gurus often would often challenge or de-emphasize certain traditional Christian beliefs such as the idea that there is a single God who was should be worshiped.  
+* In order to authentically transmit ideas and perspectives from Hinduism, Buddhism, and other Eastern spiritual traditions to people who were raised in a Western culture deeply influenced by Christianity, these gurus would often challenge or de-emphasize certain traditional Christian beliefs, such as the idea that there is a single God who should be worshiped.  
  
-* It is notable that those who adopted New Age spirituality in the 1960s and 1970s were primarily White Americans. At that time, the vast majority of Black Americans identified as Christian with less than ten percent of Black Americans identifying as not religious, Muslim or some other non-Christian religion.  
+* It is notable that those who adopted New Age spirituality in the 1960s and 1970s were primarily White Americans. At that time, the vast majority of Black Americans identified as Christian, with less than ten percent identifying as non-religious, Muslim, or following some other non-Christian religion.  
  
-* However, as Millennial and Gen Z individuals became teenagers and adults in the beginning in 2000s a significant number of young Black Americans began to identify themselves as spiritual but not religious including many who were raised by parents who identified as Christian.  
+* However, as Millennial and Gen Z individuals became teenagers and adults in the early 2000s, a significant number of young Black Americans began to identify themselves as spiritual but not religious, including many who were raised by parents who identified as Christian.  
  
 * Along with this increase in individuals who identified as spiritual but not religious, an increasing number of Black Americans began to adopt various Eastern spiritual practices and beliefs that had been popularized by the New Age movement and spiritual gurus in the 1960s and 1970s.  
  
-* Additionally, by the 2010s a growing number of African Americans began to incorporate various practices from indigenous African spiritual traditions, most notably practices from Ifa, a spiritual tradition from the Yoruba region in Nigeria, Benin and Togo.  
+* Additionally, by the 2010s, a growing number of African Americans began to incorporate various practices from indigenous African spiritual traditions, most notably practices from Ifa, a spiritual tradition from the Yoruba region in Nigeria, Benin, and Togo.  
  
-* Due to the displacement of the transatlantic slave trade, enslaved Africans brought Ifa and other indigenous spiritual traditions to the Western Hemisphere where they were often mixed with certain aspects of Christianity to form new spiritual traditions such as Santeria in Cuba, Candomle in Brazil, Vodou in Haiti and Voodoo in Louisiana.  
+* Due to the displacement of the transatlantic slave trade, enslaved Africans brought Ifa and other indigenous spiritual traditions to the Western Hemisphere, where they were often mixed with certain aspects of Christianity to form new spiritual traditions such as Santeria in Cuba, Candomblé in Brazil, Vodou in Haiti, and Voodoo in Louisiana.  
  
-* All of these traditions include many core practices from Ifa and other indigenous spiritual traditions such as the worship of numerous deities (originally known as Orisha), sacrificial offerings, divination to communicate with deities or predict the future, ancestor veneration, and rituals to induce a worshiper to be possessed by spirits.  
+* All of these traditions include many core practices from Ifa such as the worship of numerous deities (originally known as Orisha), sacrificial offerings, divination to communicate with deities or predict the future, ancestor veneration, and rituals to induce a worshiper to be possessed by spirits.  
  
-* The increased interest and adoption of Ifa inspired practices can be seen in many hip hop and R&B projects released in the decade prior to the release of "Watch the Party Die" and "Die for the Party".  
+* The increased interest and adoption of Ifa-inspired practices can be seen in many hip hop and R&B projects released in the decade prior to the release of "Watch the Party Die" and "Die for the Party."  
    
-  * “High & Holy” the final track on Killer Mike’s Grammy-winning 2023 album, *MICHAEL*, opens with Yoruba speaker praying to Ifa’s Orisha deities and the bones of ancestors.  
+  * “High & Holy”, the final track on Killer Mike’s Grammy-winning 2023 album, *MICHAEL*, opens with a Yoruba speaker praying to Ifa’s Orisha deities and the bones of ancestors. 
 
     * *Je ki owo...wa...  
     Je ki alafia fun wa  
@@ -6115,7 +6126,7 @@ You'll get a better sense of the context and progression of thought if you go th
     Je ki **Olodumare ati orisha ati gbobo egun**  
     Aribo Baba wa, **Olodumare** bless the west*  
          
-  * Jay-Z has made numerous references to spiritual connections with ancestors and Orisha deities from Ifa, Santeria and Voodoo.  
+  * Jay-Z has made numerous references to spiritual connections with ancestors and Orisha deities from Ifa, Santeria, and Voodoo.  
 
     * ***My saint's Changó, light a candle  
     El Gran Santo on the mantle**  
@@ -6136,15 +6147,15 @@ You'll get a better sense of the context and progression of thought if you go th
     I can't tell Hattie White **that blue-eyed version is make believe stuff***  
     -“The Neverending Story”  
 
-  * Still the most visible examples of Ifa’s influence on African American popular culture can be seen in Beyoncé’s films for *Lemonade* and *Black Is King*.  
+  * Still, the most visible examples of Ifa’s influence on African American popular culture can be seen in Beyoncé’s films for *Lemonade* and *Black Is King*.  
      
-  * On both Lemonade and Black Is King Beyoncé surrounds herself with water and wears a flowing yellow dress that seems to be a nod to traditional depictions of the Ifa sex, fertility and river deity, Oshun.  
+  * On both *Lemonade* and *Black Is King*, Beyoncé surrounds herself with water and wears a flowing yellow dress that seems to be a nod to traditional depictions of the Ifa sex, fertility, and river deity, *Oshun*.  
      
-  * On Black is King Beyoncé also wears outfits that seem to be inspired by other Ifa deities including, Obatala, Yemoja Oba and Oshumare.  
+  * On *Black Is King*, Beyoncé also wears outfits that seem to be inspired by other Ifa deities including Obatala, Yemoja Oba, and Oshumare.  
      
-  * One scene in Black Is King also shows Beyoncé looking through Robert Farris Thompson’s illustrated book Black Gods and King, which contains numerous pictures and descriptions of Yoruba artwork that often depicts Ifa deities,  
+  * One scene in *Black Is King* also shows Beyoncé looking through Robert Farris Thompson’s illustrated book *Black Gods and Kings*, which contains numerous pictures and descriptions of Yoruba artwork that often depicts Ifa deities.  
      
-  * The most direct acknowledgments of Ifa are found on “Black Parade” the song that plays during the film credits and at the end of the album. On “Black Parade”, Beyoncé makes numerous references to Ifa deities, attending Ifa ceremonies, praying to ancestors and adopting New Age practices.  
+  * The most direct acknowledgments of Ifa are found on *Black Parade*, the song that plays during the film credits and at the end of the album. On “Black Parade,” Beyoncé makes numerous references to Ifa deities, attending Ifa ceremonies, praying to ancestors, and adopting New Age practices.  
 
     * *Growin', growin' like a Baobab tree  
     Of life on fertile ground, **my ancestors put me on game**  
@@ -6159,11 +6170,13 @@ You'll get a better sense of the context and progression of thought if you go th
     **Waist beads from Yoruba** (Woo)  
     ...  
     Children' runnin' through the house to my art, all black  
-    **Ancestors on the wall, let the ghosts chit-chat**  
-    **Hold my hands, we gon' pray together  
+    **Ancestors on the wall, let the ghosts chit-chat  
+    Hold my hands, we gon' pray together  
     Lay down, face down in the gravel  
     Woo, wearin' all attire white to the funeral**  
     Black love, we gon' stay together*  
+
+* Given this cultural backdrop, Lecrae likely sees voodoo as detrimental to his community because voodoo might serve as an alternative religion for Black Americans who are considering abandoning their faith in Jesus, and thus abandoning the ethical and moral teachings that Lecrae believes are essential for personal and communal well-being.  
 
 {{< /details >}}
 
@@ -6179,7 +6192,7 @@ You'll get a better sense of the context and progression of thought if you go th
  
 * The fact that Western cultures tend to depict Jesus as a White European further emphasizes the perception that Christians worship “the White man’s god”.  
  
-* With the line “tellin’ folks that my God ain’t real” Lecrae pushes back against these seemingly racially charged accusations against Chrisitanity by saying “my God” which emphasizes his deeply personal connection to God that is not based on White people, American identity or Western culture.  
+* With the line “tellin’ folks that my God ain’t real” Lecrae pushes back against these seemingly racially charged accusations against Christianity by saying “my God” which emphasizes his deeply personal connection to God that is not based on White people, American identity or Western culture.  
  
 * It is notable that over the course of the previous seven years, Lecrae had rapped about his journey and struggles with reconciling his Black identity with negative racial experiences among Christians that caused Lecrae to doubt whether God is real.  
  
@@ -6219,7 +6232,7 @@ You'll get a better sense of the context and progression of thought if you go th
   I started slipping in the darkness, I'm feeling heartless  
   Christians got me traumatized, I don't know who God is***  
 
-* However, after a struggle with depression led him to the rock bottom, Lecrae eventually came to realize Americans living in Western society were often missing the context of the biblical Gospel accounts which might cause them to act in ways that do not reflect Jesus’s teaching and are contrary to God’s love. Lecreae discussed this breakthrough on “Can’t Stop Me Now (Destination)” and “Deconstruction”.  
+* However, after a struggle with depression led him to the rock bottom, Lecrae eventually came to realize Americans living in Western society were often missing the context of the biblical Gospel accounts which might cause them to act in ways that do not reflect Jesus’s teaching and are contrary to God’s love. Lecrae discussed this breakthrough on “Can’t Stop Me Now (Destination)” and “Deconstruction”.  
 
   * *And recently **I found a peace to be  
   Everything that I was meant to be  
@@ -6255,9 +6268,9 @@ You'll get a better sense of the context and progression of thought if you go th
   **My deconstruction ended, reconstruction is beginning***  
   -“Deconstruction”  
 
-* Having personal gone through his own mental and spiritual crisis of faith, Lecrae now seems to now have a deeper, more personal connection with his God.  
+* Having personally gone through his own mental and spiritual crisis of faith, Lecrae now seems to now have a deeper, more personal connection with his God.  
  
-* Lecrae is also particularly critical of “fake deep gurus” whose shallow teachings could lead other Black Christians to unnecessarily through the kind of mental and spiritual crisis that Lecrae went through.  
+* Lecrae is also particularly critical of “fake deep gurus” whose shallow teachings could lead other Black Christians to unnecessarily go through the kind of mental and spiritual crisis that Lecrae went through.  
 
 {{< /details >}}
 
@@ -6291,7 +6304,7 @@ You'll get a better sense of the context and progression of thought if you go th
   *There was war in the heavens. Michael and his angels made war on the dragon. The dragon and his angels made war. They didn’t prevail. No place was found for them any more in heaven. **The great dragon was thrown down, the old serpent, he who is called the devil and Satan, the deceiver of the whole world.** He was thrown down to the earth, and his angels were thrown down with him.*  
   -Revelation 12:7-9  
 
-* Hence, by saying “that’s real evil” Lecrae seems to be asserting that the “fake deep gurus” are doing the work of the evil one by trying to snatch away people’s belief in God’s word and using shrewd but deceptive argument to deconstruct Christian faith.  
+* Hence, by saying “that’s real evil” Lecrae seems to be asserting that the “fake deep gurus” are doing the work of the evil one by trying to snatch away people’s belief in God’s word and using shrewd but deceptive arguments to deconstruct Christian faith.  
 
 {{< /details >}}
 
@@ -6310,11 +6323,11 @@ You'll get a better sense of the context and progression of thought if you go th
   ...  
   A nigga wonder what Lecrae would do***  
 
-* Lecrae now seems to be posing the question to himself. Lecrae thus shows a notable amount of self awareness and humility by recognizing that none of us really know what we would do if we were placed in the exact same situation as another person. This is essentially the same point Lecrae made early when he reflected on Kendrick and said “I can’t imagine his position”.  
+* Lecrae now seems to be posing the question to himself. Lecrae thus shows a notable amount of self-awareness and humility by recognizing that none of us really know what we would do if we were placed in the exact same situation as another person. This is essentially the same point Lecrae made earlier when he reflected on Kendrick and said “I can’t imagine his position”.  
  
-* After looking in the mirror and confessing his own hypocrisy and injustice against the innocent, Lecrae seems keenly aware of the fact that he does not always act in a way that is consistent with his words, his beliefs or with Jesus’s teaching.  
+* After looking in the mirror and confessing his own hypocrisy and injustice against the innocent, Lecrae seems keenly aware of the fact that he does not always act in a way that is consistent with his words, his beliefs, or with Jesus’s teaching.  
  
-* Lecrae’s humility and awareness of his human limitations leads him to simply hope that he would do what he thinks would the right thing to do namely to “seek the hand of God” and tell other people that Lecrae is himself incapable of always doing the right thing.  
+* Lecrae’s humility and awareness of his human limitations lead him to simply hope that he would do what he thinks is the right thing to do, namely to “seek the hand of God” and tell other people that Lecrae is himself incapable of always doing the right thing.  
 
 {{< /details >}}
 
@@ -6330,9 +6343,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * While Lecrae cannot be sure what he would actually do if he was placed in Kendrick's position, he hopes that he would "seek the hand of God".  
  
-* In biblical literature, God’s “hand” symbolizes God’s ability to help, rescue and save his people from their enemies and any forces of evil who would try to enslave them.  
+* In biblical literature, God’s “hand” symbolizes God’s ability to help, rescue, and save his people from their enemies and any forces of evil who would try to enslave them.  
  
-* With the Bible, this literary and symbolic reference to God’s hand is first used in a poetic song that the prophet Moses sang after God rescued the Israelite people out of slavery in Egypt, parted a sea for them to pass through to safety while drowning the Egyptian who were trying to re-enslave them.  
+* Within the Bible, this literary and symbolic reference to God’s hand is first used in a poetic song that the prophet Moses sang after God rescued the Israelite people out of slavery in Egypt, parted a sea for them to pass through to safety while drowning the Egyptians who were trying to re-enslave them.  
 
   * *Then Moses and the children of Israel sang this song to the LORD, and said,  
   “I will **sing to the LORD, for he has triumphed gloriously.  
@@ -6369,14 +6382,14 @@ You'll get a better sense of the context and progression of thought if you go th
   You have guided them in your strength to your holy habitation.***  
   -Exodus 15:1-13
 
-* The story and poetry of God rescuing the Israelite people from slavery constantly emphasizes the fact that God’s people are meant to fully rely on God’s power rather than relying on their own power. In many cases, God's people are must learn to rely on God in situations where relying on their own power would require them to use their hands for violence against their human enemies.  
+* The story and poetry of God rescuing the Israelite people from slavery constantly emphasize the fact that God’s people are meant to fully rely on God’s power rather than relying on their own power. In many cases, God's people must learn to rely on God in situations where relying on their own power would require them to use their hands for violence against their human enemies.  
  
 * The importance of being humble enough to rely on the hand of God rather than using one’s own hands to commit acts of violence is further emphasized by Jesus and his disciples in the New Testament, most notably in chapter 4 of the letter from St. James.  
 
   * ***Where do wars and fightings among you come from? Don’t they come from your pleasures that war in your members? You lust, and don’t have. You murder and covet, and can’t obtain. You fight and make war.** You don’t have, because you don’t ask. You ask, and don’t receive, because you ask with wrong motives, so that you may spend it on your pleasures. You adulterers and adulteresses, don’t you know that friendship with the world is hostility toward God? **Whoever therefore wants to be a friend of the world makes himself an enemy of God**. Or do you think that the Scripture says in vain, “The Spirit who lives in us yearns jealously”? But he gives more grace. Therefore it says, **“God resists the proud, but gives grace to the humble.” Be subject therefore to God.** Resist the devil, and he will flee from you. Draw near to God, and he will draw near to you. Cleanse your hands, you sinners. Purify your hearts, you double-minded. Lament, mourn, and weep. Let your laughter be turned to mourning and your joy to gloom. **Humble yourselves in the sight of the Lord, and he will exalt you.***  
   -James 4:1-10  
 
-* It is notable that Kendrick specifically refers to chapter 4 of St. James’s letter on the song “LUST.”.
+* It is notable that Kendrick specifically refers to chapter 4 of St. James’s letter on the song “LUST.”.  
   
   * *Lately, in **James 4:4 says  
   "Friend of the world is enemy of the Lord"***
@@ -6387,7 +6400,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Hopefully seek the hand of God and tell 'em that he's incapable" > I'm incapable
 
-* Lecrae continues to refer to himself in the third person as he seems to hope that if he was in Kendrick's position he would tell people that he is incapable of consistently making the right choice or living up to Jesus's example of sacrifical love.  
+* Lecrae continues to refer to himself in the third person as he seems to hope that if he was in Kendrick's position he would tell people that he is incapable of consistently making the right choice or living up to Jesus's example of sacrificial love.  
 
 {{< /details >}}
 
@@ -6399,11 +6412,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "But truthfully, I'm nobody to judge" > Judge
 
-* Lecrae’s self-awareness and humility lead him to conclude that he does not possess moral integrity that would make him qualified to judge others.  
+* Lecrae’s self-awareness and humility lead him to conclude that he does not possess the moral integrity that would make him qualified to judge others.  
  
-* Despite the anger that Lecrae has justifiably expressed toward the drug dealers, music industry labels, crooked doctors, fake tough rappers and fake deep gurus, Lecrae is simultaneously aware that he would be a hypocrite to pass judgement and condemn these people without expecting to face judgment himself and be condemned for his own acts of injustice.  
+* Despite the anger that Lecrae has justifiably expressed toward the drug dealers, music industry labels, crooked doctors, fake tough rappers, and fake deep gurus, Lecrae is simultaneously aware that he would be a hypocrite to pass judgment and condemn these people without expecting to face judgment himself and be condemned for his own acts of injustice.  
  
-* Lecrae’s reluctance to judge or condemn others is likely inspired by a passage from Jesus’s most influential set of teachings. In this passage Jesus warns people that they will be judged by the same standard by which they judge others. Jesus also spoke against hypocrites who point out the small wrongdoings of another person while they are blinded by their own much more significant wrongdoings.  
+* Lecrae’s reluctance to judge or condemn others is likely inspired by a passage from Jesus’s most influential set of teachings. In this passage, Jesus warns people that they will be judged by the same standard by which they judge others. Jesus also spoke against hypocrites who point out the small wrongdoings of another person while they are blinded by their own much more significant wrongdoings.  
 
   * ***Don’t judge, so that you won’t be judged. For with whatever judgment you judge, you will be judged**; and with whatever measure you measure, it will be measured to you.  
      
