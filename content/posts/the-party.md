@@ -6435,9 +6435,10 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "My good deeds are like some period blood stains on a dirty rug" > Period blood stains
 
-* Lecrae continues to acknowledge his shortcomings by saying saying that even the good deeds that he has done have been so messed up by all of his evil deeds that his good deeds should be thrown out of consideration like a rug that had been stained by the discharge of blood and tissue during a woman’s menstrual period.  
+* Lecrae continues to acknowledge his shortcomings by saying that even the good deeds that he has done have been so messed up by all of his evil deeds that his good deeds should be thrown out of consideration, like a rug that had been stained by the discharge of blood and tissue during a woman’s menstrual period.  
  
-* Here Lecrae is alluding to a passage from Isaiah 64 where the prophet acknowledges the numerous sinful deeds of God’s people and compares their righteous deeds to an unclean menstrual rag which women of that time used during their periods.  
+* Here, Lecrae is alluding to a passage from Isaiah 64, where the prophet acknowledges the numerous sinful deeds of God’s people and compares their righteous deeds to an unclean menstrual rag, which women of that time used during their periods.  
+
 
   * *Behold, You were angry, for **we sinned,  
   We continued this way for a long time**;  
@@ -6462,19 +6463,19 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "All that I can offer them is Jesus' love" > Jesus' love
 
-* Despite believing that he “deserves death” and believing that his good deeds are unacceptable due to his evil deeds, Lecrae also believes that he has rececived a new kind of life because of the unconditional love from God the Father and Jesus, the Son of God. Here Lecrae is likely inspired by Jesus's words in the Gospel according to St. John's account of the Gospel, where Jesus states that God's love for the world motivated God to send Jesus into the world to give humans an opportunity to have "eternal life."  
+* Despite believing that he “deserves death” and believing that his good deeds are unacceptable due to his evil deeds, Lecrae also believes that he has received a new kind of life because of the unconditional love from God the Father and Jesus, the Son of God. Here, Lecrae is likely inspired by Jesus's words in the Gospel according to St. John's account of the Gospel, where Jesus states that God's love for the world motivated God to send Jesus into the world to give humans an opportunity to have "eternal life."  
 
   * *For **God so loved the world, that he gave his one and only Son, that whoever believes in him should not perish, but have eternal life**. For God did not send his Son into the world to judge the world, but **that the world should be saved** through him.*  
   -John 3:16-17
 
 * Having personally experienced the transformative power of Jesus’s love, Lecrae now offers Jesus’s love to those who suffered due to the evil deeds of others and also offers Jesus’s love to the enemies who have committed the evil deeds that caused people to suffer.  
  
-* Here Lecrae seems to be following one of the commands in Jesus’s most famous set of teachings, which specifically instructed Jesus’s disciple to love their enemies because God the Father graciously loved those who did good deeds and those who did evil deeds.  
+* Here, Lecrae seems to be following one of the commands in Jesus’s most famous set of teachings, which specifically instructed Jesus’s disciples to love their enemies because God the Father graciously loved those who did good deeds and those who did evil deeds.  
 
   * *You have heard that it was said, "You shall love your neighbor and hate your enemy." But I tell you, **love your enemies, bless those who curse you, do good to those who hate you, and pray for those who mistreat you and persecute you**, so that you may be children of your Father who is in heaven. For He causes His sun to rise on the evil and the good, and sends rain on the just and the unjust, the righteous and the unrighteous*.  
   -Matthew 5:43-45  
 
-* Meanwhile, by offering Jesus’s love to those who have suffered from the evil deeds of others Lecrae seems to be aligned with New Testament writers such as St. Paul who were able to endure and even rejoice in the midst of suffering because of Jesus’s love.  
+* Meanwhile, by offering Jesus’s love to those who have suffered from the evil deeds of others, Lecrae seems to be aligned with New Testament writers such as St. Paul, who were able to endure and even rejoice in the midst of suffering because of Jesus’s love.  
 
   * ***We also rejoice in our sufferings**, knowing that suffering produces perseverance; and perseverance, proven character; and proven character, hope; and hope doesn’t disappoint us, **because God’s love has been poured into our hearts** through the Holy Spirit who was given to us.*  
   -Romans 5:3-5  
@@ -6502,11 +6503,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * Even as Lecrae offers Jesus’s love to people who have suffered or are wondering what Lecrae would do to address all the evil in the world, Lecrae is very much aware that many people will feel disappointed and underwhelmed with Lecrae’s offer. These people may then respond to Lecrae by saying, “Really? That’s all you got for us?”  
  
-* In particular, Lecrae knows that these people will think that simply offering love is foolish because it likely won’t stop all the evil deeds that are causing people to suffer. Moreover, the idea of offering love to one’s enemies will seem absolutely foolish to most people  
+* In particular, Lecrae knows that these people will think that simply offering love is foolish because it likely won’t stop all the evil deeds that are causing people to suffer. Moreover, the idea of offering love to one’s enemies will seem absolutely foolish to most people.  
 
-  * It should be noted that unlike the modern usage of the word “love”, within the teachings of Jesus and his followers, “love” does not primarily refer to a set of positive feelings or attraction to a person based on that delightful aspect of that person. Love also doesn’t mean having a close relationship. Instead, love tends to refer to actions that one does so that another person can love a good life, which in many cases might involve actions that help another person to stop doing things that are evil and destructive.  
+  * It should be noted that, unlike the modern usage of the word “love,” within the teachings of Jesus and his followers, “love” does not primarily refer to a set of positive feelings or attraction to a person based on that delightful aspect of that person. Love also doesn’t mean having a close relationship. Instead, love tends to refer to actions that one does so that another person can live a good life, which in many cases might involve actions that help another person to stop doing things that are evil and destructive.  
 
-* Nonetheless, the story of Jesus life, death and resurrection in the Gospel accounts of the New Testament is primarily a story about how Jesus loved his friends and enemies so much that he was willing to die for them to live a good life. This is a point made by St. Paul in his letter to the Church in Rome.  
+* Nonetheless, the story of Jesus's life, death, and resurrection in the Gospel accounts of the New Testament is primarily a story about how Jesus loved his friends and enemies so much that he was willing to die for them to live a good life. This is a point made by St. Paul in his letter to the Church in Rome.  
 
   * *For while we were still helpless, at the right time **Christ died for the ungodly**. For one will hardly die for a righteous person; though perhaps for the good person someone would even dare to die. But **God demonstrates His own love toward us, in that while we were still sinners, Christ died for us**.*  
   -Romans 5:6-8  
@@ -6526,7 +6527,7 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Yeah, the cross is foolish to the perishin'" > Foolish to the perishing
 
-* By saying “the cross is foolish to the perishing” Lecrae is quoting from a passage in St. Paul’s first letter to the Church in the Greek city of Corinth. In that passage St. Paul acknowledges that Jesus’s death on the cross must seem foolish from the perspective of non-Christians who made choices based on the supposed wisdom of Greek philosophy.  
+* By saying “the cross is foolish to the perishing,” Lecrae is quoting from a passage in St. Paul’s first letter to the Church in the Greek city of Corinth. In that passage, St. Paul acknowledges that Jesus's death on the cross must seem foolish from the perspective of non-Christians who made choices based on the supposed wisdom of Greek philosophy.  
    
   * *For **the word of the cross is foolishness to those who are dying, but to us who are being saved it is the power of God**. For it is written,  
      
@@ -6539,21 +6540,21 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * Lecrae is acknowledging that most people who make choices based on the supposed wisdom of modern, secular philosophy will think that it was foolish for Jesus to love and forgive those who hung him on the cross, particularly if Jesus had the power and influence to have his followers fight and kill to prevent him from dying on the cross.  
  
-* However, St. Matthew’s Gospel account of Jesus being betrayed and arrested specifically highlights the fact that Jesus refused to have his disciples take up swords to fight against the betrayer or the opposing soldiers. Moreover, Jesus refrained from using his authority to call an army of angels to use supernatural force against his human adversaries. Jesus told his disciples that those who live by the sword will die by the sword.  
+* However, St. Matthew's Gospel account of Jesus being betrayed and arrested specifically highlights the fact that Jesus refused to have his disciples take up swords to fight against the betrayer or the opposing soldiers. Moreover, Jesus refrained from using his authority to call an army of angels to use supernatural force against his human adversaries. Jesus told his disciples that those who live by the sword will die by the sword.  
 
   * *Then he came to his disciples and said to them, “Are you still sleeping and resting? Behold, the hour is at hand, and the Son of Man is betrayed into the hands of sinners. Arise, let’s be going. Behold, he who betrays me is at hand.” While he was still speaking, behold, Judas, one of the twelve, came, and with him a great multitude with swords and clubs, from the chief priests and elders of the people. Now he who betrayed him had given them a sign, saying, “Whoever I kiss, he is the one. Seize him.” Immediately he came to Jesus, and said, “Greetings, Rabbi!” and kissed him. Jesus said to him, “Friend, why are you here?” **Then they came and laid hands on Jesus, and took him. Behold, one of those who were with Jesus stretched out his hand and drew his sword, and struck the servant of the high priest, and cut off his ear. Then Jesus said to him, “Put your sword back into its place, for all those who take the sword will die by the sword. Or do you think that I couldn’t ask my Father, and he would even now send me more than twelve legions of angels?**”*  
   -Matthew 26:45-53  
 
-* Moreover, by saying this is foolish specifically from the perspective of “the perishing” (aka those who are dying), Lecrae seems to be pointing out that Jesus dying on the cross seems foolish to mortal humans who do not truly believe in life after death and thus feel that it it necessary to protect their lives by any means necessary even if that means committing acts of violence against one’s enemies.  
+* Moreover, by saying this is foolish specifically from the perspective of “the perishing” (aka those who are dying), Lecrae seems to be pointing out that Jesus dying on the cross seems foolish to mortal humans who do not truly believe in life after death and thus feel that it is necessary to protect their lives by any means necessary, even if that means committing acts of violence against one's enemies.  
  
-* In his first letter to the church in the Greek city of Corinth, St. Paul also asserts Jesus’s death on the cross along with Jesus's teachings on love and forgiveness would be worthless if Jesus did not actually resurrect from the dead or if Jesus’s followers would not actually be resurrected from the dead in the future.  
+* In his first letter to the church in the Greek city of Corinth, St. Paul also asserts that Jesus's death on the cross, along with Jesus's teachings on love and forgiveness, would be worthless if Jesus did not actually resurrect from the dead or if Jesus's followers would not actually be resurrected from the dead in the future.  
      
   * *Now if Christ is preached, that He has been raised from the dead, how do some among you say that there is no resurrection of the dead? But **if there is no resurrection of the dead, then not even Christ has been raised; and if Christ has not been raised, then our preaching is in vain, your faith also is in vain**. Moreover, we are even found to be false witnesses of God, because we testified against God that He raised Christ, whom He did not raise, if in fact the dead are not raised. For **if the dead are not raised, then not even Christ has been raised; and if Christ has not been raised, your faith is worthless**; you are still in your sins. **Then also those who have fallen asleep in Christ have perished. If we have hoped in Christ only in this life, we are of all people most to be pitied**.  
      
   **If the dead are not raised, let’s eat and drink, for tomorrow we die.***  
   -1 Corinthians 15:12-19, 32  
 
-* Lecrae thus seems to recognize that the love which Jesus showed in the cross will not make sense to people who do not believe the Gospel announcement of Jesus’s resurrection. Such people are more likely to agree with the approach of using violence to eliminate people who pose a threat to society just like Kendrick advocated throughout “Watch the Party Die”.  
+* Lecrae thus seems to recognize that the love which Jesus showed on the cross will not make sense to people who do not believe the Gospel announcement of Jesus's resurrection. Such people are more likely to agree with the approach of using violence to eliminate people who pose a threat to society, just like Kendrick advocated throughout “Watch the Party Die.”  
 
 {{< /details >}}
 
@@ -6567,19 +6568,19 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * Because Lecrae hopes to offer Jesus’s love and refrain from using his strength to take violent actions against one’s enemies, Lecrae perceives that people in “the world” will call him “weak” and dismiss whatever he has to say.  
  
-* By saying “the world”, Lecrae seems to be alluding to a biblical concept in which “the world” refers to the prideful, contentious and unforgiving way that humans tend to live when they do not humble themselves by trusting in God’s goodness and provision. The use of this term is best illustrated in the fourth chapter of the letter from St. James.  
+* By saying “the world,” Lecrae seems to be alluding to a biblical concept in which “the world” refers to the prideful, contentious, and unforgiving way that humans tend to live when they do not humble themselves by trusting in God’s goodness and provision. The use of this term is best illustrated in the fourth chapter of the letter from St. James.  
  
   * ***Where do the wars and fighting among you come from?** Don’t they come from your desires that war in your members? You lust, and don’t have. **You murder and covet, and cannot obtain. You fight and make war.** You do not have, because you don’t ask. You ask, and don’t receive, because you ask with wrong motives, so that you may spend it on your desires.  
      
   You adulterers and adulteresses, don’t you know that **friendship with the world is hostility toward God? Therefore, whoever wants to be a friend of the world makes himself an enemy of God.** Or do you think that the Scripture says in vain, “The Spirit who lives in us yearns jealously”? But he gives more grace. Therefore it says, **“God resists the proud, but gives grace to the humble.” Be subject therefore to God. Resist the devil**, and he will flee from you. Draw near to God, and he will draw near to you. Cleanse your hands, you sinners. Purify your hearts, you double-minded. Lament, mourn, and weep. Let your laughter be turned to mourning and your joy to gloom. **Humble yourselves in the sight of the Lord, and he will exalt you.**”*  
   -James 4:1-10  
 
-* It is notable that at the end of the track “LUST.” from *DAMN.* Kendrick alluded to the biblical concept of “the world” and specifically referenced the fourth chapter of the letter of St. James.  
+* It is notable that at the end of the track “LUST.” from *DAMN.*, Kendrick alluded to the biblical concept of “the world” and specifically referenced the fourth chapter of the letter of St. James.  
 
   * *Lately, in **James 4:4, friend of the world is enemy of the Lord**.  
   Brace yourself. Lust is all yours.*  
 
-* It is also notable that “BLOOD.”, the first track on *DAMN.*, opens with an ominous voice which implies that weakness is the only other choice if one does not want to choose wickedness.  
+* It is also notable that “BLOOD.,” the first track on *DAMN.*, opens with an ominous voice which implies that weakness is the only other choice if one does not want to choose wickedness.  
 
   * *Is it wickedness or is it weakness.  
   You decide.  
@@ -6596,7 +6597,7 @@ You'll get a better sense of the context and progression of thought if you go th
   I'm talkin' fear, **fear that it's wickedness or weakness**  
   Fear, whatever it is, both is distinctive*  
 
-* Lecrae and Kendrick’s recognition that they need to embrace weakness in order to follow God is likely influenced by a passage from St. Paul’s second letter to the church in Corinth. In that passage. St. Paul writes about God allowed St. Paul to ensure a physical illness so that he would not become proud and so that he would learn that one must embrace one’s own weakness in order to be empowered by God’s strength.  
+* Lecrae and Kendrick’s recognition that they need to embrace weakness in order to follow God is likely influenced by a passage from St. Paul’s second letter to the church in Corinth. In that passage, St. Paul writes about how God allowed St. Paul to endure a physical illness so that he would not become proud and so that he would learn that one must embrace one’s own weakness in order to be empowered by God’s strength.  
 
   * ***I wil not boast on my own behalf, except in my weaknesses**. For if I would like to boast, I will not be foolish; for I will speak the truth. But I refrain, so that no man may think more of me than that which he sees in me or hears from me.  
      
@@ -6606,11 +6607,11 @@ You'll get a better sense of the context and progression of thought if you go th
      
   -2 Corinthians 12:5-10  
 
-* In addition to people in “the world” thinking that Lecrae is weak, Lecrae also says that “the saints” will think that Lecrae is embarassing them.  
+* In addition to people in “the world” thinking that Lecrae is weak, Lecrae also says that “the saints” will think that Lecrae is embarrassing them.  
  
-* The word “saint” means “holy person”, where the word “holy” refers to somone or something that is set apart of a unique purpose and is a source of life for others. In several of the New Testament letters, the church leader who wrote the letter addresses members of the chuch as “saints” or more specifially as “those who are called to be saints”.  
+* The word “saint” means “holy person,” where the word “holy” refers to someone or something that is set apart for a unique purpose and is a source of life for others. In several of the New Testament letters, the church leader who wrote the letter addresses members of the church as “saints” or more specifically as “those who are called to be saints.”  
  
-* Despite the fact that Christians are called to be holy people who are a source of life to others, Lecrae seems to be alluding to criticism that he perceives he will receive from many conservative Christians who want Lecrae to publically judge and condemn the people in “the world” who they think are behaving in ways that are evil or detrimental to society. If Lecrae does not publicalyl judge and condemn people engaged in such evil behavior, Lecrae perceives that this particular set of Christians will think that Lecrae is being to friendly with “the world” and thus is an embarassment to all Chrisitans.  
+* Despite the fact that Christians are called to be holy people who are a source of life to others, Lecrae seems to be alluding to criticism that he perceives he will receive from many conservative Christians who want Lecrae to publicly judge and condemn the people in “the world” who they think are behaving in ways that are evil or detrimental to society. If Lecrae does not publicly judge and condemn people engaged in such evil behavior, Lecrae perceives that this particular set of Christians will think that Lecrae is being too friendly with “the world” and thus is an embarrassment to all Christians.  
 
 {{< /details >}}
 
@@ -6622,9 +6623,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I walk through valleys full of evil, I'm aware of it" > Valleys full of evil
 
-* Here Lecrae seems to be speaking directly to the “saints” who will say that Lecrae embarasses them and concedes that he walks “through the valleys full of evil”. By saying this Lecrae seems to be acknowledging that his mission has led him to work in close proximity to people who have turned away from the goodness of God and turned towards evil. For Lecrae, these “valleys” may represent various non-Christian environments including the music industry and mainstream hip hop culture.  
+* Here, Lecrae seems to be speaking directly to the “saints” who will say that Lecrae embarrasses them and concedes that he walks “through the valleys full of evil.” By saying this, Lecrae seems to be acknowledging that his mission has led him to work in close proximity to people who have turned away from the goodness of God and turned towards evil. For Lecrae, these “valleys” may represent various non-Christian environments, including the music industry and mainstream hip-hop culture.  
  
-* Lecrae also seems to be alluding to Psalm 23 which is a poem written by King David to reflect on how God guides him through evil environments like a shepherd guides his sheep through dark, deadly valleys. The implication would be that Lecrae trusts God to help him navigate through the evils of the music industry and mainstream hip hop culture so that he can fulfill the mission that God has given him.  
+* Lecrae also seems to be alluding to Psalm 23, which is a poem written by King David to reflect on how God guides him through evil environments like a shepherd guides his sheep through dark, deadly valleys. The implication would be that Lecrae trusts God to help him navigate through the evils of the music industry and mainstream hip-hop culture so that he can fulfill the mission that God has given him.  
 
   * *The LORD is my shepherd:  
   I will lack nothing.  
@@ -6652,22 +6653,22 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "I can't condemn the world and burn all of the heretics" > Condemened to burning
 
-* As Lecrae responds to Christians who want him to judge people in the “valleys full of evil”, Lecrae seems to argue that way for him to condemn “the world” while being faithful to the mission that God has given him.  
+* As Lecrae responds to Christians who want him to judge people in the “valleys full of evil,” Lecrae seems to argue that it is not the way for him to condemn “the world” while being faithful to the mission that God has given him.  
  
-* Lecrae is likely convinced that he cannot or really should not condemn “the world” because St. John’s account of the Gospel specifically highlights that God sent Jesus on a mission not to condemn “the world”.  
+* Lecrae is likely convinced that he cannot or really should not condemn “the world” because St. John’s account of the Gospel specifically highlights that God sent Jesus on a mission not to condemn “the world.”  
 
   * *For God so loved the world that He gave his one and only born son, that whoever believes in him will not perish but have eternal life. **For God did not send his Son to condemn the world, but that the world should be saved through him**.*  
   -John 3:16-17  
 
-* Lecrae further highlights the infeasibility of condemning the world by saying that he can’t “burn all of the heretics”.  
+* Lecrae further highlights the infeasibility of condemning the world by saying that he can’t “burn all of the heretics.”  
  
-* Within the English-speaking world, the word “heretic” has historically referred to someone who was a member of a church or a citizen of a pre-modern Christian nation who insists on spreading ideas that seems to go against the Bible, teachings of Jesus or the interpretations of the church.  
+* Within the English-speaking world, the word “heretic” has historically referred to someone who was a member of a church or a citizen of a pre-modern Christian nation who insists on spreading ideas that seem to go against the Bible, teachings of Jesus, or the interpretations of the church.  
  
-* In the case of pre-modern, Christian nations, it was not uncommon for heretics to be burned to death or receive some other form of capital punishment. Burning heretics was often justified as a way to prevent dangerous ideas from spreading and causing detrimental effects on society.  
+* In the case of pre-modern Christian nations, it was not uncommon for heretics to be burned to death or receive some other form of capital punishment. Burning heretics was often justified as a way to prevent dangerous ideas from spreading and causing detrimental effects on society.  
  
-* This logical justification for burning heretics is essentially identical to the logic that Kendrick used to justify executing various people throughout “Watch the Party Die”, most notably when Kendrick said "Burn the whole village, we start over, it’s really that time".  
+* This logical justification for burning heretics is essentially identical to the logic that Kendrick used to justify executing various people throughout “Watch the Party Die,” most notably when Kendrick said, "Burn the whole village, we start over, it’s really that time."  
  
-* Because burning all the heretics did not stop ideas from spreading, did not preserve societal harmony and is now considered unthinkable in a modern, pluralistic, democratic society, Lecrae seems to be pointing out that condemning the world is totally infeasible and undesirable, even if he is incensed by modern heritics like the "fake deep gurus pushin’ voodoo on the people, tellin’ folks that my God ain’t real".  
+* Because burning all the heretics did not stop ideas from spreading, did not preserve societal harmony, and is now considered unthinkable in a modern, pluralistic, democratic society, Lecrae seems to be pointing out that condemning the world is totally infeasible and undesirable, even if he is incensed by modern heretics like the "fake deep gurus pushin’ voodoo on the people, tellin’ folks that my God ain’t real."  
 
 {{< /details >}}
 
@@ -6679,11 +6680,11 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Love is patient so I'm trustin' in the narrative" > Love is patient
 
-* After stating that he "can't condemn the world and burn all of the heretics", Lecrae once again emphasizes that he hopes to offer people Jesus’s love.  
+* After stating that he "can't condemn the world and burn all of the heretics," Lecrae once again emphasizes that he hopes to offer people Jesus’s love.  
  
-* Because the word “love” can mean different things to different people in different contexts, Lecrae describes one of the core attributes of Jesus’s love by saying that “love is patient”.  
+* Because the word “love” can mean different things to different people in different contexts, Lecrae describes one of the core attributes of Jesus’s love by saying that “love is patient.”  
  
-* Lecrae is likely referencing a passage from St. Paul’s letter to the Church in the Greek city of Corinth. In that passage, St. Paul tries to teach the members of the Church that love is not about strong emotions or ecstatic experiences or sex. Instead, Paul describes love as a set of virtues that lead to right relationships.  
+* Lecrae is likely referencing a passage from St. Paul’s letter to the Church in the Greek city of Corinth. In that passage, St. Paul tries to teach the members of the Church that love is not about strong emotions, ecstatic experiences, or sex. Instead, Paul describes love as a set of virtues that lead to right relationships.  
      
   * *If I speak with the languages of men and of angels, but do not have love, I have become a noisy gong, or a clanging cymbal. If I have the gift of prophecy, and know all mysteries and all knowledge; and if I have all faith, to remove mountains, but do not have love, I am nothing. If I give away all my goods to feed the poor, and if I give my body to be burned, but do not have love, it profits me nothing.  
      
@@ -6695,14 +6696,12 @@ You'll get a better sense of the context and progression of thought if you go th
      
   -1 Corinthians 13:1-8,13  
 
-* Additionally, Lecrae may also be inspired by a passage from the second letter from St. Peter which explains that God is patient because he wants to give humans more time and opportunities to repent so that they do not keep going down a path that will lead to their own death and destruction.  
+* Additionally, Lecrae may also be inspired by a passage from the second letter from St. Peter, which explains that God is patient because he wants to give humans more time and opportunities to repent so that they do not keep going down a path that will lead to their own death and destruction.  
 
   * ***The Lord is not slow** concerning his promise, as some count slowness; **but he is patient with us, not wishing that anyone should perish, but that all should come to repentance.***  
   -2 Peter 3:9  
 
-* God’s patience to prevent humans from dying contrasts sharply with the impatience that Kendrick displayed when he said that “I think it’s time to watch the party die.”  
- 
-* The idea that offering Jesus's love will require him to be patient with humans who “love to do evil” may lead to a lot of doubts about whether God will address the evil and injustice that continues to go on in parties throughout the world. However, rather than being overcome with doubt, Lecrae says that he is “trusting in the narrative”.  
+* God’s patience to prevent humans from dying contrasts sharply with the impatience that Kendrick displayed when he said, “I think it’s time to watch the party die.”  
 
 {{< /details >}}
 
@@ -6710,9 +6709,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 #### "Love is patient so I'm trustin' in the narrative" > Biblical narrative
 
-* The idea that offering Jesus's love will require him to be patient with humans who “love to do evil” may lead to a lot of doubts about whether God will address the evil and injustice that continues to go on in parties throughout the world. However,  rather than being overcome with doubt, Lecrae says that he is “trusting in the narrative.”  
+* The idea that offering Jesus's love will require him to be patient with humans who “love to do evil” may lead to a lot of doubts about whether God will address the evil and injustice that continues to go on in parties throughout the world. However, rather than being overcome with doubt, Lecrae says that he is “trusting in the narrative.”  
  
-* Here Lecrae seems to be referring to the “biblical narrative”, or the overarching flow of events that are recounted over the course of the Bible.  
+* Here, Lecrae seems to be referring to the “biblical narrative,” or the overarching flow of events that are recounted over the course of the Bible.  
  
 * In summary, the biblical narrative tells the story of how...  
      
@@ -6722,19 +6721,19 @@ You'll get a better sense of the context and progression of thought if you go th
      
   * God promised that one day a human would come to rule the world based on God’s definition of good and resist the temptation to rule on his terms.  
      
-  * Numerous characters were given the opportunity to rule but eventually started to rule on their own terms which leads to a world of violence and injustice.  
+  * Numerous characters were given the opportunity to rule but eventually started to rule on their own terms, which led to a world of violence and injustice.  
      
   * After so many failed leaders, God the Father sent Jesus as the Son of God from heaven down to earth to speak and act in a way that would show humans how to rule by God’s definition of good, even when doing so led his enemies to kill him.  
      
-  * Jesus then resurrected from the dead to show that following God’s definition of God leads to a new kind of life that will endure beyond physical death.  
+  * Jesus then resurrected from the dead to show that following God’s definition of good leads to a new kind of life that will endure beyond physical death.  
      
-  * Jesus instructed his disciples to spread his teachings, the example of way of life and the surprising announcement of his death and resurrection to people from nations all over the world so that they could turn towards what is good and turn away from what is evil.  
+  * Jesus instructed his disciples to spread his teachings, his example of a way of life, and the surprising announcement of his death and resurrection to people from nations all over the world so that they could turn towards what is good and turn away from what is evil.  
      
-  * Jesus then ascended back up into the heavens and told his disciples to be patient and wait for the day when Jesus will back to earth to rid the world of evil once and for all.  
+  * Jesus then ascended back up into the heavens and told his disciples to be patient and wait for the day when Jesus will return to earth to rid the world of evil once and for all.  
 
-* Lecrae seems to see himself in that final section of the narrative where he must be patient and wait for Jesus to come back, rid the world of evil, and finally put an end to the “party”.  
+* Lecrae seems to see himself in that final section of the narrative where he must be patient and wait for Jesus to come back, rid the world of evil, and finally put an end to the “party.”  
  
-* This idea of being patient and waiting for Jesus to come back to earth and bring a resolution to the narrative is something that Kendrick also expressed during *DAMN.*’s  breakthrough moment on the track “FEAR.”  
+* This idea of being patient and waiting for Jesus to come back to earth and bring a resolution to the narrative is something that Kendrick also expressed during *DAMN.*’s breakthrough moment on the track “FEAR.”  
 
   * *Fear, what happens on Earth stays on Earth  
   And I can't take these feelings with me, so hopefully, they disperse  
@@ -6755,9 +6754,9 @@ You'll get a better sense of the context and progression of thought if you go th
 
 * Lecrae ends his verse by flipping the phrase “Watch the Party Die” and declaring that Jesus is the anointed king (aka Christ) who died instead of the party.  
  
-* This final line is thus a restatement of the track’s title “Die for the Party”.  
+* This final line is thus a restatement of the track’s title “Die for the Party.”  
  
-* The idea of Jesus Christ dying for "the party" echoes St. Paul’s words from his letter to the Church in Rome where he taught that Jesus is the anointed king (aka Christ) who died on behalf of sinners (i.e. people who failed to act in a way that would create justice and right relationships) at the right time.  
+* The idea of Jesus Christ dying for "the party" echoes St. Paul’s words from his letter to the Church in Rome, where he taught that Jesus is the anointed king (aka Christ) who died on behalf of sinners (i.e., people who failed to act in a way that would create justice and right relationships) at the right time.  
 
   * *For while we were yet weak, **at the right time Christ died for the ungodly**. For one will hardly die for a righteous man. Yet perhaps for a good person someone would even dare to die. But **God demonstrates his own love toward us, in that while we were yet sinners, Christ died for us**.*  
   -Romans 5:6-8  
@@ -6771,45 +6770,10 @@ You'll get a better sense of the context and progression of thought if you go th
   Then Pilate, the Roman governor, **took Jesus and had Jesus flogged. And the soldiers twisted together a crown of thorns and placed it on His head**, and put a purple cloak on Him; and they repeatedly came up to Him and said, **“Hail, King of the Judeans!” and slapped Him in the face again and again.***  
   -John 18:38-40  
 
-* Hence, with this final line, Lecrae is saying that Jesus died so that killers, evil doers, abusers, liars, scammers, vultures, degenerates, drug dealers, crooked doctors, fake tough rappers, fake deep gurus and everyone else that Kendrick and Lecrae might have wanted to die do not actually have to die.  
+* Hence, with this final line, Lecrae is saying that Jesus died so that killers, evildoers, abusers, liars, scammers, vultures, degenerates, drug dealers, crooked doctors, fake tough rappers, fake deep gurus, and everyone else that Kendrick and Lecrae might have wanted to die do not actually have to die.  
  
-* Rather than being the time to watch the party die, God seems to be giving these people some additional time to turn away from evil, turn towards the goodness of God and begin a new way of life before the party really has to end.  
+* Rather than being the time to watch the party die, God seems to be giving these people some additional time to turn away from evil, turn towards the goodness of God, and begin a new way of life before the party really has to end.  
 
 {{< /details >}}
 
 {{< /details >}}
-
-
-<!-- {{< lyrics >}}foo{{< / lyrics >}}
-
-Space
- 
-Space
-—
-
-{{< details is_markdown="false" nest_level="0" is_lyric="true" title="line" >}}
-
-{{< details is_markdown="true" nest_level="1" is_lyric="false" title="subsection">}}
-
-#### "line" > subsection
-
-{{< /details >}}
-
-{{< /details >}}
-
- -->
-
-<!-- {{< lyrics >}}foo{{< /lyrics >}} -->
-
-
-<!-- {{< lyrics >}}
-This shit done got too wicked to apologize
-{{< /lyrics >}}
-{{< details >}}
-* try
-&nbsp;
-* again
-
-wickedness or weakness
-
-{{< /details >}} -->
