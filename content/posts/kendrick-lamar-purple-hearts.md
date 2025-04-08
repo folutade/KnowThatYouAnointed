@@ -1,7 +1,7 @@
 +++
-date = '2025-04-01T23:10:11-07:00'
-draft = true
-title = 'Kendrick Lamar Purple Hearts'
+date = '2025-04-08T00:00:00-00:00'
+draft = false
+title = '"Purple Hearts" by Kendrick Lamar'
 +++
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Telekinesis, I'm purifying these D speeches" >}}
