@@ -1,8 +1,54 @@
 +++
 date = '2025-04-08T00:00:00-00:00'
-draft = false
+draft = true
 title = '"Purple Hearts" by Kendrick Lamar'
 +++
+
+As part of his debut, self-titled 2009 EP, Kendrick Lamar included a track called “Faith,” which recounted the story of how his struggles with his Christian faith influenced his understanding of his purpose and the trajectory of his career as a hip hop artist.  
+   
+        *I found myself losing focus **at a Sunday service**  
+        Embarrassed, so **I start questioning God, "What is my purpose?"  
+        He said to live the way He did**, that's all he want from me  
+        **Spread the word and witness, he rose on the first Sunday  
+        I said "alright,"** enthused that my Lord gave a listen  
+        **I opened my Bible, in search to be a better Christian**  
+        And this from a person that never believed in religion  
+        But shit, my life is so fucked up, man – I can't help but give in  
+        **I'm giving testimonies to strangers I never met  
+        Hopped on the pulpit and told them how I was truly blessed**  
+        Felt like I'm free from all my sins when the service was over  
+        **Walked out the church, then got a call that my homie was murdered  
+        Then lost my faith again***  
+
+Despite Kendrick recounting an experience of losing his faith in God during the first verse of “Faith,” the third verse of “Faith” shows that Kendrick eventually recovered his faith and came to the conclusion that the suffering he endured was a way for God to test and purify his faith, like gold that is purified by fire.  
+   
+        ***This for my people that stressing whenever times is hard  
+        Your mind's slipping, wondering, "Is there really a God?"**  
+        Knowing you shouldn't think that way and trying to freeze your brain  
+        **But whenever there's pain, that feeling forever remains  
+        We can't believe what we can't see and reality seems stronger than prayer  
+        'Cause you tried to change your life, and now you live in a wheelchair  
+        And your son was born with cancer and he live in Urgent Care  
+        At the tender age of 12, and you feel that no one cares  
+        Searching for answers, that's human nature, you ain't in the wrong  
+        Just know when you feeling that way, His Spirit's in the room**  
+        I watched people I know pray and catch the Holy Ghost  
+        And wonder why I ain't ever caught that feeling before  
+        Maybe they know Him better, or I don't know no better  
+        **But what I do know, is that He's real and He lives forever  
+        So the next time you feel like your world's about to end  
+        I hope you studied, because He's testing your faith again***  
+
+In many ways, the track “Faith” laid the groundwork for the message that Kendrick would deliver over the course of his first three major label albums: *good kid m.A.A.d city* (2012), *To Pimp a Butterfly* (2015), and *DAMN* (2017). While the musical styles and lyrical themes of these three albums differ, each one of the albums followed a very similar, almost identical narrative arc.  
+   
+Kendrick goes out into the world seeking to fulfill his desires. As he seeks to fulfill his desires, God allows Kendrick to face opposition, trouble, and suffering. By allowing Kendrick to face this opposition, trouble, and suffering, God reveals deep, pervasive vices within the world, within Kendrick’s community, and within Kendrick himself. Kendrick recognizes that overcoming these vices is much more important than seeking to fulfill the desires he had at the start. Kendrick then has a breakthrough in which he turns to seek God and overcomes the vices within himself. Finally, Kendrick prophetically encourages his community to join him in seeking God as their ultimate source of fulfillment.
+However, Kendrick’s fourth album, *Mr. Morale & the Big Steppers* (2022), does not follow this narrative arc. It diverges from Kendrick’s traditional narrative arc in several key ways. First of all, from the very beginning of the album, Kendrick has already done everything he can to fulfill almost all of the desires he had on the previous albums and is already very much aware of the vices within the world, within his community, and within himself.  
+   
+However, the most significant departure from Kendrick’s traditional narrative is the fact Kendrick’s breakthrough does not seem to come from Kendrick turning to seek God. Instead, Kendrick’s breakthrough seems to come as a result of multiple sessions with his therapist, Eckhart Tolle. Moreover, throughout the album, Kendrick seems to remain fairly distant from God. God is mentioned, there are many references to spiritual themes throughout the album, and Eckhart Tolle expresses many ideas that seem to be taken from New Age spirituality. However, in the breakthrough moment on the track, “Mother I Sober,” Kendrick seems to be deconstructing his Christian faith.  
+   
+Given that Kendrick does not seem to find his breakthrough by turning to God and even seems to deconstruct his Christian faith, it is surprising and notable there is one verse on the album that fully expresses the faith that was so central on Kendrick’s previous three albums. However, Kendrick is not the one who raps this verse. Instead, at the end of the track “Purple Hearts,” Ghostface Killah from the classic hip hop group Wu-Tang Clan provides a verse which encourages Kendrick to overcome his vices by turning to seeking God—and more specifically by turning to seek the way of Jesus—as his ultimate source of fulfillment.  
+   
+At first glance, Ghostface Killah is probably not the first hip hop artist that most listeners would have thought would fill Kendrick’s prophetic role of serving as “Yeshua’s new weapon.” Many of Ghostface Killah’s rap verses are about selling drugs and other aspects of street culture. Moreover, on a personal level, Ghostface Killah identifies as a Muslim, not a Christian. However, as the following line-by-line analysis should show, Ghostface Killah turned out to be the perfect person to fill the role of God’s prophet—a role that Kendrick was seemingly unable to bear on Mr. Morale & the Big Steppers.  
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Telekinesis, I'm purifying these D speeches" >}}
 
@@ -26,7 +72,7 @@ title = '"Purple Hearts" by Kendrick Lamar'
 
 {{< details is_markdown="true" nest_level="1" is_lyric="false" title="purifying">}}
 
-#### "Telekinesis, I'm purifying these D speeches" > purifying
+#### "Telekinesis, I'm purifying these D speeches" > Purifying
 
 * “Purifying” refers to the act of making something pure or clean by removing substances that are unwanted or that differ from the main substance.  
  
@@ -44,9 +90,11 @@ title = '"Purple Hearts" by Kendrick Lamar'
  
     * *You got to look at your life right now and basically just try to do good deeds. Just do good. Listen—**me cussing is a sin. Don't look at it like its a bullshit sin. These are spells that we throwing around every time you cuss. We're not supposed to even say that. I'm about the cuss again but I ask for forgiveness.***  
  
-* Additionally, in a 2022 interview with Fact Magazine, Ghostface discussed his desire to release a rap album about God.  
+* Additionally, in a [2022 interview with Fact Magazine](https://www.hotnewhiphop.com/12760-ghostface-killah-speaks-on-idea-for-project-all-about-god-news), Ghostface discussed his desire to release a rap album about God.  
  
-    * ***I wanna rhyme about God, I wanna do a God album, a positive album so the kids and everybody will understand what’s going on.** I want to tell what’s going on through my eyes. I don’t wanna give too many of my ideas away because people just be taking them. **Feed the poor people, feed the animals, that’s one of the main reasons I’m here. God put me here to teach people and to lead people to his direction. I’m not a Christian, I’m a Muslim but God is one. I just believe in the Most High. I know what my duty is**.*  
+    * ***I wanna rhyme about God, I wanna do a God album, a positive album so the kids and everybody will understand what’s going on.** I want to tell what’s going on through my eyes. I don’t wanna give too many of my ideas away because people just be taking them. **Feed the poor people, feed the animals, that’s one of the main reasons I’m here. God put me here to teach people and to lead people to his direction. I’m not a Christian, I’m a Muslim but God is one. I just believe in the Most High. I know what my duty is**.
+       
+    I’ve always been into Islam. I got a lot of questions and **I got a lot of my questions answered through Islam. When I look at history and I look at all the prophets, I love them all from Moses, Noah, Jesus, Abraham, Solomon, David, Job, Ezekiel, John the Baptist, Jonah, all of them. I love them all because they all served a purpose. It’s like the stories I heard on all them prophets, I was fascinated by it.***  
   
 {{< /details >}}
 
@@ -58,7 +106,7 @@ title = '"Purple Hearts" by Kendrick Lamar'
 
 #### "While I'm crying, I clean the feet of the sweet Jesus" > Crying
 
-* The image of Ghostface Killah crying builds on the theme of crying that has already een established throughout the first half of Mr. Morale and the Big Steppers.  
+* The image of Ghostface Killah crying builds on the theme of crying that has already een established throughout the first half of Mr. Morale & the Big Steppers.  
  
 * The album begins with the song "United in Grief" in which featured a hook in which Kendrick repeatedly says "I grieve different" in between verses before finally saying "Everybody grieves different" at the end of the track. The final verse of "United in Grief" also ends with Kendrick saying "the money wiping the tears away" in reference to his attempts to deal with his grief through expensive, luxury cars, jewelry, houses, and guns.  
  
@@ -80,7 +128,7 @@ title = '"Purple Hearts" by Kendrick Lamar'
  
 * It is notable that the perfume was likely purchased with her earnings as a prostitute. Moreover, instead of pouring out the perfumed oil on Jesus’s feet she could have alternatively used the sweet smelling oil to attract more clients to her prostitution. Hence, the very act of using the perfume to anoint Jesus's feet rather than putting it on herself was an act of turning away from her sinful behavior and turning towards God.  
  
-* Simon, judgemental Pharisee, immediately concluded that Jesus must not be a true prophet from God because he allowed himself to be associated with and even touched by someone who was a notorious sinner. Within the spiritual practices that were introduced in the Old Testament, someone who sinned as much as a prostitute was clearly considered “impure” and anyone who this “impure” woman touched would also be considered “impure.”  
+* Simon, the judgemental Pharisee, immediately concluded that Jesus must not be a true prophet from God because he allowed himself to be associated with and even touched by someone who was a notorious sinner. Within the spiritual practices that were introduced in the Old Testament, someone who sinned as much as a prostitute was clearly considered “impure” and anyone who this “impure” woman touched would also be considered “impure.”  
  
 * Jesus was well aware of Simon's conclusion and in response told an allegorical parable story, about two debtors who owed money to the same lender and were both unable to pay the money back. One debtor would have to work for almost a year and a half to pay back his debts. The other debtor would only have to work about a month and a half to pay back his debts. Within their society, the two debtors likely would have been sold as slaves or sent to a debtors prison. However, rather than enforce this consequence, the lender graciously decided to forgive both of the debtors of all their debts.  
  
@@ -100,7 +148,7 @@ title = '"Purple Hearts" by Kendrick Lamar'
 
 #### "While I'm crying, I clean the feet of the sweet Jesus" > Parallels to Mr. Morale
 
-* The story of the prostitute who cried as she cleaned Jesus’s feet has numerous parallels to the state in which Kendrick finds himself throughout Mr. Morale and the Big Steppers.  
+* The story of the prostitute who cried as she cleaned Jesus’s feet has numerous parallels to the state in which Kendrick finds himself throughout Mr. Morale & the Big Steppers.  
  
 * Much like the prostitute, Kendrick’s experience of living in poverty eventually led him to a degree of sexual promiscuity which was destructive to his relationships and caused him to distance himself from God.  
  
@@ -435,7 +483,7 @@ title = '"Purple Hearts" by Kendrick Lamar'
  
 * In this sense, Kendrick could be compared to the Old Testament King David who was a great leader, a poet, a musician, a prophet and a devoted follower of God yet went on to use his power to commit adultery by secretly forcing his neighbor’s wife to have sex with him and then killing his neighbor after his wife became pregnant through King David’s adultery.  
  
-* After God sent a prophet to confront King David, King David confessed his sinful behavior and repented. King David also wrote a famous poem about his sinful behavior, need for repentance and a prayer for God not to take God’s Holy Spirit away from David. This poem later became Psalm 51.  
+* After God sent a prophet to confront King David, King David confessed his sinful behavior and repented. King David also wrote a famous poetic song about his sinful behavior, need for repentance and a prayer for God not to take God’s Holy Spirit away from David. This poetic song later became Psalm 51.  
 
     * ***Have mercy on me, God, the Elohim, according to your loyal love**.  
     According to the multitude of your tender mercies,  
@@ -1099,35 +1147,333 @@ title = '"Purple Hearts" by Kendrick Lamar'
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="My good deeds in front of your door, I'm standing by the entrance" >}}
 
-{{< details is_markdown="true" nest_level="1" is_lyric="false" title="subsection">}}
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Good deeds in front of God's door">}}
 
-#### "My good deeds in front of your door, I'm standing by the entrance" > subsection
+#### "My good deeds in front of your door, I'm standing by the entrance" > Good deeds in front of God's door
 
-* 
+* In the New Testament, standing in front of God’s door is a recurring motif that is used to discuss the future day when all humans will be resurrected from the dead and will face God’s "Final Judgement" based on their good deeds.  
  
-* 
+* Most notably, in St. Matthew account of the Gospel ([Matthew 25:1-13](NASB)) just before Jesus tells a different parable about the final judgement being compared to a shepherd separating sheep from goats ([Matthew 25:31-46](https://www.biblegateway.com/passage/?search=matthew%2025%3A31-46&version=NASB)), Jesus tells an allegorical parable story about ten unmarried women, or virgins, who have been invited to be guests at a wedding banquet. However, they must wait at the door of the banquet venue at night until the groom arrives.  
+ 
+    * All ten of these wedding guests brought oil lamps so that they would have light as they waited for the groom to arrive at any point in the night. However, only five of the guests were wise enough to bring extra oil with them in case the groom took a long time to arrive and they ran out of the oil that was originally in the lamp. The other five guests did not bring any extra oil.  
+       
+    * The ten wedding guests all fell asleep as they were waiting at the door of the banquet venue and were suddenly aroused at midnight when someone shouted that he groom was arriving soon. At this point, the oil that was originally in all of the lamps had run out. The wise guests were able to add their oil to their lamps. However, the wise guests did not bring enough extra oil to give any to the foolish guests who had not brought any extra oil for themselves. The foolish guests then had to walk to the market and buy more oil.  
+       
+    * While the five foolish guests were buying oil, the groom arrived and welcomed the five wise guests into the wedding banquet before shutting and locking the door behind him. When the five foolish guests returned to the banquet venue they pounded on the door and pleaded to be let in. However, the groom said that did not recognize them and refused to let them into the banquet.  
+ 
+* In the traditional Orthodox and Catholic interpretation of this parable, the wedding guests are said to represent humans living in this world and the groom is said to represent Jesus. The arrival of the groom  is said to represent Jesus’s “second coming” or return to earth when the world as we know it ends and all humans “wake up” from death in the “general resurrection” and must face God’s judgement as to whether they will be allowed into the eternal life that Jesus has offered to humans.  
+ 
+* Moreover, as explained by respected Orthodox teachers such as the 19th century Russian monk, St. Seraphim of Sarov, the oil is said to represent the “grace” of the Spirit of God and the market is said to represent our lives where we trade by performing “good deeds” that lead to right relationships amongst humans and between humans and God.  
+ 
+    * *The oil in the lamps of **the wise unmarried women** could burn brightly for a long time. So these unmarried women, **with their bright lamps were able to meet the Groom**, who came at midnight. With Him, **they could enter the bridal chamber of joy. But the foolish ones, though they went to market to buy more oil**, when their lamps were going out, **were unable to return in time, for the door was already shut**.  
+       
+    **The market is our life; the door of the bridal chamber**, which was shut and barred the way to the Groom **is human death; the wise and foolish unmarried women are Christian souls; the oil is not the good deeds, but the grace of the All-Holy Spirit of God which is obtained through good deeds** and which changes souls from one state to another - such as, from a corruptible state to incorruptible state, from spiritual death to spiritual life, from darkness to light, from the stable of our being (where the passions and overpowering emotions are tied up like dumb animals and wild beasts) into a temple of the Divinity, the shining bridal chamber of eternal joy in Christ Jesus our Lord, the Creator, Redeemer and eternal Bridegroom of our souls.  
+       
+    God the Word, the God-Man, **our Lord Jesus Christ, compares our life with the market, and the work of our life on earth He calls trading**. He says to us all: "Trade till I come" (Lk. 19:13), "buying up every opportunity, because the days are evil" (Ephesians 5:16). In other words, **make the most of your time getting heavenly blessings through earthly goods. Earthly goods are good deeds done for Christ's sake that confer the grace of the All-Holy Spirit, on us**.*  
+       
+    -St Seraphim of Sarov in “On the Acquisition of the Holy Spirit”
+
+ 
+* Similarly, in St. Luke’s account of the Gospel, Jesus tells an allegorical parable story about a homeowner who refuses to let anyone in after he has closed the door for the night. In this allegory, the homeowner represents God and the person being shut outside the door of the house is represents a person who was rejected by God after the "Final Judgement".
+
+    * *Someone said to Jesus, “Lord, **are there just a few who are being saved?**”
+       
+    Jesus said to them, “**Strive to enter through the narrow door; for many, I tell you, will seek to enter and will not be able**.  
+       
+    **Once the head of the house gets up and shuts the door, and you begin standing outside and knocking on the door, saying, ‘Lord, open up to us!’ and he then will answer and say to you, ‘I do not know where you are from.**’  
+       
+    Then you will begin saying, ‘We ate and drank in Your presence, and You taught in our streets!’  
+       
+    Yet he will say, ‘I do not know where you are from. **Depart from me, all you who do deeds of injustice**.’  
+       
+    In that place **there will be weeping and gnashing of teeth when you see** Abraham, Isaac, Jacob, and **all the prophets in the kingdom of God, but yourselves being thrown out**. And they will come from east and west, and from north and south, and will recline at the table in the kingdom of God. And behold, some are last who will be first, and some are first who will be last.*”  
+       
+    -Luke 13:23-30
+
+* Also, in the Book of Revelation which concludes the New Testament, St. John sees a vision in which Jesus calls St. John to deliver a message to the church in the ancient city of Philadelphia (aka the city of brotherly love). In the message, Jesus declares that he is the one who opens and shuts the door. Moreover, Jesus declares that he knows the good deeds of those who are part of the church and says that he has opened the door in front of them so that no one can shut them out. The passage also alludes to the idea of Jesus coming back to judge all humans and determine which humans are pure enough to be part of God’s temple in the new city of Jerusalem in the New Heaven and New Earth.  
+  
+    * *To the **messenger of the church in Philadelphia** write: “He who is holy, he who is true, he who has the key of David, he who opens and no one can shut, and who shuts and no one opens, says these things:  
+       
+    ‘**I know your deeds (behold, I have set before you an open door, which no one can shut)**, that you have a little power, and **kept my word, and didn’t deny my name**. Because you kept my command to endure, I also will keep you from the hour of testing which is to come on the whole world, to test those who dwell on the earth. **I am coming quickly! Hold firmly** that which you have, **so that no one takes your crown**.  
+       
+    **He who overcomes, I will make him a pillar in the temple of my God**, and he will go out from there no more. I will write on him the name of my God and the name of the city of my God, **the new Jerusalem, which comes down out of heaven** from my God, and my own new name. He who has an ear, let him **hear what the Spirit says to the churches**.’”*
+       
+    -Revelation 3:7-8, 10-13  
+
+* It is  notable that this passage from the Revelation contains a reference to a crown that is intertwined with suffering and hardship, which is very relevant to the Mr. Morale & the Big Steppers track “Crown”.  
+ 
+    * ***Heavy is the head that chose to wear the crown**  
+    To whom is given **much is required now***  
+
+* The time of testing which Jesus’s followers must go through to receive this crown also mirrors the concept of God “testing your faith again” as Kendrick mentioned on the track “Faith” from the Kendrick Lamar EP.  
+ 
+    * *So the next time you **feel like your world's about to end**  
+    I hope you studied, because **He's testing your faith again***  
+
+* Finally, the entire message to the church in Philadelphia (aka the city of brotherly love) is presented as the Spirit of God giving instructions for how to “overcome” which is exactly what Kendrick's friend asked for during the first verse of “XXX.” on “DAMN.”  
+ 
+    * *Yesterday, **I got a call, like, from my dog**, like 101  
+    **Said they killed his only son** because of insufficient funds  
+    He was sobbin', he was mobbin', way belligerent and drunk  
+    Talkin' out his head, philosophin' on what the Lord had done  
+    He said, "**K-Dot, can you pray for me?** It been a fucked up day for me  
+    **I know that you anointed, show me how to overcome**"  
+    He was lookin' for some closure, **hopin' I could bring him closer  
+    To the spiritual, my spirit do know better***  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="The Final Judgement">}}
+
+#### "My good deeds in front of your door, I'm standing by the entrance" > The Final Judgement
+
+* As mentioned above, in St. Matthew’s account of the Gospel ([Matthew 25:31-46](https://www.biblegateway.com/passage/?search=matthew%2025%3A31-46&version=NASB)) Jesus tells a allegorical parable story about a shepherd who allows the sheep and the goats to graze freely all throughout the day, but as night comes he separates the obedient sheep on his right side from the disobedient and destructive goats on his left side.  
+ 
+    * Within the passage itself, Jesus explains that the shepherd is the anointed king who will sit on his throne at the end of the world as we know it and judge all people from all nations.  
+       
+    * The sheep are said to represent humans who did good deeds throughout their lives by feeding those who were hungry, giving drink to those who were thirsty, inviting the homeless into their houses, giving clothes to those who had little to no clothing, caring for the sick and visiting those who were unjustly imprisoned.  
+       
+    * Meanwhile the goats are said to represent humans who neglected to do any good deeds throughout their lives as they chose not to feed the hungry, not to give drink to the thirsty, not to invite the homeless, not to clothe those without clothing, not to care for the sick and not to visit those who were unjustly imprisoned.  
+
+* It is notable that in interviews that were recorded and released after Ghostface recorded his verse “Purple Hearts” and even some interviews recorded nearly a decade before the recording of “Purple Hearts”, Ghostface has talked at length about his conviction that everyone will face God’s judgement.  
+ 
+* During a [2024 interview on the *Touré Show*](https://youtu.be/7R7fYCz1Ucs?si=K-6QRFCzbHGz7GTq&t=2800), Ghostface talked about how he tries to do good deeds everyday because he is convinced that “everybody got to get judged.”  
+
+    * *Touré: What do you worry about?  
+       
+    Not getting a chance to finish what you done started before your time is up. I worry about when I leave this planet did I do enough. I know that t**his planet is just an illusion to me. I know that I'm accumulating my credit that's going to show on judgment day for where I need to go. I believe when we here, that's all we doing—whether it's good credit or bad credit**. If you're a fucked up nigga, there's a place for you over here. If you just passed, stay away from that place over here.  
+       
+    Touré: **You think you're on the path to Heaven?**  
+       
+    Ghostface: No, no, no. You want to fight to go to Jenna. **You want to live your life to try to make it to** Jenna which is **Heaven**.  
+       
+    Touré: **And you're on the path?**  
+        
+    Ghostface: **I don't know. Shit! I did a lot of foul shit. You better hope.**  
+       
+    Touré: But you have to fight internally?  
+       
+    Ghostface: **You got to look at your life right now and basically just try to do good deeds. Just do good.** Listen—me cussing is a sin. Don't look at it like its a bullshit sin. These are spells that we throwing around every time you cuss. We're not supposed to even say that. I'm about the cuss again but **I ask for forgiveness. But there's a lot of things that we walk out our house that we accumulate that are sins that you don't even know that you have.**  
+       
+    Touré: **Is there a hell?**  
+       
+    Ghostface: **Of course there's a hell. A lot of people say heaven and hell is here on Earth and that could be true too. But at the end of the day you all going to get judged that which I believe being a Muslim. You have to get judged....What I'm trying to tell you is everybody got to get judged—everybody—regardless if you like it or not**. The babies don't. The people that don't get judged is the the ones that might have died when they was like premature or 5 months old. But **everybody got to get judged**.*  
+
+* Additionally, in an [interview with MONTREALITY](https://youtu.be/hZ6Ha0p9ZUM?si=7YZwmKfL3kN_xESo&t=776), Ghostface lamented the problems of violence and hatred in low-income, Black communities, and suggested that these issue stemmed from the fact that the kids who were perpetrating violence had no spiritual direction never considered the fact one day that they will be judged for what they have done in this life.  
+ 
+    * ***We gotta stop this violence. It's too much violence** and you know I just been in Chicago and they just killed this little girl for nothing and you got these little kids going to school killing and it just gets too much. But I kind of realized something because these little kids I mean even the dudes that's doing it the people that's shooting **a lot of them doing it for no reason at all**.  
+       
+    **I think that comes from their parents cause now you got young parents having these little babies—people getting pregnant at 18 years old—having babies but they not even really adult theirself cause they don't even know how to raise their own self**. I think it's based on that and **I think it's based on the fact that they don't have no spiritual guidance. So they're not afraid of anything—not afraid of anything. I'm a spiritual person** it's like I've went through that phase but not as heavy as the kids now because **they don't got no respect or nothing**. When I was young I couldn't curse in front of one of the elder ladies in the building and stuff like that. I could sell my drugs but it was respected.  
+       
+    **These kids now there's no spiritual guidance. They don't know God. If you knew God straight up and you had a personal relationship you'll be scared the death cause you know what your penalty is going to be. See, you got to realize on Earth this is just a trial. We're going through this. You can't let your scale—your your bad outweigh your good, because for everything we do here we're going to get judged for it. We going to get judged for it—good or bad.**  
+       
+    We got to remember there's two angels on your shoulders at all times writing everything down even what you think. But **these people these babies they don't believe in the higher being like that. Like I said there's no spiritual guidance so that just leaves them to do whatever they want to do. Like how you going to go around just killing people without knowing that's going to come back to you? And it might not come back to you physically right here on Earth. It could come back to your brother. It could come back to your mother. It could come back to your kids. But it's going to come back.  
+       
+    It's a war between God and Devil, man. And the devil is just doing his job so you can't even get mad at the Devil because that's what he came to do. But you don't got to be a follower. If you had a choice to choose what gang you going to go to, I'm going go to the God gang because love always overcomes hate any day and God is love and the Devil is hate. So I go on the right side I let the left side just...you know**.  
+       
+    **I know now and if I ever try to do go out of my element and be something else, I'm going to be beaten with many stripes. My penalty is going to be double hard because I know the truth. These guys don't know the truth and so they're not going to be held accountable for what they don't know**. It's just simple as that, yo.
+
+* It is also notable that on GNX, Kendrick’s next project after, Morale & the Big Steppers, Kendrick seems to express the exact same thoughts about the necessary reality of the future day of God’s judgment.  
+ 
+* First, the GNX trailer that was released less than an hour before the GNX album includes a song that is often referred to as “Bodies”. After a short intro, the first verse of “Bodies” begins with a three bar subsection where the first bar begins with the phrase “Reincarnated with love” and the last begins with the phrase “everybody must be judged.”
+ 
+    * ***Reincarnated with love**  
+    My Gemini twin back, powerin' up  
+    No more handshakes and hugs  
+    The energy only circulate through us  
+    **Everybody must be judged  
+    But this time, God only favorin' us***  
+
+* These ideas about love and judgement directly mirror Ghostface’s words in that interview with MONTREALITY. Moreover, this subsection conveys the idea that when all humans are resurrected they will be judged by God based on whether they follow God’s greatest commandment to love God and love other humans.  
+ 
+* It is also notable that Kendrick’s setlist at the 2025 National Football League Super Bowl Halftime Show began with Kendrick rapping the first verse of “Bodies” beginning with the line “Reincarnated with love” and including the line “Everybody must be judged.”  
+ 
+* The line “Reincarnated with love” and the title “Bodies” also seems to be a reference to GNX’s pivotal track “reincarnated”. On “reincarnated” Kendrick raps from the perspective of the reincarnated and embodied spirit of Lucifer (aka the devil / the satan / the diabolical one / the false accuser). After taking on “body after body” this embodied spirit explains that his internal struggle between doing good deeds and doing evil deeds is in large part due to the fact that he has been “cynical about the judgement day” and thus distrustful or dismissive about Jesus’s teachings.  
+ 
+    * *Truth be told, **I've been battling myself  
+    Tryna navigate the real and fake  
+    Cynical about the judgement day**  
+    **Reincarnated on this earth** for a hundred plus  
+    **Body after body**, lesson after lesson*  
+ 
 {{< /details >}}
 
 {{< /details >}}
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="With heavy baggage, my brother's ashes" >}}
 
-{{< details is_markdown="true" nest_level="1" is_lyric="false" title="subsection">}}
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Heavy baggage">}}
 
-#### "With heavy baggage, my brother's ashes" > subsection
+#### "With heavy baggage, my brother's ashes" > Heavy baggage
 
-* 
+* The image of Ghostface ”standing by the entrance” “in front of [God’s] door” sets up the image of Ghostface carrying “heavy baggage” as he waits for God to open the door and let him in.  
  
-* 
+* The image of bringing baggage to the entrance of a house may imply that Ghostface has arrived at the door after a long journey, which could be a metaphor for one’s “life journey” or mortal life in this world.  
+ 
+* Moreover, arriving with heavy baggage may be an indication that Ghostface has packed in order to stay in God’s house for an extended period of time, which could be a metaphor for eternal life.  
+ 
+* At the same time the idea of carrying “heavy baggage” also seems to be using the common metaphor of “emotional baggage”. “Emotional baggage” refers to the unresolved emotional issues, traumas, or negative experiences that a person carries from their past. These can stem from relationships, family dynamics, childhood experiences, loss, failure, or any other significant life event. The “baggage” metaphor suggests that these emotions weigh a person down and influence how they think, feel, and behave—especially in new relationships or situations.  
+
+* The burden of carrying emotional baggage for long periods of time is one of the most central themes of *Mr. Morale & the Big Steppers* most notably on the tracks “United in Grief”, “Father Time”, "Mr. Morale" and "Mother I Sober."  
+ 
+    * ***Poverty was the case  
+    But the money wipin' the tears away  
+    I grieve different**  
+    (Everybody grieves different)*  
+    -”United in Grief”  
+       
+    * **I got daddy issues, that's on me  
+    Lookin' for, "I love you", rarely empathizin' for my relief**  
+    A child that grew accustomed, jumping up when I scraped my knee  
+    'Cause **if I cried about it, he'd surely tell me not to be weak  
+    Daddy issues, hid my emotions**, never expressed myself  
+    **Men should never show feelings, being sensitive never helped**  
+    His momma died, I asked him why he goin' back to work so soon?  
+    His first reply was, "Son, that's life, and bills got no silver spoon"  
+    Daddy issues, fuck everybody, go get your money, son  
+    Protect yourself, trust nobody, only your momma'n'em  
+    **This made relationships seem cloudy, never attached to none  
+    So if you took some likings around me, I might reject the love**  
+    Daddy issues kept me competitive, that's a fact, nigga  
+    I don't give a fuck what's the narrative, I am that nigga  
+    When Kanye got back with Drake, I was slightly confused  
+    Guess I'm not mature as I think, got some healin' to do  
+    Egotistic, zero-given fucks and to be specific (Ah)  
+    **Need assistance with the way I was brought up** (Ah, ah)  
+    What's the difference when **your heart is made of stone**  
+    And your mind is made of gold  
+    And your tongue is made of sword, but it may weaken your soul?  
+    **My niggas ain't got no daddy, grow up overcompensatin'**  
+    Learn shit 'bout bein' a man and disguise it as bein' gangsta  
+    I love my father for tellin' me to take off the gloves  
+    'Cause everything he didn't want was everything I was  
+    And to my partners that figured it out without a father  
+    I salute you, may your blessings be neutral to your toddlers  
+    It's crucial, they can't stop us if we see the mistakes  
+    'Til then, let's give the women a break, **grown men with daddy issues***  
+    -”Father Time”  
+       
+    * ***I think about Robert Kelly  
+    If he weren't molested, I wonder if life'd fail him  
+    I wonder if Oprah found closure  
+    The way that she postered the hurt that a woman carries  
+    My mother abused young  
+    Like all of the mothers back where we from**  
+    SSI bury family members  
+    At the repass, they servin' Popeyes chicken  
+    What you know about Black trauma?  
+    F&Ns, kickin' back is another genre  
+    Tyler Perry, the face of **a thousand rappers  
+    Using violence to cover what really happen**  
+    I know somebody's listenin'  
+    Past life regressions to know my conditions  
+    It's based off experience  
+    Karma for karma, my habits insensitive  
+    **Watchin' my cousin struggle with addiction**  
+    Then watchin' her firstborn make a million  
+    **And both of them off the grid for forgiveness  
+    I'm sacrificin' myself to start the healin'***  
+    -”Mr. Morale”  
+       
+    * *I asked my momma why she didn't believe me when I told her "No"  
+    **I never knew she was violated in Chicago**, I'm sympathetic  
+    Told me that she feared it happened to me, for my protection  
+    Though it never happened, she wouldn't agree  
+    **Now I'm affected, twenty years later trauma has resurfaced**  
+    Amplified as I write this song, I shiver 'cause I'm nervous  
+    I was five, **questioning myself, 'lone for many years**  
+    Nothing's wrong, just results on how them questions made me feel  
+    …  
+    **A conversation not bein' addressed in Black families  
+    The devastation, hauntin' generations and humanity  
+    They raped our mothers, then they raped our sisters  
+    Then they made us watch, then made us rape each other  
+    Psychotic torture between our lives, we ain't recovered  
+    Still livin' as victims in the public eyes who pledge allegiance  
+    Every other brother has been compromised  
+    I know the secrets, every other rapper sexually abused  
+    I see 'em daily buryin' they pain in chains and tattoos  
+    So listen close before you start to pass judgment on how he move  
+    Learn how he cope**, whenever his uncle had to walk him from school  
+    **His anger grows deep in misogyny  
+    This is post-traumatic Black families and a sodomy, today is still active***  
+    -”Mother I Sober”  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="My brother's ashes">}}
+
+#### "With heavy baggage, my brother's ashes" > My brother's ashes
+
+* “My brothers’ ashes” seems to refer to the cremated remains of Ghostface’s two brothers who developed muscular dystrophy and died young.  
+ 
+In an 2024 interview with The Atlantic Ghostface was asked how his brother's gradual health decline and disability affected him. Ghostface responded by saying:  
+
+    ***That was a big part of my life**. You’re a reflection of how you came up – **you can’t ever shake that. Now I’m older, I can really understand the situation. But back then I was like: damn, once a person could walk and do everything like normal and now they can’t walk no more, they can’t function or operate like they used to. That’s a drastic change. It was hard to see – it really affected me**.*  
+
+* Given the effect that witnessing such a drastic change would have on a young person, one can only imagine that Ghostface still carries some emotional baggage from his brothers’ illness and eventual death.  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Ashes to ashes, dust to dust">}}
+
+#### "With heavy baggage, my brother's ashes" > Ashes to ashes, dust to dust
+
+* The use of the word “ashes” is also notable because the Roman Catholic tradition observes a yearly forty day period of spiritual renewal, repentance, fasting, prayer and good deeds called Lent and Lent begins with an observance called “Ash Wednesday.” On Ash Wednesday Roman Catholic church members attend a service in which a priest takes a mixture of oil and ashes from burned palm leaves and smears the mixture on each church member’s forehead in the shape of a cross.  
+ 
+* As the priest smears the mixture of oil and ashes he says, “Remember that you are dust, and to dust you shall return.” This quote comes from the biblical Garden of Eden narrative in Genesis 2 and 3. In Garden of Eden narrative, God creates the first prototypical human named “Humanity”—or “Adam” in Hebrew—by forming the “dust/ashes of the ground” into a human form.  
+ 
+* In the context of that narrative, “dust” refers to gray or ash-colored particles from dead, decomposing, or burned plant material, such as is found in fertile humus soil. “Dust” or “ashes” are thus a symbol of death and the return of humans to the ground when they are buried.  
+ 
+* God, the Elohim, gave “Humanity”—aka “Adam”—one commandment: Do not eat the fruit from the Tree of Knowledge of the Good and Evil or else you will die. However, after some time “Humanity” disobeyed God’s one commandment and ate the forbidden fruit. After “Humanity” ate the forbidden fruit, God, “the Elohim” appears to “Humanity” and informs “Humanity” of the consequences that will happen as a result of this disobedience. In particular, God says that “Humanity” will return to the dust/ashes from which “Humanity” had been formed.  
+ 
+	* *Then the LORD said to Humanity (Hebrew: Adam), “Because you have listened to the voice of your wife, and **have eaten from the tree about which I commanded you, saying, ‘You shall not eat from it’**; Cursed is the ground because of you; With hard labor you shall eat from it All the days of your life. “Both thorns and thistles it shall grow for you; Yet you shall eat the plants of the field; By the sweat of your face You shall eat bread, Until you return to the ground, Because from it you were taken; **For you are dust, And to dust you shall return**.”*  
+    -Genesis 3:17-19
+
+* Hence, the “Ash Wednesday” proclamation “Remember that you are dust, and to dust you shall return” is actually a reference to God informing “Humanity”—aka “Adam”—that he will die as a result of his sins. Hence within the context of Lent, “Ash Wednesday” is really a reminder that all humans are going to die and face God’s judgement. In light of this conviction, the forty days of Lent are seen as an opportunity for Jesus’s followers to repent of sins and do good works so that they can pass through God’s judgement and be welcomed into eternal life.   
+
 {{< /details >}}
 
 {{< /details >}}
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="I seen tragic, I did dirt, smacked death and held it to that nigga cabbage" >}}
 
-{{< details is_markdown="true" nest_level="1" is_lyric="false" title="subsection">}}
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Seen tragic">}}
 
-#### "I seen tragic, I did dirt, smacked death and held it to that nigga cabbage" > subsection
+#### "I seen tragic, I did dirt, smacked death and held it to that nigga cabbage" > Seen tragic
+
+* Ghostface seems to be explaining that, in addition to his brothers’ ashes, his emotional baggage come the fact that he has personally witnessed tragic events and circumstances.  
+ 
+* Later in *Mr. Morale & the Big Steppers* on the trac “Savior (Interlude)”, Baby Keem also reflects on the tragic events and circumstances that he has seen living amongst his family members.  
+   
+    * ***You ever seen your mama strung out while you studied division?  
+    Your uncle ever stole from you, day after Christmas?  
+    Seen both of those in them county jail visits  
+    The first and the fifteenth, the only religion  
+    Noodles in the microwave, shark tank tidal wave  
+    Grandma shootin' niggas, blood on the highway***  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Did dirt">}}
+
+#### "I seen tragic, I did dirt, smacked death and held it to that nigga cabbage" > Did dirt
+
+* In slang, to "do dirt" means to do something dishonest, crooked or morally wrong, often involving betrayal or illegal activity. It’s commonly used to describe someone hurting others, committing a crime, snitching, cheating, or setting someone up.  
+ 
+* From a biblical perspective, the moral compromise that comes along with “doing dirt” also makes someone “unclean” and “impure”. Recognizing that Ghostface’s past actions have made him “unclean” and “impure” serves as a reminder that Ghostface needs to “purify these D-speeches” as he mentioned in the [first line of the verse](http://localhost:1313/posts/kendrick-lamar-purple-hearts/#telekinesis-im-purifying-these-d-speeches--purifying).  
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Smacked death and held it to that nigga cabbage">}}
+
+#### "I seen tragic, I did dirt, smacked death and held it to that nigga cabbage" > Smacked death and held it to that nigga cabbage
+
+* By saying that he “smacked death”, Ghostface might be saying that he overcame one or more deadly situations without succumbing to death.  
+ 
+* Meanwhile, the word “cabbage” is slang for a person’s head. Within the context of hip hop lyrics and street culture an artist or gangster would most likely rap or boast about holding a gun to someone’s head, often to intimidate a target or enemy with the threat of death.  
+ 
+* Hence, it seems that one of the main ways that Ghostface overcame deadly situations was by using the threat of death against his enemies.  
 
 {{< /details >}}
 
@@ -1153,6 +1499,8 @@ title = '"Purple Hearts" by Kendrick Lamar'
 * This sudden transformation from killing enemies in the previous line to killing vices in this line also seems to be explained by the word “love” which comes “in between” these opposing inclinations. Love coming “in between” these opposing inclinations to kill enemies or kill vices also reminds of God sending Jesus as the Son of God to come into this world, which is the in-between space of the fifth dimension.  
  
 * Since, St. John and Ghostface have both testified to the idea that “God is love” we can also hear the word “love” as a direct address which could alternatively be heard as a prayer spoken to God (i.e. “God, we killin’ greed, we killin’ homelessness”).  
+ 
+* It is also notable that the word "killin'" can be seen a reference to the stage name Ghostface Killah. Hence, the line seems to suggest that Ghostface's very identity has shifted from an identity that was focused on killing his enemies to an identity that is now focused on killing vices.  
 
 {{< /details >}}
 
@@ -1160,10 +1508,176 @@ title = '"Purple Hearts" by Kendrick Lamar'
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="And I don't give a fuck about this land, I want ownership" >}}
 
-{{< details is_markdown="true" nest_level="1" is_lyric="false" title="subsection">}}
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="This Land Is My Land">}}
 
-#### "And I don't give a fuck about this land, I want ownership" > subsection
+#### "And I don't give a fuck about this land, I want ownership" > This Land Is My Land
 
+* On the surface, it’s not totally clear which geographic area “this land” refers to. However, since Ghostface was born and raised in the United States of America, a natural conclusion is that he is referring to the “land of the free and the home of the brave” as America is referred to in its national anthem.  
+ 
+* Additionally, one of the most famous patriotic songs that American school children have learned for decades of Woody Guthrie’s 1945 song “This Land is My Land”  
+ 
+    * ***This land is your land, and this land is my land  
+    From California to the New York Island**  
+    From the Redwood Forest to the Gulf Stream Waters  
+    **This land was made for you and me***  
+
+* Interestingly, “This Land is My Land” was originally written to highlight the struggles of poor and working class Americans in the face of increasing wealth inequality and the expansion of private ownership by wealthy, upper class Americans. “This Land Is My Land” thus serves as a declaration that America is a land that belongs to everyone collectively, not to the wealthy few who claim to own the land.  
+ 
+* However, Ghostface seems to not care about being included among the Americans to whom this land collectively belongs. Instead he seems to want direct ownership over the land.  
+ 
+* On the surface, Ghostface’s desire to have ownership over the land could be interpreted as a desire to become wealthy enough to buy lots of land. However, such an interpretation would seem to run counter to the verses throughout Mr. Morale & the Big Steppers where Kendrick, Kodak Black and Baby Keem all reflect on how becoming rich and buying property did not heal the generational trauma of growing up poor in America.  
+ 
+    * ***The new Mercedes whip, black G-Wagon**  
+    The, "Where you from?" It was all for rap  
+    I was 28 years young, **twenty mill' in tax  
+    Bought a couple of mansions**, just for practice  
+    **Five hundred in jewelry, chain was magic**  
+    Never had it in public, late reaction  
+    **50K to cousins, post a caption**  
+    Pray none of my enemies hold me captive  
+    ..  
+    So what? **Paralyzed, the county building controlled us  
+    I bought a Rolex watch, I only wore it once  
+    I bought infinity pools I never swimmed in  
+    I watched Keem buy four cars in four months  
+    You know the family dynamics on repeat  
+    The insecurities locked down on PC  
+    I bought a .223**, nobody peace treat  
+    You won't doo-doo me, I smell TNT  
+    **Dave got him a Porsche, so I got me a Porsche  
+    Paid lottery for it, I ain't want it in portions  
+    Poverty was the case  
+    But the money wipin' the tears away***  
+    -”United In Grief”  
+       
+    * ***I learned in trappin', in the business  
+    Smart people makin' horrible decisions**, you know?  
+    **Rich nigga, gettin' my dick sucked after the show  
+    I ain't gon' lie, we were poor  
+    A bunch of lost souls in survival mode**  
+    It wasn't no way for us unless we found our own  
+    **Runnin' in stores, kickin' in doors, nigga, give me my glory  
+    Nigga play with me, he ain't gon' live to tell the story**  
+    You know, **this the type of shit we glorify, everybody gang-gang  
+    Most of the people that you grew up with are now in the chain gang  
+    In the box**, gettin' pink  
+    **Niggas shittin' where you sleep  
+    Niggas shittin' whеre you eat**  
+    …  
+    **Poorer than that bitch but she fall through  
+    Makin' ends meet, daddy deadbeat  
+    Had to steal for a meal or you can't eat, you know?  
+    Poverty  
+    Red Cross, food banks, W.I.C  
+    Now look at this shit, we own property***  
+    -”Rich Spirit (Interlude)”  
+       
+    * *Uh, I can't please everybody  
+    **Uh, I can't even please myself  
+    Uh, I thought a new car would help  
+    Uh, but when that new car get old  
+    Uh, I'm sure to want something else***  
+    -”Crown”  
+       
+    * ***You ever seen your mama strung out while you studied division?  
+    Your uncle ever stole from you, day after Christmas?  
+    Seen both of those in them county jail visits**  
+    The first and the fifteenth, the only religion  
+    **Noodles in the microwave, shark tank tidal wave  
+    Grandma shootin' niggas, blood on the highway**  
+    Crossеs on the dashboard, you just want a platform  
+    **I wanna take evеrything that I ask for  
+    Catch me a body**, I'll put that on anybody but my mama  
+    She showin' a pattern for certain  
+    I think it's white panties and minimal condoms  
+    **My uncle would tell me the shit in the movies could only be magic  
+    This year, I did forty-three shows and took it all home to buy him a casket**  
+    Jack of all trades, **got money out the way**  
+    Put my heart in the faith, I'm good, love  
+    **Cousin in the courts, heard he jumped off the porch  
+    Turn a brick to a Porsche**, I'm good, love  
+    Catch us, you know I'm gon' rack up  
+    **I need the advance and the equity to match up***  
+    -”Savior (Interlude)”  
+
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="The meek will inherit the land">}}
+
+#### "And I don't give a fuck about this land, I want ownership" > The meek will inherit the land
+
+* Instead of expressing the desire for ownership over land on the earth in “this world,” Ghostface may instead be stating that he wants ownership over land in the “New Earth” of the world to come. Here a “New Earth” would revert to the perfected world that St. John saw in his vision and wrote about in the Book of Revelation, as we discussed in the analysis for the line “It’s light—It's known to tear retinas in a single gleam”  
+ 
+* Jesus himself also seems to allude to the ownership of the land in the “New Earth” during the “blessings” (aka beatitudes) section of the Sermon on the Mount. We previously discussed one of the blessings—”Blessed are the pure in heart, for they will see God”—during the analysis of the line “Dreams, visions get blurry of the Elohim.” Prior to  saying ”Blessed are the pure in heart, for they will see God”, Jesus began the “blessings” section by giving three related blessings which asserted that those who are poor, mourning, and meek will be the ones who will find comfort when as the inherit land in the “New Earth” that is ruled by the Kingdom of God/Heaven.  
+ 
+    * ***Blessed are the poor in spirit, for theirs is the kingdom of heaven.  
+    Blessed are those who mourn, for they will be comforted.  
+    Blessed are the meek, for they will inherit the [earth / land.]***  
+    -Matthew 5:3-5  
+
+* The statement that the “meek will inherit the [earth / land]” is actually a direct quote from a poetic song written by King David which later became Psalm 37.  
+ 
+    * *Rest in the Lord and wait patiently for Him;  
+    **Do not get upset because of one who prospers in his way,  
+    Because of the person who carries out wicked schemes**.  
+    Cease from anger and abandon wrath;  
+    Do not get upset; it leads only to evildoing.  
+    **For evildoers will be eliminated,  
+    But those who wait for the Lord, they will inherit the land.  
+    Yet a little while and the wicked person will be no more**;  
+    And you will look carefully for his place and he will not be there.  
+    But **the meek will inherit the land  
+    And will delight themselves in abundant prosperity**.  
+    …  
+    **Better is the little of the righteous  
+    Than the abundance of many wicked.  
+    For the arms of the wicked will be broken,  
+    But the Lord sustains the righteous**.  
+    **The Lord knows the days of those who are [mature / perfect],  
+    And their inheritance will be forever**.  
+    They will not be ashamed in the time of evil,  
+    And **in the days of famine they will have plenty.  
+    But the wicked will perish**;  
+    And the enemies of the Lord will be like the glory of the pastures,  
+    They vanish—like smoke they vanish away.  
+    **The wicked borrows and does not pay back,  
+    But the righteous is gracious and gives.  
+    For those blessed by Him will inherit the land,  
+    But those cursed by Him will be eliminated**.*  
+    -Psalm 27:7-11,16-22    
+
+* Kendrick actually referenced the blessing about the meek inheriting the earth and highlighted the conditions that he was born into on the track “I Am (Interlude” from the Kendrick Lamar EP.  
+ 
+    * ***The meek shall inherit the Earth  
+    Well, I've had this world since birth***
+
+* Within the context of Jesus’s teaching, the word “meek” is essentially a synonym for “humble.” It is thus notable that on the *Mr. Morale & the Big Steppers* track “Father Time”, Kendrick recounted how his father tried to “break” or get rid of Kendrick’s humility.  
+ 
+    * ***Daddy issues made me lеarn losses, I don't take those well  
+    Momma said, "That boy is exhausted," he said, "Go fuck yourself**  
+    If he give up now, that's gon' cost him, life's a bitch  
+    You could be a bitch or step out the margin**," I got up quick  
+    I'm chargin' baskets and falling backwards, tryna keep balance  
+    Oh, this the part where mental stability meets talent  
+    Oh, this the part, **he breaks my humility** just for practice  
+    Tactics we learned together, **sore losers forever, daddy issues***  
+    -”Father Time”  
+
+* Also on the *DAMN*.’s pivotal track, “FEAR.”, Kendrick’s experienced a breakthrough when he realized that he was really afraid his pride causing him to lose his humbleness while trying to hold on to things that cannot leave “this earth.” In the end, Kendrick seemed to find peace in the knowledge that Jesus would one day come back, which implies an awareness that Jesus will create a New Heaven and a New Earth.  
+ 
+    * *I'm talkin' fear, fear of losin' creativity  
+    I'm talkin' fear, fear of missin' out on you and me  
+    I'm talkin' fear, **fear of losin' loyalty from pride**  
+    'Cause **my DNA won't let me involve in the light of God**  
+    I'm talkin' fear, **fear that my humbleness is gone**  
+    I'm talkin' fear, **fear that love ain't livin' here no more**  
+    I'm talkin' fear, fear that it's wickedness or weakness  
+    Fear, whatever it is, both is distinctive  
+    Fear, **what happens on Earth stays on Earth**  
+    And I can't take these feelings with me, so hopefully, they disperse  
+    Within fourteen tracks, carried out over wax  
+    **Searchin' for resolutions until somebody get back***  
 
 {{< /details >}}
 
@@ -1185,13 +1699,108 @@ title = '"Purple Hearts" by Kendrick Lamar'
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Listen what the stars say when I say it's God's way" >}}
 
-{{< details is_markdown="true" nest_level="1" is_lyric="false" title="subsection">}}
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Stars">}}
 
-#### "Listen what the stars say when I say it's God's way" > subsection
+#### "Listen what the stars say when I say it's God's way" > Stars
 
-* 
+* Within the context of how the words “hear” and “listen” are used within this verse, Ghostface seems to be suggesting that we can “hear God’s love talking” if we “listen to what the stars say”.  
  
-* 
+* This idea that the stars and other celestial bodies can speak and tell us about the attributes of God, directly mirrors a poetic song written by King David which later became Psalm 19.  
+ 
+    * ***The heavens tell of the glory of God;  
+    And the skies declare the work of His hands.  
+    Day after day they pours forth speech,  
+    And night after night they reveal knowledge.  
+    There is no speech nor language;   
+    Where their voice is not heard.  
+    Their line has gone out into all the earth,  
+    And their words to the end of the world***  
+    -Psalm 19:1-4  
+
+* It is also notable that when St. Matthew tells the Christmas story of Jesus being born in a small town called Bethlehem, St. Mathew recounts how wise scholars and astronomers from the east (likely from Persia or Babylon) noticed a new, unique star in the night sky. This star leads them to travel to Bethehem to see and worship the baby Jesus, who the star has revealed to be the high priest, the anointed king, the one who will overcome death and “the Elohim” who has come down to earth.  
+ 
+    * *Now **after Jesus was born in Bethlehem of Judea** in the days of Herod the king, behold, **[magi / wise men] from the east** arrived in Jerusalem, **saying, “Where is He who has been born King of the Judeans? For we saw His star in the east and have come to worship Him**.”  
+
+* When Herod the king heard this, he was troubled, and all Jerusalem with him. And gathering together all the chief priests and scribes of the people, he inquired of them **where the [Messiah / Christ / Anointed King] was to be born**. Then Herod secretly called for the [magi / wise men] and determined from them the exact time the star appeared. And he sent them to Bethlehem and said, “Go and search carefully for the Child; and when you have found Him, report to me, so that I too may come and worship Him.”  
+ 
+    * After hearing the king, they went on their way; and behold, **the star, which they had seen in the east, went on ahead of them until it came to a stop over the place where the Child was to be found**. When they saw the star, they rejoiced exceedingly with great joy. And **after they came into the house, they saw the Child with His mother Mary; and they fell down and worshiped Him. Then they opened their treasures and presented to Him gifts of gold, frankincense, and myrrh**.*
+    Matthew 2:1-4, 7-11  
+
+* In the Eastern Orthodox tradition, the main hymn of [Christmas / the Nativity of Christ] specifically centers around the role of the star in shining the “light of God”, speaking to people from distant nations and teaching them to worship God, the Elohim.  
+ 
+    * ***Your Nativity, O Christ our God,  
+    has shone to the world the Light of wisdom;  
+    for by it, those who worshipped the stars  
+    were taught by a star to adore You,  
+    the Sun of Righteousness,  
+    and to know You, the Dayspring from on High**.  
+    O Lord, glory to You!*  
+
+* Additionally, the Old Testament book of Daniel ends with the Prophet Daniel seeing a vision about the future day when all humans will be resurrected and face God’s judgement. While some will not receive a positive judgement, Daniel’s prophesy declares those who lead other humans to right relationships (ie righteousness) will “shine like the stars forever.”  
+ 
+    * ***Many of those who sleep in the dust of the ground will awake, some to eternal life, but others to disgrace and eternal contempt. Those who are wise will shine like the glow of the dome of heaven, and those who lead the many to right relationships, like the stars forever and ever.***  
+    -Daniel 12:2-3  
+
+{{< /details >}}
+
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="God's way">}}
+
+#### "Listen what the stars say when I say it's God's way" > God's way
+
+* Throughout the Bible, the word “way” is used to describe a person’s “way of life” particularly the way that they treat other people within the context of relationships. Hence, “God’s way” is the way that God treats people and the way that God wants his followers to treat other people.  
+ 
+* In the Old Testament, Yahweh, the Elohim, revealed the “God’s way” to a man named Abraham who would become the grandfather of a man named Israel and Israel’s descendants, the Israelites. Yahweh, the Elohim, chose to reveal “God’s way” to Abraham so that Abraham would command his children and his descendants to “keep the way of Yahweh, the Lord” by doing good deeds that would lead to right relationships and justice. By “keeping the way of Yahweh, the Lord” and doing deeds that lead to reight relationships and justice, Abraham and the Isrealites were meant to bring God’s blessings to “all families of the earth”  
+ 
+    * ***Yahweh, the Lord, said, “Abraham will certainly become a great and mighty nation, and in him all the nations of the earth will be blessed. For I have chosen Abraham, so that he may command his children and his descendants after him to keep the way of the Yahweh, the Lord, through deeds of right relationships and justice, so that the Yahweh, the Lord, may bring upon Abraham what He has spoken about him**."*  
+    -Genesis 18:19  
+
+* Hence, when God used the Prophet Moses to rescue the Israelites from slavery to the Egyptians and give them God’s commandments as instructions (or law) for how to treat other humans, God was fulfilling the purpose for which he had chosen Abraham.  
+ 
+*  King David reflected on the instructions (or law) that God had provided through the commandments given to Moses and wrote a poetic song about the “blessed” state of a person who constantly meditates on the instructions of Yahweh, the Lord. King David declared that such people were following right relationships (aka righteousness) which is the only way that Yahweh, the Elohim, knows. In contrast, those who are wicked and reject Yahweh the Lord’s instruction will be rejected on the day of God’s judgement and go along the way of their own destruction.  
+ 
+    * ***Blessed is the man  
+    who does not walk in the counsel of the wicked,  
+    Nor stand in the path of sinners**,  
+    Nor sit in the seat of scoffers!  
+    **But his delight is in the [instructions / Torah / Law] of Yahweh, the Lord**,  
+    And **on Yahweh's [instructions / Torah / Law] he meditates day and night**.  
+    …  
+    Therefore **the wicked will not stand in the judgment**,  
+    Nor sinners in the assembly of the righteous.  
+    **For the Yahweh, the Lord, knows the way of the righteous,  
+    But the way of the wicked will perish**.*  
+    -Psalm 1:1-2,5-6  
+
+* In St. John’s account of the Gospel, just before Jesus’s arrest, crucifixion, death, resurrection and ascension, Jesus told his disciples that he would be leaving them to go to God the Father’s house and prepare to open the door for them. One of his disciples expressed confusion and said that they did not know where Jesus was going or the way to get there. However, Jesus responded by saying “I am the way”. This statement seemed to imply that Jesus is the perfect embodiment of “God’s way” towards right relationships (aka righteousness).  
+ 
+    * *Jesus said “**Do not let your heart be troubled; believe in God, believe also in Me. In My Father’s house are many rooms**; if that were not so, I would have told you, because **I am going there to prepare a place for you. And if I go and prepare a place for you, I am coming again** and will take you to Myself, so that where I am, there you also will be. And **you know the way where I am going**.”  
+       
+    **One of his disciples** named Thomas **said to Jesus, “Lord, we do not know where You are going; how do we know the way?”**  
+       
+    Jesus said to him, “**I am the way**, and the truth, and the life; **no one comes to the Father except through Me**.”*  
+       
+    -John 14:1-6   
+
+* Furthermore, just before saying “I am the way” Jesus also told his disciples that his primary commandment was for them to love each other in the same way that Jesus loved them. Those who did not follow this commandment to love each other would not be known as Jesus’s disciples.
+ 
+    * ***I am giving you a new commandment, that you love one another; just as I have loved you, that you also love one another. By this all people will know that you are My disciples: if you have love for one another**.*
+    -John 13:34-35
+
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Ghostface shines like the stars">}}
+
+#### "Listen what the stars say when I say it's God's way" > Ghostface shines like the stars
+
+* Hence, by saying that we should listen “when I say it's God's way” Ghostface seems to be declaring that following Jesus’s command to love God and love other humans is the only way to break out of the cycle of generational trauma and enter into an eternal cycle of right relationships.  
+ 
+* By saying “Listen what **the stars say when I say** it's God's way”, Ghostface seems to be equating himself with the stars. Moreover, according to the Prophet Daniel’s vision, the stars represent resurrected humans who are wise and “lead the many to right relationships.”  
+ 
+* Finally, by joining the stars in declaring that Jesus is the only way to find what humans are really looking for, Ghostface has effectively “purified his D speeches” as he intended to from the first line of the verse.  
+ 
+* Ghostface's verse did not talk about selling his people drugs that will make them feel short-term pleasure while destroying their mental, physical and spiritual health. Instead, Ghostface's verse talked about freely offering his people Jesus the living embodiment of love who leads his people into the delightful paradise of eternal life and the only pure medicine which can heal wounded “Purple Hearts”.
+
 {{< /details >}}
 
 {{< /details >}}
