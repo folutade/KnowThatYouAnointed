@@ -21,6 +21,7 @@ As part of his debut, self-titled 2009 EP, Kendrick Lamar included a track calle
         Felt like I'm free from all my sins when the service was over  
         **Walked out the church, then got a call that my homie was murdered  
         Then lost my faith again***  
+        -"Faith"  
 
 Despite Kendrick recounting an experience of losing his faith in God during the first verse of “Faith,” the third verse of “Faith” shows that Kendrick eventually recovered his faith and came to the conclusion that the suffering he endured was a way for God to test and purify his faith, like gold that is purified by fire.  
    
@@ -40,6 +41,7 @@ Despite Kendrick recounting an experience of losing his faith in God during the 
         **But what I do know, is that He's real and He lives forever  
         So the next time you feel like your world's about to end  
         I hope you studied, because He's testing your faith again***  
+        -"Faith"  
 
 In many ways, the track “Faith” laid the groundwork for the message that Kendrick would deliver over the course of his first three major label albums: *good kid m.A.A.d city* (2012), *To Pimp a Butterfly* (2015), and *DAMN* (2017). While the musical styles and lyrical themes of these three albums differ, each one of the albums followed a very similar, almost identical narrative arc.  
    
@@ -53,6 +55,7 @@ However, the most significant departure from Kendrick’s traditional narrative 
    
         ***Where's my faith? Told you I was Christian, but just not today**  
         I transformed, **prayin' to the trees, God is taking shape***  
+        -"Mother I Sober"  
 
 Given that Kendrick does not seem to find his breakthrough by turning to God and even seems to deconstruct his Christian faith, it is surprising and notable that there is one verse on the album that fully expresses the faith that was so central on Kendrick’s previous three albums. However, Kendrick is not the one who raps this verse. Instead, at the end of the track “Purple Hearts,” Ghostface Killah from the classic hip hop group Wu-Tang Clan provides a verse which encourages Kendrick to overcome his vices by turning to seek God—and more specifically by turning to seek the way of Jesus—as his ultimate source of fulfillment.  
    
