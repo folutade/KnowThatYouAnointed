@@ -2,6 +2,8 @@
 date = '2025-04-08T00:00:00-00:00'
 draft = false
 title = '"Purple Hearts" featuring Ghostface Killah'
+description = "A line-by-line analysis of Ghostface Killah's verse from \"Purple Hearts\""
+images = ["mr_morale_and_the_big_steppers_fishscale.jpg"]
 +++
 
 ![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/mr_morale_and_the_big_steppers_fishscale.jpg)  
