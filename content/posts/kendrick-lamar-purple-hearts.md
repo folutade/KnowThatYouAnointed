@@ -1,6 +1,6 @@
 +++
 date = '2025-04-08T00:00:00-00:00'
-draft = true
+draft = false
 title = '"Purple Hearts" featuring Ghostface Killah'
 +++
 
@@ -47,13 +47,13 @@ Kendrick goes out into the world seeking to fulfill his desires. As he seeks to 
    
 However, Kendrick’s fourth album, *Mr. Morale & the Big Steppers* (2022), does not follow this narrative arc. It diverges from the narrative arc of the previous three albums in several key ways.  
    
-First of all, from the very beginning of the album, Kendrick has already done everything he can to fulfill almost all of the desires he had on the previous albums. Moreover without much involvement or interaction with God, Kendrick is already very acutely aware of the vices within the world, within his community, and within himself.  
+First of all, from the very beginning of the album, Kendrick has already done everything he can to fulfill almost all of the desires he had on the previous albums. Kendrick already recognizes that trying to fulfill these desires led him to develop a sex addiction which has been destroying his relationship with Whitney, his partner and the mother of his two children. Thus, from the beginning of the album and seemingly without any involvement from God, Kendrick is already very acutely aware of the vices within the world, within his community, and within himself.  
    
 However, the most significant departure from Kendrick’s traditional narrative arc is the fact Kendrick’s breakthrough does not seem to come from Kendrick turning to seek God. Instead, Kendrick’s breakthrough seems to come as a result of multiple sessions with his therapist, Eckhart Tolle. Moreover, throughout the album, Kendrick seems to remain fairly distant from God. God is mentioned, there are many references to spiritual themes throughout the album, and Eckhart Tolle expresses many ideas that seem to be taken from New Age spirituality. However, in the breakthrough moment on the track, “Mother I Sober,” Kendrick seems to be deconstructing his Christian faith.  
    
 Given that Kendrick does not seem to find his breakthrough by turning to God and even seems to deconstruct his Christian faith, it is surprising and notable that there is one verse on the album that fully expresses the faith that was so central on Kendrick’s previous three albums. However, Kendrick is not the one who raps this verse. Instead, at the end of the track “Purple Hearts,” Ghostface Killah from the classic hip hop group Wu-Tang Clan provides a verse which encourages Kendrick to overcome his vices by turning to seeking God—and more specifically by turning to seek the way of Jesus—as his ultimate source of fulfillment.  
    
-At first glance, Ghostface Killah is probably not the first hip hop artist that most listeners would have thought would fill Kendrick’s prophetic role of serving as “Yeshua’s new weapon.” Many of Ghostface Killah’s rap verses are about selling drugs and other aspects of street culture. Moreover, on a personal level, Ghostface Killah identifies as a Muslim, not a Christian. However, as the following line-by-line analysis should show, Ghostface Killah turned out to be the perfect person to fill the role of God’s prophet—a role that Kendrick was seemingly unable to bear on Mr. Morale & the Big Steppers.  
+At first glance, Ghostface Killah is probably not the first hip hop artist that most listeners would have thought would fill Kendrick’s prophetic role of serving as “Yeshua’s new weapon.” Many of Ghostface Killah’s rap verses are about selling drugs and other aspects of street culture. Moreover, on a personal level, Ghostface Killah identifies as a Muslim, not a Christian. However, as the following line-by-line analysis should show, Ghostface Killah turned out to be the perfect person to fill the role of God’s prophet—a role that Kendrick was seemingly unable to bear on *Mr. Morale & the Big Steppers*.  
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Telekinesis, I'm purifying these D speeches" >}}
 
@@ -113,7 +113,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
 
 #### "While I'm crying, I clean the feet of the sweet Jesus" > Crying
 
-* The image of Ghostface Killah crying builds on the theme of crying that has already een established throughout the first half of Mr. Morale & the Big Steppers.  
+* The image of Ghostface Killah crying builds on the theme of crying that has already een established throughout the first half of *Mr. Morale & the Big Steppers*.  
  
 * The album begins with the song "United in Grief" in which featured a hook in which Kendrick repeatedly says "I grieve different" in between verses before finally saying "Everybody grieves different" at the end of the track. The final verse of "United in Grief" also ends with Kendrick saying "the money wiping the tears away" in reference to his attempts to deal with his grief through expensive, luxury cars, jewelry, houses, and guns.  
  
@@ -155,7 +155,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
 
 #### "While I'm crying, I clean the feet of the sweet Jesus" > Parallels to Mr. Morale
 
-* The story of the prostitute who cried as she cleaned Jesus’s feet has numerous parallels to the state in which Kendrick finds himself throughout Mr. Morale & the Big Steppers.  
+* The story of the prostitute who cried as she cleaned Jesus’s feet has numerous parallels to the state in which Kendrick finds himself throughout *Mr. Morale & the Big Steppers*.  
  
 * Much like the prostitute, Kendrick’s experience of living in poverty eventually led him to a degree of sexual promiscuity which was destructive to his relationships and caused him to distance himself from God.  
  
@@ -257,7 +257,6 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
     **Forcing me to stand now  
     I said, "Mr. Preacherman, should we love thy neighbor?”***  
 
-
 {{< /details >}}
 
 {{< details is_markdown="true" nest_level="1" is_lyric="false" title="Kendrick and Keisha">}}
@@ -296,7 +295,75 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
     You preached in front of one-hundred-thousand but never reached her  
     I fuckin' tell you, you fuckin' failure, you ain't no leader***  
 
-* Moreover, in addition to failing to provide enough guidance to prevent his younger sister from becoming pregnant as a teenager, Kendrick failed to follow his own advice of learning to make wise and exhibit self-control in regard to his sexual desires, as the revelation of his infidelity made clear on Mr. Morale & the Big Steppers.  
+{{< /details >}}
+
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Kendrick's sexual impurity">}}
+
+#### "While I'm crying, I clean the feet of the sweet Jesus" > Kendrick's sexual impurity
+
+* In addition to failing to provide enough guidance to prevent his younger sister from becoming pregnant as a teenager, Kendrick failed to follow his own advice of making wise choices and exhibitting self-control in regard to his sexual desires. As a result, Kendrick slipped into infidenity and developed a sex addiction which he finally revealed on *Mr. Morale & the Big Steppers*, most notably on the tracks "United In Grief", "Worldwide Steppers," and "Mother I Sober".  
+ 
+    * ***I met her on the third night of Chicago**  
+    North America tour, my enclave  
+    Fee-fi-fo-fum, **she was a model**  
+    Dedicated to the songs I wrote in the Bible  
+    **Eyes light green penetratin' the moonlight  
+    Hair done in a bun**, energy in the room like  
+    Big Bang for theory, God, hopin' you hear me  
+    Phone off the ringer, tell the world, "I'm busy"  
+    Fair enough, green-eyes said her mother didn't care enough  
+    Sympathize when her daddy in the chain gang  
+    Her first brother got killed, he was twenty-one  
+    I was nine when they put Lamont in the grave  
+    Heartbroken when Estelle didn't say goodbye  
+    Chad left his body after we FaceTimed  
+    **Green-eyes said you'd be okay, first tour, sex'd the pain away***  
+    -"United in Grief"  
+       
+    * ***I don't know how to feel  
+    Like the first time I fucked a white bitch  
+    The first time I fucked a white bitch  
+    I was sixteen at the Palisades**  
+    Fumblin' my grades, I traveled with the team  
+    The apache life, Centennial was like  
+    When Mrs. Baker screamed at Doughboy  
+    Mixed that with Purple Rain  
+    They interchanged the scenes  
+    Happy just to be out the hood  
+    With all the wealthy kids  
+    Credit cards and family plans  
+    **She drove her daddy's Benz**  
+    I found out that he was a sheriff  
+    That was a win-win  
+    Because he had locked up Uncle Perry  
+    She paid her daddy's sins  
+    **Next time I fucked a white bitch  
+    Was out in Copenhagen  
+    ​good kid, m.A.A.d city tour**  
+    I flourished on them stages  
+    **Whitney asked did I have a problem  
+    I said, "I might be racist"  
+    Ancestors watchin' me fuck was like retaliation***  
+    -"Worldwide Steppers"  
+       
+    * ***I was never high, I was never drunk, never out my mind  
+    I need control, they handed me some smoke, but still I declined  
+    I did it sober** sittin' with myself, I went through all emotions  
+    **No dependents, except for one**, let me bring you closer  
+    **Intoxicated, there's a lustful nature that I failed to mention  
+    Insecurities that I project, sleepin' with other women  
+    Whitney's hurt, the purest soul I know, I found her in the kitchen**  
+    Askin' God, "Where did I lose myself? And can it be forgiven?"  
+    Broke me down, **she looked me in my eyes, "Is there an addiction?"  
+    I said "No," but this time I lied, I knew that I can't fix it**  
+    Pure soul, even in her pain, know she cared for me  
+    **Gave me a number, said she recommended some therapy**  
+    ...  
+    I made it home, seven years of tour, chasin' manhood  
+    But **Whitney's gone, by time you hear this song, she did all she could  
+    All those women gave me superpowers, what I thought I lacked  
+    I pray our children don't inherit me and feelings I attract***  
+    -"Mother I Sober"  
 
 {{< /details >}}
 
@@ -395,7 +462,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
 
 #### "Dreams, visions get blurry of the Elohim," > Nine blessings
 
-* It might also be notable that the Sermon on the Mount begins with nine blessings and “Purple Hearts” is the ninth track on Mr. Morale & the Big Steppers.  
+* It might also be notable that the Sermon on the Mount begins with nine blessings and “Purple Hearts” is the ninth track on *Mr. Morale & the Big Steppers*.  
  
 * The number 9 is often seen as an important and symbolic number within the New Testament and later Christian church tradition. The symbolism of the number 9 is derived from the fact that the number 3 is very significant and 9 is 3 x 3.  
  
@@ -486,7 +553,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
 
 * It is notable that Kendrick has repeatedly depicted himself as a prophet going back to as far as the track “Mortal Man” from To Pimp a Butterfly and throughout the album *DAMN.*.  
  
-* Throughout Mr. Morale & the Big Steppers, Kendrick’s role as God’s prophet seems to be in question likely because of his adultery and sexual addiction.  
+* Throughout *Mr. Morale & the Big Steppers*, Kendrick’s role as God’s prophet seems to be in question likely because of his adultery and sexual addiction.  
  
 * In this sense, Kendrick could be compared to the Old Testament King David who was a great leader, a poet, a musician, a prophet and a devoted follower of God yet went on to use his power to commit adultery by secretly forcing his neighbor’s wife to have sex with him and then killing his neighbor after his wife became pregnant through King David’s adultery.  
  
@@ -653,7 +720,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
  
 * After Saul received back his sight, he was baptized and soon began announcing that Jesus is the Messiah and the Son of God. As followers of the Pharisee religious group rejected Saul and tried to kill him on numerous occasions, Saul began to announce the Good News to Greek speaking people throughout the Roman Empire and became primarily known by his Greek name, Paul.  
  
-* Within the context of Mr. Morale & the Big Steppers, Saul/Paul’s to being blinded by the light of God was a perfect example of someone who seemed to be a very noble person but was actually a killer as Kendrick discussed in “Worldwide Steppers.”  
+* Within the context of *Mr. Morale & the Big Steppers*, Saul/Paul’s to being blinded by the light of God was a perfect example of someone who seemed to be a very noble person but was actually a killer as Kendrick discussed in “Worldwide Steppers.”  
 
     * ***I'm a killer, he's a killer, she's a killer**, bitch  
     **We some killers**, walkin' zombies, tryna scratch that itch  
@@ -796,13 +863,13 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
     I answer to Metatron and Gabriel*  
     -”family ties”  
 
-* On Mr. Morale & the Big Steppers, Kendrick did ask God to speak through him on “Worldwide Steppers”.  
+* On *Mr. Morale & the Big Steppers*, Kendrick did ask God to speak through him on “Worldwide Steppers”.  
 
     * *Writer's block for two years, nothin' moved me  
     **Asked God to speak through me, that's what you hearin' now  
     The voice of yours truly***  
 
-* However, throughout Mr. Morale & the Big Steppers, Kendrick also expresses the idea that he has lost his way and is somehow distant from God.  
+* However, throughout *Mr. Morale & the Big Steppers*, Kendrick also expresses the idea that he has lost his way and is somehow distant from God.  
  
     * ***I wonder where I lost my way?**  
     Been waiting on your call all day*  
@@ -813,7 +880,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
     I said "No," but this time I lied, **I knew that I can't fix it***  
     -”Mother I Sober”  
 
-* Hence, within the overall context of Mr. Morale & the Big Steppers, it seems like Ghostface Killah is the rapper who has been chosen to spit a verse as a part of “God’s cypher divine” while Kendrick really needs to “shut the fuck up” and listen to “God’s love talking’” through Ghostface.
+* Hence, within the overall context of *Mr. Morale & the Big Steppers*, it seems like Ghostface Killah is the rapper who has been chosen to spit a verse as a part of “God’s cypher divine” while Kendrick really needs to “shut the fuck up” and listen to “God’s love talking’” through Ghostface.
 
 {{< /details >}}
 
@@ -927,7 +994,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
 
 * In the context of relational issues, destructive behavior or addiction, the word “intervention” is used to describe a deliberate and often structured attempt to address problematic behavior. Most often an “intervention” is initiated by close family members or friends who are very aware of the problematic behavior even as the person with the problematic behavior remains unaware of or resistant to the consequences of their actions. In many cases, those close family members or friends may first consult with a trained mental or behavioral health professional and may recommend specific actions for the person such as starting some form of therapy or entering into a rehabilitation (aka rehab) program.  
  
-* Throughout, Mr. Morale & the Big Steppers, Kendrick’s partner, Whitney, seems to be the person who is trying to initiate an intervention in response to Kendrick’s sex addiction even as Kendrick repeatedly denies that he has a problem and initially resists starting therapy or taking any steps to change his behavior.  
+* Throughout, *Mr. Morale & the Big Steppers*, Kendrick’s partner, Whitney, seems to be the person who is trying to initiate an intervention in response to Kendrick’s sex addiction even as Kendrick repeatedly denies that he has a problem and initially resists starting therapy or taking any steps to change his behavior.  
  
     * *I hope you find some peace of mind in this lifetime  
     **Whitney: (Tell them, tell 'em, tell them the truth)**  
@@ -1100,7 +1167,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
     It is an area which we call  
     **The Twilight Zone**.*  
 
-* The psychological, philosophical and moral aspects of The Twilight Zone stories are very similar in scope to stories that Kendrick is telling throughout Mr. Morale & the Big Steppers.  
+* The psychological, philosophical and moral aspects of The Twilight Zone stories are very similar in scope to stories that Kendrick is telling throughout *Mr. Morale & the Big Steppers*.  
  
 * By saying that “this world’s in The Twilight Zone”, Ghostface seems to be suggesting that the “global madness” that has recently become more apparent, particular in the wake of Covid-19 and the global pandemic, is really an indication that the sane and peaceful existence that most of us are used to in America and the rest of the modern West is really a facade. The true reality of the world is far more strange, dangerous, and unsettling than most of us are willing or able to comprehend.  
  
@@ -1128,7 +1195,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
  
 * By saying “we need an intermission”, Ghostface seems playing the role of a metaphorical commentator who sees that the game has become chaotic and out of control or a metaphorical coach who sees that his team has lost all momentum and composure and needs an intermission to calm down, refocus, listen to the coach’s instruction and make several strategic adjustments.  
  
-* It is also notable that years after the release of Mr. Morale & the Big Steppers, Kendrick would go on to perform as the headline musical act during the halftime intermission of the 2025 National Football League Superbowl game. Moreover, Kendrick’s entire performance was built around the concept of Kendrick’s life being a game.  
+* It is also notable that years after the release of *Mr. Morale & the Big Steppers*, Kendrick would go on to perform as the headline musical act during the halftime intermission of the 2025 National Football League Superbowl game. Moreover, Kendrick’s entire performance was built around the concept of Kendrick’s life being a game.  
  
 * This concept of Kendrick’s life being a game was established in the promotional advertising spots which encouraged audiences to “Catch Kendrick Lamar at the top of his game in the Apple Music Super Bowl LIX Halftime Show.”  
  
@@ -1144,7 +1211,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
 
 #### "God, please blow the whistle, we need an intermission" > Album intermission
 
-* In is also notable that Mr. Morale & the Big Steppers is divided into two discs, each with nine tracks. The first disc is called Big Steppers and the second disc is titled Mr. Morale. As track 9 of Disc 1, the end of “Purple Hearts” marks the intermission between the two halves of the album.  
+* In is also notable that *Mr. Morale & the Big Steppers* is divided into two discs, each with nine tracks. The first disc is called Big Steppers and the second disc is titled Mr. Morale. As track 9 of Disc 1, the end of “Purple Hearts” marks the intermission between the two halves of the album.  
  
 * This album intermission is particularly noticeable if you listen to the album on vinyl. On vinyl, the album is laid out on two separate vinyl records, which means that if we want to listen to the entire album we will “need an intermission” to allow someone to take the first record off The record player and put the second record on the record player.  
 
@@ -1207,7 +1274,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
        
     -Revelation 3:7-8, 10-13  
 
-* It is  notable that this passage from the Revelation contains a reference to a crown that is intertwined with suffering and hardship, which is very relevant to the Mr. Morale & the Big Steppers track “Crown”.  
+* It is  notable that this passage from the Revelation contains a reference to a crown that is intertwined with suffering and hardship, which is very relevant to the *Mr. Morale & the Big Steppers* track “Crown”.  
  
     * ***Heavy is the head that chose to wear the crown**  
     To whom is given **much is required now***  
@@ -1532,7 +1599,7 @@ In an 2024 interview with The Atlantic Ghostface was asked how his brother's gra
  
 * However, Ghostface seems to not care about being included among the Americans to whom this land collectively belongs. Instead he seems to want direct ownership over the land.  
  
-* On the surface, Ghostface’s desire to have ownership over the land could be interpreted as a desire to become wealthy enough to buy lots of land. However, such an interpretation would seem to run counter to the verses throughout Mr. Morale & the Big Steppers where Kendrick, Kodak Black and Baby Keem all reflect on how becoming rich and buying property did not heal the generational trauma of growing up poor in America.  
+* On the surface, Ghostface’s desire to have ownership over the land could be interpreted as a desire to become wealthy enough to buy lots of land. However, such an interpretation would seem to run counter to the verses throughout *Mr. Morale & the Big Steppers* where Kendrick, Kodak Black and Baby Keem all reflect on how becoming rich and buying property did not heal the generational trauma of growing up poor in America.  
  
     * ***The new Mercedes whip, black G-Wagon**  
     The, "Where you from?" It was all for rap  
