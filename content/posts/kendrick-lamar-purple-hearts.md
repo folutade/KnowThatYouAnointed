@@ -77,7 +77,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
 
 {{< /details >}}
 
-{{< details is_markdown="true" nest_level="1" is_lyric="false" title="purifying">}}
+{{< details is_markdown="true" nest_level="1" is_lyric="false" title="Purifying">}}
 
 #### "Telekinesis, I'm purifying these D speeches" > Purifying
 
