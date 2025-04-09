@@ -4,7 +4,7 @@ draft = false
 title = '"Purple Hearts" featuring Ghostface Killah'
 +++
 
-![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/mr_morale_and_the_big_steppers_ghostface.jpg)  
+![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/mr_morale_and_the_big_steppers_fishscale.jpg)  
 
 As part of his debut, self-titled 2009 EP, Kendrick Lamar included a track called “Faith,” which recounted the story of how his struggles with his Christian faith influenced his understanding of his purpose and the trajectory of his career as a hip hop artist.  
    
