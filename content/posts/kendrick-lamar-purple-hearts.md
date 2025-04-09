@@ -8,8 +8,6 @@ images = ["mr_morale_and_the_big_steppers_fishscale.jpg"]
 
 ![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/mr_morale_and_the_big_steppers_fishscale.jpg)  
 
-* [Jump to line-by-line analysis](#analysis)  
-
 ## Intro
 
 {{< details is_markdown="true" nest_level="0" is_lyric="false" title="Kendrick's faith" >}}
