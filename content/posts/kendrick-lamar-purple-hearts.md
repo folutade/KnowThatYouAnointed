@@ -8,6 +8,10 @@ images = ["mr_morale_and_the_big_steppers_fishscale.jpg"]
 
 ![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/mr_morale_and_the_big_steppers_fishscale.jpg)  
 
+* [Jump to line-by-line analysis](#analysis)  
+
+## Intro
+
 As part of his debut, self-titled 2009 EP, Kendrick Lamar included a track called “Faith,” which recounted the story of how his struggles with his Christian faith influenced his understanding of his purpose and the trajectory of his career as a hip hop artist.  
    
         *I found myself losing focus **at a Sunday service**  
@@ -62,6 +66,8 @@ However, the most significant departure from Kendrick’s traditional narrative 
 Given that Kendrick does not seem to find his breakthrough by turning to God and even seems to deconstruct his Christian faith, it is surprising and notable that there is one verse on the album that fully expresses the faith that was so central on Kendrick’s previous three albums. However, Kendrick is not the one who raps this verse. Instead, at the end of the track “Purple Hearts,” Ghostface Killah from the classic hip hop group Wu-Tang Clan provides a verse which encourages Kendrick to overcome his vices by turning to seek God—and more specifically by turning to seek the way of Jesus—as his ultimate source of fulfillment.  
    
 At first glance, Ghostface Killah is probably not the first hip hop artist that most listeners would have thought would fill Kendrick’s prophetic role of serving as “Yeshua’s new weapon.” Many of Ghostface Killah’s rap verses are about selling drugs and other aspects of street culture. Moreover, on a personal level, Ghostface Killah identifies as a Muslim, not a Christian. However, as the following line-by-line analysis should show, Ghostface Killah turned out to be the perfect person to fill the role of God’s prophet—a role that Kendrick was seemingly unable to bear on *Mr. Morale & the Big Steppers*.  
+
+## Analysis
 
 {{< details is_markdown="false" nest_level="0" is_lyric="true" title="Telekinesis, I'm purifying these D speeches" >}}
 
