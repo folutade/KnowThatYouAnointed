@@ -69,7 +69,9 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
 
 #### "Telekinesis, I'm purifying these D speeches" > D speeches
 
-* In street culture, “D” can be short for “dope” or “drug”. For example the term “d boys” is short for “dope boys”, which refers to drug dealers. In numerous songs and interviews, Ghostface has rapped and talked about his past experience as a drug dealer. Hence, “D speeches” could be a reference to rap verses and other speech which glorifies drug dealing.  
+* In street culture, “D” can be short for “dope” or “drug”. For example the term “d boys” is short for “dope boys”, which refers to drug dealers. Hence, “D speeches” could be a reference to rap verses and other speech which glorifies drug dealing.  
+
+* Throughout his career, Ghostface has released numerous tracks in which he rapped about drug dealing. Most notably, in 2006, Ghostface released an album called *Fishscale* whose title is a slang reference to high-quality cocaine. *Fishscale*'s theme of selling cocaine is further developed on tracks like "Kilo", "Crack Spot", "Three Bricks" and "Shakey Dog."  
   
 * The idea that "D speeches" refers to Ghostface talking about drugs would connect to the lyrics of the hook where Kendrick says "I know y'all love it when the drugs talkin'"  
 
