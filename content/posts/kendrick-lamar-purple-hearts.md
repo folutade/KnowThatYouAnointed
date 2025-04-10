@@ -29,7 +29,7 @@ As part of his debut, self-titled 2009 EP, Kendrick Lamar included a track calle
         Then lost my faith again***  
         -"Faith"  
 
-Despite Kendrick recounting an experience of losing his faith in God during the first verse of “Faith,” the third verse of “Faith” shows that Kendrick eventually recovered his faith and came to the conclusion that the suffering he endured was a way for God to test and purify his faith, like gold that is purified by fire.  
+Despite Kendrick recounting an experience of losing his faith in God during the first verse of “Faith,” the third verse of “Faith” shows that Kendrick eventually recovered his faith. Moreover, Kendrick came to the conclusion that the suffering he endured was a way for God to test and purify his faith, like gold that is purified by fire.  
    
         ***This for my people that stressing whenever times is hard  
         Your mind's slipping, wondering, "Is there really a God?"**  
