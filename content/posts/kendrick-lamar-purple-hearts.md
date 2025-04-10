@@ -10,7 +10,7 @@ images = ["mr_morale_and_the_big_steppers_fishscale.jpg"]
 
 ## Intro
 
-{{< details is_markdown="true" nest_level="0" is_lyric="false" title="Kendrick's faith" >}}
+{{< details is_markdown="true" nest_level="0" is_lyric="false" title="Kendrick Lamar's faith" >}}
 
 As part of his debut, self-titled 2009 EP, Kendrick Lamar included a track called “Faith,” which recounted the story of how his struggles with his Christian faith influenced his understanding of his purpose and the trajectory of his career as a hip hop artist.  
    
@@ -51,9 +51,9 @@ Despite Kendrick recounting an experience of losing his faith in God during the 
 
 In many ways, the track “Faith” laid the groundwork for the message that Kendrick would deliver over the course of his first three major label albums: *good kid m.A.A.d city* (2012), *To Pimp a Butterfly* (2015), and *DAMN* (2017). While the musical styles and lyrical themes of these three albums differ, each one of the albums followed a very similar, almost identical narrative arc.  
    
-Kendrick goes out into the world seeking to fulfill his desires. As he seeks to fulfill his desires, God allows Kendrick to face opposition, trouble, and suffering. By allowing Kendrick to face this opposition, trouble, and suffering, God reveals deep, pervasive vices within the world, within Kendrick’s community, and within Kendrick himself. Kendrick recognizes that overcoming these vices is much more important than seeking to fulfill the desires he had at the start. Kendrick then has a breakthrough in which he turns to seek God and overcomes the vices within himself. Finally, Kendrick prophetically encourages his community to join him in seeking God as their ultimate source of fulfillment.  
+The narrative arc begins with Kendrick going out into the world seeking to fulfill his desires. As he seeks to fulfill his desires, God allows Kendrick to face opposition, trouble, and suffering. By allowing Kendrick to face this opposition, trouble, and suffering, God reveals deep, pervasive vices within the world, within Kendrick’s community, and within Kendrick himself. Kendrick recognizes that overcoming these vices is much more important than seeking to fulfill the desires he had at the start. Kendrick then has a breakthrough in which he turns to seek God and overcomes the vices within himself. Finally, the narrative arc ends with Kendrick prophetically encouraging his community to join him in seeking God as their ultimate source of fulfillment.  
    
-However, Kendrick’s fourth album, *Mr. Morale & the Big Steppers* (2022), does not follow this narrative arc. It diverges from the narrative arc of the previous three albums in several key ways.  
+However, in contrast to Kendrick's first three major lable album, Kendrick’s fourth album, *Mr. Morale & the Big Steppers* (2022), does not follow the established narrative arc. This fourth album noticably diverges from the narrative arc of the previous three albums in several key ways.  
    
 First of all, from the very beginning of the album, Kendrick has already done everything he can to fulfill almost all of the desires he had on the previous albums. Kendrick already recognizes that trying to fulfill these desires led him to develop a sex addiction which has been destroying his relationship with Whitney, his partner and the mother of his two children. Thus, from the beginning of the album and seemingly without any involvement from God, Kendrick is already very acutely aware of the vices within the world, within his community, and within himself.  
    
