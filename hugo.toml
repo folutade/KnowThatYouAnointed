@@ -2,14 +2,12 @@ baseURL = 'https://example.org/'
 languageCode = 'en-us'
 title = 'Know That You Anointed'
 theme = 'hugo-PaperMod'
-description = 'Does any of this work?'
+description = 'A blog where hip hop intersects with Christian spirituality'
 
 [params]
 env = 'production' # to enable google analytics, opengraph, twitter-cards and schema.
 description = 'A blog where hip hop intersects with Christian spirituality'
 author = 'Femi'
-
-assets.favicon = "assets/favicon.ico"
 
 # defaultTheme = 'auto'
 # disableThemeToggle = true
