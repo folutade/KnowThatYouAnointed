@@ -792,7 +792,7 @@ At first glance, Ghostface Killah is probably not the first hip hop artist that 
        
     -Matthew 22:35-40  
 
-* Jesus implies that these two commandments are simultaneously the greatest commandment because they both command humans to love. Jesus even says that the central message of the entire Old Testament (including the first section called the Torah/Law and the second section called the Prophets) can be summarized with these two commandments to love.  
+* Jesus implies that these two commandments are simultaneously the greatest commandment because they both command humans to love. Jesus even says that the central message of the entire Old Testament (including the first section called the Torah/Law and the second section called the Prophets) can be summarized with these two commandments to love. (See [BibleProject's word study video on the biblical meaning of "love"](https://youtu.be/slyevQ1LW7A?si=twow7-0If_tUJ-pH))  
  
 * Later in the album on the track “Auntie Diaries” Kendrick references Jesus’s commandment to “love your neighbor as yourself” when he stands up to criticize a Church pastor who focused on enforcing that someone should follow some of God’s important but lesser commandments while not showing much of a concern for whether he was personally following the greatest commandment.  
  
