@@ -5,13 +5,13 @@ title = 'Sinners (2025 Film)'
 images = ["images/reincarnated_sinners.jpg"]
 +++
 
-![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/reincarnated_sinners.jpg)  
+!["reincarnated" and Sinners](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/reincarnated_sinners.jpg)  
 
-# *Sinners* <-> "reincarnated" 
+# "reincarnated" <-> *Sinners*
 
 The movie Sinners by Ryan Coogler starring Michael B. Jordan is essentially a film adaptation of “reincarnated” by Kendrick Lamar… or “reincarnated” is the unofficial soundtrack of Sinners. It’s hard to tell which one.  
 
-![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/black_panther_album.jpg)  
+![Black Panther: The Album](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/black_panther_album.jpg)  
 
 It’s notable that back in 2018, Kendrick curated the official soundtrack for the movie Black Panther by Ryan Coogler starring Michael B. Jordan.  
 
@@ -48,7 +48,10 @@ https://t.co/c2SrLNhoOz
 
 # Love of God or Love Money
 
-The theme of light and darkness is also closely related to another clear theme of the movie, namely that “the love of money is the root of all kinds of evil” (1 Timothy 6:10).  
+The theme of light and darkness is also closely related to another clear theme of the movie, namely that “the love of money is the root of all kinds of evil”.  
+
+* *If we have food and clothing, we will **be content**. But **those who want to get rich fall into temptation**, a **trap**, and many foolish and harmful **desires** which plunge humans into **ruin and destruction**. **For the love of money is a root of all kinds of evil**, and some by longing for it have been led astray from the faith in their greed and **pierced themselves with many sorrows**.*  
+-1 Timothy 6:8-10
 
 As Jesus said in St. Matthew's account of the Gospel:  
 
