@@ -1,0 +1,73 @@
++++
+date = '2025-05-09T15:08:29-07:00'
+draft = true
+title = 'Sinners (2025 Film)'
+images = ["images/reincarnated_sinners.jpg"]
++++
+
+![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/reincarnated_sinners.jpg)  
+
+# *Sinners* <-> "reincarnated" 
+
+The movie Sinners by Ryan Coogler starring Michael B. Jordan is essentially a film adaptation of “reincarnated” by Kendrick Lamar… or “reincarnated” is the unofficial soundtrack of Sinners. It’s hard to tell which one.  
+
+![Cover Image](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/black_panther_album.jpg)  
+
+It’s notable that back in 2018, Kendrick curated the official soundtrack for the movie Black Panther by Ryan Coogler starring Michael B. Jordan.  
+
+Pure speculation but as I watched Sinners, I couldn’t help but feel that Coogler and Kendrick talked about the real life history and ideas behind Sinners and “reincarnated” before either of those projects were released.  
+
+# Relevant
+
+At this point in my journey I rarely watch movies and don’t presume to give any movie recommendations but as someone who spends a lot of time analyzing Black music, culture, and spirituality I thought that Sinners was very relevant to a lot of important conversations.  
+
+Sinners definitely presents an intense milieu of spiritual ideas, so people will probably walk away from it with different conclusions based on their ethnic, political, and spiritual perspectives.  
+
+# Light
+
+My biggest takeaway from Sinners was a reminder of how St John the Evangelist summarized the Gospel Good News in his letter to the Church
+
+* *This is the announcement we have heard from Him and announce to you,  
+       that **God is Light** and **in Him there is no darkness** at all.*  
+       -1 John 1:5  
+
+*Sinners also* echoes Jesus’s words in St John’s account of the Gospel:
+
+* *This is the judgment, that **the Light has come into the world, and humans loved the darkness rather than the Light because their deeds were evil**.*  
+-John 3:19
+
+*Sinners* was released on Great and Holy Friday, two days before Resurrection Sunday / Pascha. It's thus relevant to point out that in the Orthodox tradition we commemorate the Resurrection in the darkness of night by lighting candles with light from the altar and singing “Come Receive the Light.”  
+
+* *Come **receive the light from the Light**  
+that is **never overtaken by night**  
+and glorify Christ who is **risen from the dead**.*  
+
+https://t.co/c2SrLNhoOz
+
+{{< youtube SvWqnMCKpM >}}
+
+# Love of God or Love Money
+
+The theme of light and darkness is also closely related to another clear theme of the movie, namely that “the love of money is the root of all kinds of evil” (1 Timothy 6:10).  
+
+As Jesus said in St. Matthew's account of the Gospel:  
+
+* *The eye is the lamp of the body. So then, if your eye is clear your whole body will be **full of light**. But if your eye is bad, your whole body will be **full of darkness**. So **if the light that is in you is darkness, how great is the darkness**!  
+   
+**No one can serve two masters**; for either he will hate the one and love the other, or he will be devoted to one and despise the other. **You cannot serve God and money**.*  
+-Matthew 6:22-24
+
+# Sinners Need Jesus
+
+*Sinners* also reminded me of Tobe Nwigwe's central thesis on his 2024 album, *Hood Hymns*:
+
+* *They made you think the moon is **sunlight**  
+But it don't shine the same  
+It don't shine the same  
+...  
+All my niggas need some **brighter days**  
+All my niggas need Yeshua  
+All of my niggs need Jesus*  
+-“MOON & SUNLIGHT” / “NI**AS NEED JESUS”  
+
+{{< youtube dtwrWN02ulI >}}
