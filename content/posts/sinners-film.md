@@ -11,7 +11,7 @@ images = ["images/reincarnated_sinners.jpg"]
 
 The movie Sinners by Ryan Coogler starring Michael B. Jordan is essentially a film adaptation of “reincarnated” by Kendrick Lamar… or “reincarnated” is the unofficial soundtrack of Sinners. It’s hard to tell which one.  
 
-![Black Panther: The Album](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/black_panther_album.jpg)  
+![Black Panther: The Album](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/black_panther_the_album.jpg)  
 
 It’s notable that back in 2018, Kendrick curated the official soundtrack for the movie Black Panther by Ryan Coogler starring Michael B. Jordan.  
 
@@ -31,10 +31,14 @@ My biggest takeaway from Sinners was a reminder of how St John the Evangelist su
        that **God is Light** and **in Him there is no darkness** at all.*  
        -1 John 1:5  
 
+![I Am the Light of the World](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/i_am_the_light_of_the_world.jpg)  
+
 *Sinners also* echoes Jesus’s words in St John’s account of the Gospel:
 
 * *This is the judgment, that **the Light has come into the world, and humans loved the darkness rather than the Light because their deeds were evil**.*  
 -John 3:19
+
+![Come Receive the Light](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/come_receive_the_light.jpg)  
 
 *Sinners* was released on Great and Holy Friday, two days before Resurrection Sunday / Pascha. It's thus relevant to point out that in the Orthodox tradition we commemorate the Resurrection in the darkness of night by lighting candles with light from the altar and singing “Come Receive the Light.”  
 
@@ -42,9 +46,8 @@ My biggest takeaway from Sinners was a reminder of how St John the Evangelist su
 that is **never overtaken by night**  
 and glorify Christ who is **risen from the dead**.*  
 
-https://t.co/c2SrLNhoOz
 
-{{< youtube SvWqnMCKpM >}}
+{{< youtube xQc7PL0aBvM >}}
 
 # Love of God or Love Money
 
