@@ -9,6 +9,8 @@ env = 'production' # to enable google analytics, opengraph, twitter-cards and sc
 description = 'A blog where hip hop intersects with Christian spirituality'
 author = 'Femi'
 
+googleAnalytics = "G-MMP7NYRRGZ"
+
 assets.favicon = "assets/favicon.ico"
 
 # defaultTheme = 'auto'
