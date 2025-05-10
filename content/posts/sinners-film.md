@@ -27,8 +27,7 @@ At this point in my journey I rarely watch movies and don’t presume to give an
 
 My biggest takeaway from *Sinners* was a reminder of how St John the Evangelist summarized the Gospel Good News in his letter to the Church
 
-* *This is the announcement we have heard from Him and announce to you,  
-       that **God is Light** and **in Him there is no darkness** at all.*  
+* *This is the announcement we have heard from Him and announce to you, that **God is Light** and **in Him there is no darkness** at all.*  
        -1 John 1:5  
 
 *Sinners* also echoes Jesus’s words in St John’s account of the Gospel:
