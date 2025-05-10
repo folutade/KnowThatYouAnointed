@@ -1,6 +1,6 @@
 +++
-date = '2025-05-09T15:08:29-07:00'
-draft = true
+date = '2025-05-09T15:00:00-00:00'
+draft = false
 title = 'Sinners (2025 Film)'
 images = ["images/reincarnated_sinners.jpg"]
 +++
@@ -9,38 +9,36 @@ images = ["images/reincarnated_sinners.jpg"]
 
 # "reincarnated" <-> *Sinners*
 
-The movie Sinners by Ryan Coogler starring Michael B. Jordan is essentially a film adaptation of “reincarnated” by Kendrick Lamar… or “reincarnated” is the unofficial soundtrack of Sinners. It’s hard to tell which one.  
+The movie *Sinners* by Ryan Coogler starring Michael B. Jordan is essentially a film adaptation of “reincarnated” by Kendrick Lamar… or “reincarnated” is the unofficial soundtrack of *Sinners*. It’s hard to tell which one.  
 
 ![Black Panther: The Album](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/black_panther_the_album.jpg)  
 
 It’s notable that back in 2018, Kendrick curated the official soundtrack for the movie Black Panther by Ryan Coogler starring Michael B. Jordan.  
 
-Pure speculation but as I watched Sinners, I couldn’t help but feel that Coogler and Kendrick talked about the real life history and ideas behind Sinners and “reincarnated” before either of those projects were released.  
+Pure speculation but as I watched Sinners, I couldn’t help but feel that Coogler and Kendrick talked about the real life history and ideas behind *Sinners* and “reincarnated” before either of those projects were released.  
 
 # Relevant
 
-At this point in my journey I rarely watch movies and don’t presume to give any movie recommendations but as someone who spends a lot of time analyzing Black music, culture, and spirituality I thought that Sinners was very relevant to a lot of important conversations.  
+At this point in my journey I rarely watch movies and don’t presume to give any movie recommendations but as someone who spends a lot of time analyzing Black music, culture, and spirituality I thought that *Sinners* was very relevant to a lot of important conversations.  
 
-Sinners definitely presents an intense milieu of spiritual ideas, so people will probably walk away from it with different conclusions based on their ethnic, political, and spiritual perspectives.  
+*Sinners* definitely presents an intense milieu of spiritual ideas, so people will probably walk away from it with different conclusions based on their ethnic, political, and spiritual perspectives.  
 
 # Light
 
-My biggest takeaway from Sinners was a reminder of how St John the Evangelist summarized the Gospel Good News in his letter to the Church
+My biggest takeaway from *Sinners* was a reminder of how St John the Evangelist summarized the Gospel Good News in his letter to the Church
 
 * *This is the announcement we have heard from Him and announce to you,  
        that **God is Light** and **in Him there is no darkness** at all.*  
        -1 John 1:5  
 
-![I Am the Light of the World](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/i_am_the_light_of_the_world.jpg)  
-
-*Sinners also* echoes Jesus’s words in St John’s account of the Gospel:
+*Sinners* also echoes Jesus’s words in St John’s account of the Gospel:
 
 * *This is the judgment, that **the Light has come into the world, and humans loved the darkness rather than the Light because their deeds were evil**.*  
 -John 3:19
 
 ![Come Receive the Light](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/come_receive_the_light.jpg)  
 
-*Sinners* was released on Great and Holy Friday, two days before Resurrection Sunday / Pascha. It's thus relevant to point out that in the Orthodox tradition we commemorate the Resurrection in the darkness of night by lighting candles with light from the altar and singing “Come Receive the Light.”  
+*Sinners* was released on Great and Holy Friday, two days before Resurrection Sunday and Great Holy Pascha (aka Easter). It's thus relevant to point out that in the Orthodox tradition we commemorate the Resurrection in the darkness of night by lighting candles with light from the altar and singing “Come Receive the Light.”  
 
 * *Come **receive the light from the Light**  
 that is **never overtaken by night**  
@@ -62,6 +60,8 @@ As Jesus said in St. Matthew's account of the Gospel:
    
 **No one can serve two masters**; for either he will hate the one and love the other, or he will be devoted to one and despise the other. **You cannot serve God and money**.*  
 -Matthew 6:22-24
+
+{{< youtube GpqOdHV3dmU >}}
 
 # Sinners Need Jesus
 
