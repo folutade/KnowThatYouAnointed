@@ -1,7 +1,7 @@
 +++
 date = '2025-05-09T15:00:00-00:00'
 draft = false
-title = 'Sinners (2025 Film)'
+title = 'Sinners (Film)'
 images = ["images/reincarnated_sinners.jpg"]
 +++
 
