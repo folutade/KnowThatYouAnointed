@@ -9,11 +9,11 @@ images = ["images/reincarnated_sinners.jpg"]
 
 # "reincarnated" <-> *Sinners*
 
-The movie *Sinners* by Ryan Coogler starring Michael B. Jordan is essentially a film adaptation of “reincarnated” by Kendrick Lamar… or “reincarnated” is the unofficial soundtrack of *Sinners*. It’s hard to tell which one.  
+*Sinners* by Ryan Coogler starring Michael B. Jordan is essentially a film adaptation of “reincarnated” by Kendrick Lamar… or “reincarnated” is the unofficial soundtrack of *Sinners*. It’s hard to tell which one.  
 
 ![Black Panther: The Album](https://raw.githubusercontent.com/folutade/KnowThatYouAnointed/refs/heads/main/static/images/black_panther_the_album.jpg)  
 
-It’s notable that back in 2018, Kendrick curated the official soundtrack for the movie Black Panther by Ryan Coogler starring Michael B. Jordan.  
+It’s notable that back in 2018, Kendrick curated the official soundtrack for *Black Panther* by Ryan Coogler starring Michael B. Jordan.  
 
 Pure speculation but as I watched Sinners, I couldn’t help but feel that Coogler and Kendrick talked about the real life history and ideas behind *Sinners* and “reincarnated” before either of those projects were released.  
 
